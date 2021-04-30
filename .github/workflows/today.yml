@@ -18,10 +18,10 @@ jobs:
           SSH_KEY: ${{ secrets.SSH_KEY }}
           SSH_PUB: ${{ secrets.SSH_PUB }}
         run: |
-          /bin/bash <(/bin/curl -s https://raw.githubusercontent.com/trueChristian/daily_light/master/src/setGithubUser.sh) --gpg-key "$GPG_KEY" --gpg-user "$GPG_USER" --ssh-key "$SSH_KEY" --ssh-pub "$SSH_PUB" --git-user "$GIT_USER" --git-email "$GIT_EMAIL"
+          /bin/bash <(/bin/curl -s https://raw.githubusercontent.com/vdm-io/github-user/master/src/setup.sh) --gpg-key "$GPG_KEY" --gpg-user "$GPG_USER" --ssh-key "$SSH_KEY" --ssh-pub "$SSH_PUB" --git-user "$GIT_USER" --git-email "$GIT_EMAIL"
       - name: Clone Master Repositry
         run: |
-          /bin/git clone git@github.com:trueChristian/daily_light.git daily_light
+          /bin/git clone git@github.com:trueChristian/daily-light.git daily_light
       - name: Build the Daily Light
         run: |
           cd daily_light
