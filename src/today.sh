@@ -43,7 +43,7 @@ EVENING="<p><i><u>${E_TIME_N}</u></i></p>
 <p>${DAILYLIGHT}</p>
 <p><strong>${DAILYLIGHT[$E_TIME_V]}</strong></p>"
 
-TELEGRAM_LINK="<p id=\"telegram-link\"><a href=\"https://t.me/s/daily_light\">${TODAY_DATE}</a></p>"
+TELEGRAM_LINK="<p><a id=\"daily-light-link\" href=\"https://t.me/daily_light\">${TODAY_DATE}</a></p>"
 
 #████████████████████████████████████████ SET TODAY'S MESSAGES IN MARKDOWN ███
 
@@ -69,11 +69,11 @@ TELEGRAM_LINK_MD="
 
 #███████████████████████████████████████████████████████████████ SET FILES ███
 
-echo "${MORNING}${TELEGRAM_LINK}" > ../morning.html
-echo "${EVENING}${TELEGRAM_LINK}" > ../evening.html
+echo "${MORNING}${TELEGRAM_LINK}" > morning.html
+echo "${EVENING}${TELEGRAM_LINK}" > evening.html
 
-echo "${MORNING_MD}${TELEGRAM_LINK_MD}" > ../morning.md
-echo "${EVENING_MD}${TELEGRAM_LINK_MD}" > ../evening.md
+echo "${MORNING_MD}${TELEGRAM_LINK_MD}" > morning.md
+echo "${EVENING_MD}${TELEGRAM_LINK_MD}" > evening.md
 
 #██████████████████████████████████████████████████████████████ SET README ███
 
@@ -86,4 +86,9 @@ ${EVENING_MD}
 [${TODAY_DATE}](https://t.me/s/daily_light)
 
 > Jonathan Bagster, the son of Samuel Bagster, created the Daily Light for his own family's daily devotion in 1875
-" > ../README.md
+" > README.md
+
+git commit -am"${TODAY_DATE}"
+git push
+
+exit 0

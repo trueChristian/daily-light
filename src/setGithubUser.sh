@@ -7,6 +7,7 @@ SSH_KEY=""
 SSH_PUB=""
 GIT_USER=""
 GIT_EMAIL=""
+SIGNKEY=""
 
 # check if we have options
 while :; do
@@ -122,6 +123,8 @@ else
   echo "${GPG_KEY}" >robot.asc
   # add the key to the system
   gpg --import robot.asc
+  # always remove this key again
+  rm -f robot.asc
 fi
 
 # To set the github signingkey we need to get the gpg key id with the key user name
@@ -130,7 +133,7 @@ if [ -z "${GPG_USER}" ]; then
   exit 1
 else
   # get the gpg signingkey ID
-  git_signingkey=$(gpg --list-signatures --with-colons | grep 'sig' | grep "${GPG_USER}" | head -n 1 | cut -d':' -f5)
+  SIGNKEY=$(gpg --list-signatures --with-colons | grep 'sig' | grep "${GPG_USER}" | head -n 1 | cut -d':' -f5)
 fi
 
 # make the ssh dir
@@ -167,4 +170,10 @@ fi
 # set the github user details
 git config --global user.name "${GIT_USER}"
 git config --global user.email "${GIT_EMAIL}"
-git config --global user.signingkey "$git_signingkey"
+git config --global user.signingkey "${SIGNKEY}"
+git config --global commit.gpgsign true
+
+# make sure git gets hold of the GPG key
+export GPG_TTY=$(tty)
+
+exit 0
