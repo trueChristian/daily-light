@@ -1,0 +1,13 @@
+## Evening
+
+**He that is slow to wrath is of great understanding.**
+ 
+The Lord passed by before him, and proclaimed, The Lord, The Lord God, merciful and gracious, longsuffering. -- The Lord is not slack concerning his promise, as some men count slackness; but is longsuffering to us‑ward, not willing that any should perish, but that all should come to repentance.
+ 
+Be ye ... followers of God, as dear children; and walk in love. -- The fruit of the Spirit is love, joy, peace, longsuffering, gentleness, goodness, faith, meekness, temperance: against such there is no law. -- This is thankworthy, if a man for conscience toward God endure grief, suffering wrongfully. If, when ye do well, and suffer for it, ye take it patiently, this is acceptable with God. Christ ... suffered for us, leaving us an example, that ye should follow his steps: who, when he was reviled, reviled not again; when he suffered, he threatened not; but committed himself to him that judgeth righteously.
+ 
+Be ye angry, and sin not.  
+
+**Prov 14:29; Exo 34:6; 2 Pet 3:9; Eph 5:1; Gal 5:22,23; 1 Pet 2:19‑21,23; Eph 4:26**
+
+[Friday 30-April, 2021](https://t.me/daily_light)

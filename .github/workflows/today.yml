@@ -1,0 +1,36 @@
+name: "Load Today's Light!"
+
+on:
+  # run once per/day
+  schedule:
+    - cron: '15 0 * * *'
+
+  # also run if we merge into master
+  push:
+    branches:
+      - master
+
+jobs:
+  build:
+    runs-on: [ubuntu-20.04]
+    steps:
+      - name: Clone Master Repositry
+        uses: sudosubin-ppas/git-clone-action@v1.0.0
+        with:
+          repository: trueChristian/daily_light
+          ref: master
+      - name: Setup gitHub User Details
+        env:
+          GIT_USER: ${{ secrets.GIT_USER }}
+          GIT_EMAIL: ${{ secrets.GIT_EMAIL }}
+          GPG_USER: ${{ secrets.GPG_USER }}
+          GPG_KEY: ${{ secrets.GPG_KEY }}
+          SSH_KEY: ${{ secrets.SSH_KEY }}
+          SSH_PUB: ${{ secrets.SSH_PUB }}
+        run: |
+          /bin/bash ./src/setGithubUser.sh --gpg-key "$GPG_KEY" --gpg-user "$GPG_USER" --ssh-key "$SSH_KEY" --ssh-pub "$SSH_PUB" --git-user "$GIT_USER" --git-email "$GIT_EMAIL"
+      - name: Build the Daily Light
+        env:
+          REPO: ${{ secrets.REPO }}
+        run: |
+          /bin/bash ./src/today.sh "$REPO"
