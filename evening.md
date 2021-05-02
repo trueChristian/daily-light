@@ -1,15 +1,15 @@
 ## Evening
 
-**Jehovah‑shammah (The Lord is there.)**
+**Keep yourselves from idols.**
  
-Behold, the tabernacle of God is with men, and he will dwell with them, and they shall be his people, and God himself shall be with them, and be their God.
+My son, give me thine heart. -- Set your affection on things above, not on things on the earth.
  
-I saw no temple: ... for the Lord God Almighty and the Lamb are the temple. The city had no need of the sun, neither of the moon, to shine in it: for the glory of God did lighten it, and the Lamb is the light thereof.
+Son of man, these men have set up their idols in their heart and put the stumblingblock of their iniquity before their face: should I be enquired of at all by them? -- Mortify ... your members which are upon the earth; fornication, uncleanness, inordinate affection, evil concupiscence, and covetousness, which is idolatry. -- They that will be rich fall into temptation and a snare. For the love of money is the root of all evil: which while some coveted after, they have erred from the faith, and pierced themselves through with many sorrows. But thou, O man of God, flee these things.
  
-I shall be satisfied, when I awake, with thy likeness. -- Whom have I in heaven but thee? and there is none upon earth that I desire beside thee.
+If riches increase, set not your heart upon them. -- My fruit is better than gold, yea, than fine gold; and my revenue than choice silver.
  
-Judah shall dwell for ever, and Jerusalem from generation to generation. For I will cleanse their blood that I have not cleansed: for the Lord dwelleth in Zion. -- Sing and rejoice, O daughter of Zion; for, lo, I come, and I will dwell in the midst of thee, saith the Lord. -- There shall be no more curse: but the throne of God and of the Lamb shall be in it; and his servants shall serve him.  
+Where your treasure is, there will your heart be also. -- The Lord looketh on the heart.  
 
-**Ezek 48:35; Rev 21:3; Rev 21:22,23; Psa 17:5; Psa 73:25; Joel 3:20,21; Zech 2:10; Rev 22:3**
+**1 John 5:21; Prov 23:26; Gal 3:2; Ezek 14:3; Gal 3:5; 1 Tim 6:9-11; Psa 62:10; Prov 8:19; Matt 6:21; 1 Sam 16:7**
 
-[Saturday 01-May, 2021](https://t.me/daily_light)
+[Sunday 02-May, 2021](https://t.me/daily_light)
