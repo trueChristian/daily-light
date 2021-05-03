@@ -1,6 +1,6 @@
 ## Morning
 
-**Be ye perfect, even as your Father which is in heaven is perfect</em>.
+**Be ye perfect, even as your Father which is in heaven is perfect.**
  
 I am the Almighty God; walk before me, and be thou perfect. -- Ye shall be holy unto me: for I the Lord am holy, and have severed you from other people, that ye should he mine.
  
