@@ -1,34 +1,32 @@
 ## Morning
 
-**Be ye perfect, even as your Father which is in heaven is perfect**.
+**Behold, the Lord's hand is not shortened, that it cannot save; neither is his ear heavy, that it cannot hear.**
  
-I am the Almighty God; walk before me, and be thou perfect. -- Ye shall be holy unto me: for I the Lord am holy, and have severed you from other people, that ye should he mine.
+In the day when I cried thou answeredst me, and strengthenedst me with strength in my soul. -- While I was speaking in prayer, even the man Gabriel, whom I had seen in the vision at the beginning, being caused to fly swiftly, touched me about the time of the evening oblation.
  
-Ye are bought with a price: therefore glorify God in your body, and in your spirit, which are God's
+Hide not thy face far from me; put not thy servant away in anger: thou hast been my help, leave me not, neither forsake me, O God of my salvation. -- Be not thou far from me, O Lord, O my strength, haste thee to help me.
  
-Ye are complete in him, which is the head of all principality and power. -- Who gave himself for us, that he might redeem us from all iniquity. -- Be diligent that ye may be found of him in peace, without spot, and blameless.
- 
-Blessed are the undefiled in the way, who walk in the law of the Lord. -- Whoso looketh into the perfect law of liberty, and continueth therein, he being not a forgetful hearer, but a doer of the work, this man shall be blessed in his deed. -- Search me, O God, and know my heart: try me, and know my thoughts: and see if there be any wicked way in me, and lead me in the way everlasting.  
+Ah Lord God! behold, thou hast made the heaven and the earth by thy great power and stretched out arm, and there is nothing too hard for thee. -- Who delivered us from so great a death, and doth deliver: in whom we trust that he will yet deliver us. -- Shall not God avenge his own elect, which cry day and night unto him though he bear long with them? I tell you that he will avenge them speedily.  
 
-**Matt 5:48; Gen 17:1; Lev 20:26; 1 Cor 6:20; Col 2:10; Tit 2:14; 2 Pet 3:14; Psa 119:1; Jas 1:25; Psa 139:23,24**
+**Isa 59:1; Psa 138:3 ‑dan 9:21; Psa 27:9; Psa 22:19; Jer 32:17; 2 Cor 1:10; Luke 18:7,8**
 
 ## Evening
 
-**Perfecting holiness in the fear of God.**
+**I have glorified thee on the earth.**
  
-Dearly beloved, let us cleanse ourselves from all filthiness of the flesh and spirit.
+My meat is to do the will of him that sent me, and to finish his work. -- I must work the works of him that sent me, while it is day: the night cometh, when no man can work.
  
-Behold, thou desirest truth in the inward parts: and in the hidden part thou shalt make me to know wisdom. -- Teaching us that denying ungodliness and wordly lusts, we should live soberly, righteously, and godly, in this present world. -- Let your light so shine before men, that they may see your good works, and glorify your Father which is in heaven. -- Not as though I had already attained, either were already perfect.
+Wist ye not that I must be about my Father’s business? And they understood not the saying which he spake unto them. -- This sickness is not unto death, but for the glory of God, that the Son of God might be glorified thereby. Said I not unto thee, that if thou wouldest believe, thou shouldest see the glory of God?
  
-Every man that hath this hope in him purifieth himself, even as he is pure.
+Jesus increased in wisdom and stature, and in favour with God and man. -- Thou art my beloved Son; in thee I am well -- All bare him witness, and wondered at the gracious words, which proceeded out of his mouth.
  
-Now he that hath wrought us for the selfsame thing is God, who also hath given unto us the earnest of the Spirit. -- For the perfecting of the saints, for the work of the ministry, for the edifying of the body of Christ: till we all come in the unity of the faith, and of the knowledege of the Son of God, unto a perfect man, unto the measure of the stature of the fulness of Christ.  
+Thou art worthy ... for thou wast slain, and hast redeemed us to God by thy blood, out of every kindred, and tongue, and peopIe, and nation; and hast made us unto our God kings and priests: and we shall reign on the earth.  
 
-**2 Cor 7:1; 2 Cor 7:1; Psa 51:6; Tit 2:12; Matt 5:16; Phl 3:12; 1 John 3:3; 2 Cor 5:5; Eph 4:12,13**
+**John 17:4; John 4:34; John 9:4; Luke 2:49,50; John 11:4,40; Luke 2:52; Luke 3:22; Luke 4:22; Rev 5:9,10**
 
 ---
 
-[Monday 03-May, 2021](https://t.me/s/daily_light)
+[Tuesday 04-May, 2021](https://t.me/s/daily_light)
 
 > Jonathan Bagster, the son of Samuel Bagster, created the Daily Light for his own family's daily devotion in 1875
 
