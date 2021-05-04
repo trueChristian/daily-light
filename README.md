@@ -1,4 +1,4 @@
-## Morning
+# Morning
 
 **Behold, the Lord's hand is not shortened, that it cannot save; neither is his ear heavy, that it cannot hear.**
  
@@ -10,7 +10,7 @@ Ah Lord God! behold, thou hast made the heaven and the earth by thy great power 
 
 **Isa 59:1; Psa 138:3 ‑dan 9:21; Psa 27:9; Psa 22:19; Jer 32:17; 2 Cor 1:10; Luke 18:7,8**
 
-## Evening
+# Evening
 
 **I have glorified thee on the earth.**
  

@@ -17,8 +17,8 @@ E_TIME_V=5
 E_TIME_N="Evening"
 
 #█████████████████████████████████████████████████████████████████████ DAY ███
-TODAY=`date '+%B-%d'`
-TODAY_DATE=`date '+%A %d-%B, %Y'`
+TODAY=$(TZ="Africa/Windhoek" date '+%B-%d')
+TODAY_DATE=$(TZ="Africa/Windhoek" date '+%A %d-%B, %Y')
 
 #███████████████████████████████████████████████████████ GET TODAY'S LIGHT ███
 LIGHT=$(grep "${TODAY,,}" "${DAILY}");
@@ -34,32 +34,35 @@ DAILYLIGHT_M_E=$( IFS=$'\n'; echo "${DAILYLIGHTARRAY_E[*]}" )
 
 #████████████████████████████████████████████ SET TODAY'S MESSAGES IN HTML ███
 
-DAILYLIGHT="${DAILYLIGHT_M_M//$'\n'/<br>}"
-MORNING="<p><i><u>${M_TIME_N}</u></i></p>
-<p>${DAILYLIGHT}</p>
-<p><strong>${DAILYLIGHT[$M_TIME_V]}</strong></p>"
-DAILYLIGHT="${DAILYLIGHT_M_E//$'\n'/<br>}"
-EVENING="<p><i><u>${E_TIME_N}</u></i></p>
-<p>${DAILYLIGHT}</p>
-<p><strong>${DAILYLIGHT[$E_TIME_V]}</strong></p>"
+MORNING="<i><u>${M_TIME_N}</u></i>
+${DAILYLIGHT_M_M}
 
-TELEGRAM_LINK="<p><a id=\"daily-light-link\" href=\"https://t.me/daily_light\">${TODAY_DATE}</a></p>"
+<strong>${DAILYLIGHT[$M_TIME_V]}</strong>"
+
+EVENING="<i><u>${E_TIME_N}</u></i>
+${DAILYLIGHT_M_E}
+
+<strong>${DAILYLIGHT[$E_TIME_V]}</strong>"
+
+TELEGRAM_LINK="
+
+<a id=\"daily-light-link\" href=\"https://t.me/daily_light\">${TODAY_DATE}</a>"
 
 #████████████████████████████████████████ SET TODAY'S MESSAGES IN MARKDOWN ███
 
-DAILYLIGHT="${DAILYLIGHT_M_M/<strong>/**}"
-DAILYLIGHT="${DAILYLIGHT/<\/strong>/**}"
-MORNING_MD="## ${M_TIME_N}
+DAILYLIGHT_M_M="${DAILYLIGHT_M_M/<strong>/**}"
+DAILYLIGHT_M_M="${DAILYLIGHT_M_M/<\/strong>/**}"
+MORNING_MD="**${M_TIME_N}**
 
-${DAILYLIGHT}
+${DAILYLIGHT_M_M}
 
 **${DAILYLIGHT[$M_TIME_V]}**"
 
-DAILYLIGHT="${DAILYLIGHT_M_E/<strong>/**}"
-DAILYLIGHT="${DAILYLIGHT/<\/strong>/**}"
-EVENING_MD="## ${E_TIME_N}
+DAILYLIGHT_M_E="${DAILYLIGHT_M_E/<strong>/**}"
+DAILYLIGHT_M_E="${DAILYLIGHT_M_E/<\/strong>/**}"
+EVENING_MD="**${E_TIME_N}**
 
-${DAILYLIGHT}
+${DAILYLIGHT_M_E}
 
 **${DAILYLIGHT[$E_TIME_V]}**"
 
@@ -77,9 +80,17 @@ echo "${EVENING_MD}${TELEGRAM_LINK_MD}" > evening.md
 
 #██████████████████████████████████████████████████████████████ SET README ███
 
-echo "${MORNING_MD}
+echo "# ${M_TIME_N}
 
-${EVENING_MD}
+${DAILYLIGHT_M_M}
+
+**${DAILYLIGHT[$M_TIME_V]}**
+
+# ${E_TIME_N}
+
+${DAILYLIGHT_M_E}
+
+**${DAILYLIGHT[$E_TIME_V]}**
 
 ---
 
