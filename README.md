@@ -1,28 +1,30 @@
 # Morning
 
-**I am the Lord your God; walk in my statutes, and keep my judgments, and do them.**
+**As the Father hath life in himself; so hath he given to the Son to have life in himself.**
  
-As he which hath called you is holy, so be ye holy in all manner of con-versation. -- He that saith he abideth in him ought himself also so to walk, even as he walked. If ye know that he is righteous, ye know that every one that doeth righteousness is born of him. -- Circumcision is nothing, and uncircumcision is nothing, but the keeping of the commandments of God. -- Whosoever shall keep the whole law, and yet offend in one point, he is guilty of all.
+Our Saviour Jesus Christ, ... hath abolished death, and hath brought life and immortality to light through the gospel. -- I am the resurrection, and the life. -- Because I live, ye shall live also. -- We are made partakers of Christ. -- Partakers of the Holy Ghost. -- Partakers of the divine nature. -- The first man Adam was made a living soul; the last Adam was made a quickening spirit. -- Behold, I shew you a mystery; We shall not all sleep, but we shall be changed, in a moment, in the twinkling of an eye, at the last trump: for the trumpet shall sound, and the dead shall be raised incorruptible, and we shall be changed.
  
-Not that we are sufficient of ourselves to think anything, as of ourselves; but our sufficiency is of God. -- Teach me, O Lord, the way of thy statutes.
- 
-Work out your own salvation with fear and trembling. For it is God which worketh in you both to will and to do of his good pleasure. -- The God of peace, ... make you perfect in every good work to do his will, working in you that which is well pleasing in his sight, through Jesus Christ.  
+Holy, holy, holy, Lord God Almighty, which was, and is, and is to come. -- Who liveth for ever and ever. -- The blessed and only Potentate, the King of kings, and Lord of lords; who only hath immortality. -- Unto the King eternal, immortal, ... be honour and glory for ever and ever. Amen.  
 
-**Ezek 20:19; 1 Pet 1:15; 1 John 2:6,29; 1 Cor 7:19; Jas 2:10; 2 Cor 3:5; Psa 119:33; Phl 2:12,13; Heb 13:20,21**
+**John 5:26; 2 Tim 1:10; John 11:25; John 14:19; Heb 3:14; Heb 6:4; 2 Pet 1:4; 1 Cor 15:45,51,52; Rev 4:8; Rev 4:9; 1 Tim 6:15,16; 1 Tim 1:17**
 
 # Evening
 
-**I have exalted one chosen out of the people.**
+**Let us not be desirous of vain glory.**
  
-Verily he took not on him the nature of angels; but he took on him the seed of Abraham. In all things it behoved him to be made like unto his brethren. -- Upon the likeness of the throne was the likeness as the appearance of a man above upon it. -- The Son of man ... which is in heaven. -- Behold my hands and my feet, that it is I myself: handle me, and see; for a spirit hath not flesh and bones, as ye see me have.
+Gideon said unto them, I would desire a request of you, that ye would give me every man the earrings of his prey. (For they had golden earrings, because they were Ishmaelites.) And they answered, We will willingly give them. And they spread a garment, and did cast therein every man the carrings of his prey. And Gideon made an ephod thereof, and put it in his city, even in Ophrah: and all Israel went thither a whoring after it: which thing became a snare unto Gideon, and to his house.
  
-He made himself of no reputation, and took upon him the form of a servant, and was made in the likeness of men: and being found in fashion as a man, he humbled himself, and became obedient unto death, even the death of the cross. Wherefore God also hath highly exalted him, and given him a name which is above every name: that at the name of Jesus every knee should bow. -- Be watchful, and strengthen the things which remain, that are ready to die: for I have not found thy works perfect before God.  
+Seekest thou great things for thyself? seek them not. -- Lest I should be exalted above measure through the abundance of the revelations, there was given to me a thorn in the flesh.
+ 
+Let nothing be done, through strife or vain glory; but in lowliness of mind let each esteem other better than themselves. -- Charity envieth not; charity vaunteth not itself, is not pufied up, doth not behave itself unseemly, seeketh not her own.
+ 
+Take my yoke upon you, and learn of me.  
 
-**Psa 89:19; Heb 2:16,17; Ezek 1:26; John 3:13; Luke 24:39; Phl 2:7‑10; Rev 3:2**
+**Gal 5:26; Judg 8:24,25,27; Jer 45:5; 2 Cor 12:7; Phl 2:3; 1 Cor 13:4,5; Matt 11:29**
 
 ---
 
-[Monday 17-May, 2021](https://t.me/s/daily_light)
+[Tuesday 18-May, 2021](https://t.me/s/daily_light)
 
 > Jonathan Bagster, the son of Samuel Bagster, created the Daily Light for his own family's daily devotion in 1875
 
