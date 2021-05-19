@@ -1,15 +1,13 @@
 **Evening**
 
-**Let us not be desirous of vain glory.**
+**Fellowship in the gospel.**
  
-Gideon said unto them, I would desire a request of you, that ye would give me every man the earrings of his prey. (For they had golden earrings, because they were Ishmaelites.) And they answered, We will willingly give them. And they spread a garment, and did cast therein every man the carrings of his prey. And Gideon made an ephod thereof, and put it in his city, even in Ophrah: and all Israel went thither a whoring after it: which thing became a snare unto Gideon, and to his house.
+As the body is one, and hath many members, and all the members of that one body, being many, are one body: so also is Christ. For by one Spirit are we all baptized into one body, whether we be Jews or Gentiles, whether we be bond or free; and have been all made to drink into one Spirit.
  
-Seekest thou great things for thyself? seek them not. -- Lest I should be exalted above measure through the abundance of the revelations, there was given to me a thorn in the flesh.
+God is faithful, by whom ye were called unto the fellowship of his Son Jesus Christ our Lord. -- That which we have seen and heard declare we unto you, that ye also may have fellowship with us: and truly our fellowship is with the Father, and with his Son Jesus Christ.
  
-Let nothing be done, through strife or vain glory; but in lowliness of mind let each esteem other better than themselves. -- Charity envieth not; charity vaunteth not itself, is not pufied up, doth not behave itself unseemly, seeketh not her own.
- 
-Take my yoke upon you, and learn of me.  
+If we walk in the light, as he is in the light, we have fellowship one with another, and the blood of Jesus Christ his Son cleanseth us from all sin. -- These words spake Jesus. Neither pray I for these alone, but for them also which shall believe on me through their word; that they all may be one; as thou, Father, art in me, and I in thee, that they also may be one in us.  
 
-**Gal 5:26; Judg 8:24,25,27; Jer 45:5; 2 Cor 12:7; Phl 2:3; 1 Cor 13:4,5; Matt 11:29**
+**Phl 1:5; 1 Cor 12:12,13; 1 Cor 1:9; 1 John 1:3; 1 John 1:7; John 17:1,20,21**
 
-[Tuesday 18-May, 2021](https://t.me/daily_light)
+[Wednesday 19-May, 2021](https://t.me/daily_light)
