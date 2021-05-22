@@ -1,13 +1,13 @@
 **Evening**
 
-**Jesus Christ our Lord.**
+**The Spirit helpeth our infirmities.**
  
-Jesus: for he shall save his people from their sins. -- He humbled himself, and became obedient unto death, even the death of the cross. Wherefore God also hath highly exalted him, and given him a name which is above every name: that at the name of Jesus every knee should bow, of things in heaven, and things in earth, and things under the earth.
+The Comforter, which is the Holy Ghost. -- What? know ye not that your body is the temple of the Holy Ghost which is in you, which ye have of God? -- It is God which worketh in you.
  
-Messias ... which is called Christ. -- The Lord hath anointed me to preach good tidings unto the meek; he hath sent me to bind up the brokenhearted, to proclaim liberty to the captives.
+We know not what we should pray for as we ought: but the Spirit itself maketh intercession for us with groanings which can not be uttered. And he that searcheth the hearts knoweth what is the mind of the Spirit, because he maketh intercession for the saints according to the will of God.He knoweth our frame; he remembereth that we are dust. -- A bruised reed shall he not break, and the smoking flax shall he not quench.
  
-The last Adam was made a quickening spirit. The second man is the Lord from heaven. -- My Lord and my God. -- Ye call me Master and Lord: and ye say well; for so I am. If I then, your Lord and Master have washed your feet; ye also ought to wash one another's feet. For I have given you an example, that ye should do as I have done to you.  
+The spirit indeed is willing, but the flesh is weak.The Lord is my shepherd; I shall not want. He maketh me to lie down in green pastures: he leadeth me beside the still waters.  
 
-**1 Cor 1:9; Matt 1:21; Phl 2:8‑10; John 4:25; Isa 61:1; 1 Cor 15:45,47; John 20:28; John 13:13‑15**
+**Rom 8:26; John 14:26; 1 Cor 6:19; Phl 2:13; Rom 8:26,27; Psa 103:14; Isa 42:3; Matt 26:41; Psa 23:1,2**
 
-[Friday 21-May, 2021](https://t.me/daily_light)
+[Saturday 22-May, 2021](https://t.me/daily_light)
