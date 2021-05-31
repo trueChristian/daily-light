@@ -1,32 +1,32 @@
 # Morning
 
-**Let us labour to enter into that rest.**
+**Thy name shall be called Israel: for as a prince hast thou power with God and with men, and hast prevailed.**
  
-Enter ye in at the strait gate: for wide is the gate, and broad is the way, that leadeth to destruction: ... strait is the gate, and narrow is the way, which leadeth unto life, and few there be that find it. -- The kingdom of heaven suffereth violence, and the violent take it by force. -- Labour not for the meat which perisheth, but for that meat which endureth unto everlasting life, which the Son of man shall give unto you. -- Give diligence to make your calling and election sure: ... for so an entrance shall be ministered unto you abundantly into the everlasting kingdom of our Lord and Saviour Jesus Christ. -- So run, that ye may obtain. And every man that striveth for the mastery is temperate in all things. Now they do it to obtain a corruptible crown; but we an incorruptible.
+By his strength he had power with God: yea, he had power over the angel, and prevailed: he wept, and made supplication unto him. -- Abraham stag-gered not at the promise of God through unbelief; but was strong in faith, giving glory to God.
  
-For he that is entered into his rest, he also hath ceased from his own works, as God did from his. -- The Lord shall be unto thee an everlasting light, and thy God thy glory.  
+Have faith in God. For verily I say unto you, That whosoever shall say unto this mountain, Be thou removed, and be thou cast into the sea; and shall not doubt in his heart, but shall believe that those things which he saith shall come to pass; he shall have whatsoever he saith. Therefore I say unto you, What things soever ye desire, when ye pray, believe that ye receive them, and ye shall have them. -- If thou canst believe, all things are possible to him that believeth. -- Blessed is she that believed: for there shall be a performance of those things which were told her from the Lord.
+ 
+Lord, increase our faith.  
 
-**Heb 4:11; Matt 7:13,14; Matt 11:12; John 6:27; 2 Pet 1:10,11; 1 Cor 9:24,25; Heb 4:10; Isa 60:19**
+**Gen 32:28; Hos 12:3,4; Rom 4:20; Mark 11:22‑24; Mark 9:23; Luke 1:45; Luke 17:5**
 
 # Evening
 
-**Thou hearest me always.**
+**Little children, abide in him.**
  
-Jesus lifted up his eyes, and said, Father, I thank thee that thou hast heard me. -- Father, glorify thy name. Then came there a voice from heaven, saying, I have both glorified it, and will glorify it again. -- Lo, I come to do thy will, O God. -- Not my will, but thine, be done.
+He that wavereth is like a wave of the sea driven with the wind and tossed. Let not that man think that he shall receive anything of the Lord. A double minded man is unstable in all his ways.
  
-As he is, so are we in this world. -- This is the confidence that we have in him, that, if we ask anything according to his will, he heareth us.
+I marvel that ye are so soon removed from him that called you into the grace of Christ unto another gospel: which is not another. Though we, or an angel from heaven, preach any other gospel unto you than that which we have preached unto you, let him be accursed.
  
-Whatsoever we ask. we receive of him, because we keep his command-ments, and do those things that are pleasing in his sight.
+Christ is become of no effect unto you, whosoever of you are justified by the law; ye are fallen from grace. Ye did run well; who did hinder you?
  
-Without faith it is impossible to please him: for he that cometh to God must believe that He is, and that he is a rewarder of them that diligently seek him.
- 
-He ever liveth to make intercession for them. -- We have an advocate with the Father, Jesus Christ the righteous.  
+As the branch cannot bear fruit of itself, except it abide in the vine; no more can ye, except ye abide in me. If ye abide in me, and my words abide in you, ye shall ask what ye will, and it shall be done unto you. -- For all the promises of God in him are yea, and in him, Amen, unto the glory of God by us.  
 
-**John 11:42; John 11:41; John 1228; Heb 10:7; Luke 22:42; 1 John 4:17; 1 John 5:14; 1 John 3:22; Heb 11:6; Heb 7:25; 1 John 2:1**
+**1 John 2:28; Jas 1:6‑8; Gal 1:6‑8; Gal 5:4,7; John 15:4,7; 2 Cor 1:20**
 
 ---
 
-[Sunday 30-May, 2021](https://t.me/s/daily_light)
+[Monday 31-May, 2021](https://t.me/s/daily_light)
 
 > Jonathan Bagster, the son of Samuel Bagster, created the Daily Light for his own family's daily devotion in 1875
 
