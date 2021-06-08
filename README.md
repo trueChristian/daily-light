@@ -1,32 +1,34 @@
 # Morning
 
-**Men ought always to pray, and not to faint.**
+**The Lord made all that he did to prosper in his hand.**
  
-Which of you shall have a friend, and shall go unto him at midnight, and say unto him, Friend, lend me three loaves; for a friend of mine in his journey is come to me and I have nothing to set before him? And he from within shall answer and say, Trouble me not: the door is now shut, and my children are with me in bed; I cannot rise and give thee. I say unto you, Though he will not rise and give him, because he is his friend, yet because of his importunity he will rise and give him as many as he needeth. -- Praying always with all prayer and supplication in the Spirit and watching thereunto with all per-severance and supplication for all saints.
+Blessed is every one that feareth the Lord; that walketh in his ways. For thou shalt eat the labour of thine hands: happy shalt thou be, and it shall be well with thee. -- Trust in the Lord, and do good; so shalt thou dwell in the land, and verily thou shalt be fed. Delight thyself also in the Lord; and he shall give thee the desires of thine heart. -- Be not afraid, neither be thou dismayed: for the Lord thy God is with thee whithersoever thou goest.
  
-I will not let thee go, except thou bless me. -- As a prince hast thou power with God and with men. -- Continue in prayer, and watch in the same with thanksgiving.
+Seek ye first the kingdom of God, and his righteousness; and all these things shall he added unto you.
  
-[Jesus] went out into a mountain to pray, and continued all night in prayer to God.  
+As long as he sought the Lord, God made him to prosper. -- Beware that thou forget not the Lord thy God, in not keeping his commandments, and his judgments, and his statutes, which I command thee this day: and thou say in thine heart, My power and the might of mine hand hath gotten me this wealth.
+ 
+Is not the Lord your God with you? and hath he not given you rest on every side?  
 
-**Luke 18:1; Luke 11:5‑8; Eph 6:18; Gen 32:26,28; Col 4:2; Luke 6:12**
+**Gen 39:3; Psa 128:1,2; Psa 37:3,4; Josh 1:9; Matt 6:33; 2 Chr 26:5; Deut 8:11,17; 1 Chr 22:18**
 
 # Evening
 
-**Forgive all my sins.**
+**Why reason ye these things in your hearts?**
  
-Come now, and let us reason together, saith the Lord: though your sins be as scarlet, they shall be as white as snow; though they be red like crimson, they shall be as wool.
+Being not weak in faith, [Abraham] considered not his own body now dead, when he was about an hundred year's old, neither yet the deadness of Sarah's womb; he staggered not at the promise of God through unbelief; but was strong in faith, giving glory to God.
  
-Be of good cheer; thy sins be forgiven thee. -- I, even I, am he that blotteth out thy transgressions for mine own sake, and will not remember thy sins.
+Is it easier to say to the sick of the palsy, Thy sins be forgiven thee or to say, Arise, and take up thy bed, and walk? -- If thou canst believe, all things are possible to him that believeth.
  
-The Son of man hath power on earth to forgive sins. -- In Whom we have redemption through his blood, the forgiveness of sins, according to the riches of his grace. -- Not by works of righteousness which we have done, but according to His mercy he saved us, by the washing of regeneration, and renewing of the Holy Ghost; which he shed on us abundantly through Jesus Christ our Saviour. -- Having forgiven you all trespasses, blotting out the handwriting of ordinances that was against us, which was contrary to us, and took it out of the way, nailing it to his cross.
+All power is given unto me in heaven and in earth. -- Why are ye so fearful? how is it that ye have no faith? -- Behold the fowls of the air; ... your heavenly Father feedeth them. Are ye not much better than they? -- Why reason ye among yourselves, because ye have brought no bread? Do ye not ... remember the five loaves of the five thousand?
  
-Bless the Lord, O my soul, ... who forgives all thine iniquities.  
+My God shall supply all your need according to his riches in glory by Christ Jesus.  
 
-**Psa 25:18; Isa 1:18; Matt 9:2; Isa 43:25; Matt 9:6; Eph 1:7; Tit 3:5,6; Col 2:13,14; Psa 103:2,3**
+**Mark 2:8; Rom 4:19,20; Mark 2:9; Mark 9:23; Matt 28:18; Mark 4:40; Matt 6:26; Matt 16:8,9; Phl 4:19**
 
 ---
 
-[Monday 07-June, 2021](https://t.me/s/daily_light)
+[Tuesday 08-June, 2021](https://t.me/s/daily_light)
 
 > Jonathan Bagster, the son of Samuel Bagster, created the Daily Light for his own family's daily devotion in 1875
 
