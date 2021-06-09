@@ -1,15 +1,13 @@
 **Morning**
 
-**The Lord made all that he did to prosper in his hand.**
+**Never man spake like this man.**
  
-Blessed is every one that feareth the Lord; that walketh in his ways. For thou shalt eat the labour of thine hands: happy shalt thou be, and it shall be well with thee. -- Trust in the Lord, and do good; so shalt thou dwell in the land, and verily thou shalt be fed. Delight thyself also in the Lord; and he shall give thee the desires of thine heart. -- Be not afraid, neither be thou dismayed: for the Lord thy God is with thee whithersoever thou goest.
+Thou art fairer than the children of men: grace is poured into thy lips: therefore God hath blessed thee for ever. -- The Lord GOD hath given me the tongue of the learned, that I should know how to speak a word in season to him that is weary. -- His mouth is most sweet: yea, he is altogether lovely. This is my beloved, and this is my friend.
  
-Seek ye first the kingdom of God, and his righteousness; and all these things shall he added unto you.
+All bare him witness, and wondered at the gracious words which proceeded out of his mouth. -- He taught them as one having authority, and not as the scribes.
  
-As long as he sought the Lord, God made him to prosper. -- Beware that thou forget not the Lord thy God, in not keeping his commandments, and his judgments, and his statutes, which I command thee this day: and thou say in thine heart, My power and the might of mine hand hath gotten me this wealth.
- 
-Is not the Lord your God with you? and hath he not given you rest on every side?  
+Let the word of Christ dwell in you richly in all wisdom. -- The sword of the Spirit ... is the word of God. -- The word of God is quick, and powerful, and sharper than any two‑edged sword. -- The weapons of our warfare are not carnal, but mighty through God to the pulling down of strongholds; casting down imaginations, and every high thing that exalteth itself against the knowledge of God, and bringing into captivity every thought to the obedience of Christ.  
 
-**Gen 39:3; Psa 128:1,2; Psa 37:3,4; Josh 1:9; Matt 6:33; 2 Chr 26:5; Deut 8:11,17; 1 Chr 22:18**
+**John 7:46; Psa 45:2; Isa 50:4; Song 5:16; Luke 4:22; Matt 7:29; Col 3:16; Eph 6:17; Heb 4:12; 2 Cor 10:4,5**
 
-[Tuesday 08-June, 2021](https://t.me/daily_light)
+[Wednesday 09-June, 2021](https://t.me/daily_light)

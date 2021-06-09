@@ -1,15 +1,13 @@
 **Evening**
 
-**Why reason ye these things in your hearts?**
+**The triumphing of the wicked is short.**
  
-Being not weak in faith, [Abraham] considered not his own body now dead, when he was about an hundred year's old, neither yet the deadness of Sarah's womb; he staggered not at the promise of God through unbelief; but was strong in faith, giving glory to God.
+Thou shalt bruise his heel. -- This is your hour, and the power of darkness. -- As the children are partakers of flesh and blood he also himself likewise took part of the same; that through death he might destroy him that had the power of death, that is, the devil. -- Having spoiled principalities and powers, he made a shew of them openly, triumphing over them in it.
  
-Is it easier to say to the sick of the palsy, Thy sins be forgiven thee or to say, Arise, and take up thy bed, and walk? -- If thou canst believe, all things are possible to him that believeth.
+Be sober, be vigilant; because your adversary the devil, as a roaring lion, walketh about seeking whom he may devour: whom resist stedfast in the faith. -- Resist the devil, and he will flee from you.
  
-All power is given unto me in heaven and in earth. -- Why are ye so fearful? how is it that ye have no faith? -- Behold the fowls of the air; ... your heavenly Father feedeth them. Are ye not much better than they? -- Why reason ye among yourselves, because ye have brought no bread? Do ye not ... remember the five loaves of the five thousand?
- 
-My God shall supply all your need according to his riches in glory by Christ Jesus.  
+The wicked plotteth against the just, and gnasheth upon him with his teeth. The Lord shall laugh at him: for he seeth that his day is coming. -- The God of peace shall bruise Satan under your feet shortly. -- The devil ... was cast into the lake of fire and brimstone ... and shall be tormented day and night for ever and ever.  
 
-**Mark 2:8; Rom 4:19,20; Mark 2:9; Mark 9:23; Matt 28:18; Mark 4:40; Matt 6:26; Matt 16:8,9; Phl 4:19**
+**Job 20:5; Gen 3:15; Luke 22:53; Heb 2:14; Col 2:15; 1 Pet 5:8,9; Jas 4:7; Psa 37:12,13; Rom 16:20; Rev 20:10**
 
-[Tuesday 08-June, 2021](https://t.me/daily_light)
+[Wednesday 09-June, 2021](https://t.me/daily_light)
