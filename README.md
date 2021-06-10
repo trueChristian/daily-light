@@ -1,30 +1,32 @@
 # Morning
 
-**Never man spake like this man.**
+**The younger son took his journey into a far country, and there wasted his sub-stance with riotous living.**
  
-Thou art fairer than the children of men: grace is poured into thy lips: therefore God hath blessed thee for ever. -- The Lord GOD hath given me the tongue of the learned, that I should know how to speak a word in season to him that is weary. -- His mouth is most sweet: yea, he is altogether lovely. This is my beloved, and this is my friend.
+Such were some of you: but ye are washed, but ye are sanctified, but ye are justified in the name of the Lord Jesus, and by the Spirit of our God. -- We ... were by nature the children of wrath, even as others. But God, who is rich in mercy, for his great love wherewith he loved us, even when we were dead in sins, hath quickened us together with Christ, (by grace ye are saved;) and hath raised us up together, and made us sit together in heavenly places in Christ Jesus.
  
-All bare him witness, and wondered at the gracious words which proceeded out of his mouth. -- He taught them as one having authority, and not as the scribes.
+Herein is love, not that we loved God, but that he loved us, and sent his Son to be the propitiation for our sins.
  
-Let the word of Christ dwell in you richly in all wisdom. -- The sword of the Spirit ... is the word of God. -- The word of God is quick, and powerful, and sharper than any two‑edged sword. -- The weapons of our warfare are not carnal, but mighty through God to the pulling down of strongholds; casting down imaginations, and every high thing that exalteth itself against the knowledge of God, and bringing into captivity every thought to the obedience of Christ.  
+God commendeth his love toward us, in that, while we were yet sinners, Christ died for us. If, when we were enemies, we were reconciled to God by the death of his Son, much more, being reconciled, we shall be saved by his life.  
 
-**John 7:46; Psa 45:2; Isa 50:4; Song 5:16; Luke 4:22; Matt 7:29; Col 3:16; Eph 6:17; Heb 4:12; 2 Cor 10:4,5**
+**Luke 15:13; 1 Cor 6:11; Eph 2:3‑6; 1 John 4:10; Rom 5:8,10**
 
 # Evening
 
-**The triumphing of the wicked is short.**
+**As Christ forgave you, so also do ye.**
  
-Thou shalt bruise his heel. -- This is your hour, and the power of darkness. -- As the children are partakers of flesh and blood he also himself likewise took part of the same; that through death he might destroy him that had the power of death, that is, the devil. -- Having spoiled principalities and powers, he made a shew of them openly, triumphing over them in it.
+There was a certain creditor which had two debtors: the one owed five hundred pence, and the other fifty. And when they had nothing to pay, he frankly forgave them both. -- I forgave thee all that debt; shouldest not thou also have had compassion on thy fellow-servant, even as I had pity on thee?
  
-Be sober, be vigilant; because your adversary the devil, as a roaring lion, walketh about seeking whom he may devour: whom resist stedfast in the faith. -- Resist the devil, and he will flee from you.
+When ye stand praying, forgive, if ye have ought against any: that your Father also which is in heaven may forgive you your trespasses. But if ye do not forgive, neither will your Father which is in heaven forgive your tres-passes. -- Put on as the elect of God, holy and beloved, bowels of mercies, kindness, humbleness of mind, meekness, longsuffering; forbearing one another, and forgiving one another, if any man have a quarrel against any.
  
-The wicked plotteth against the just, and gnasheth upon him with his teeth. The Lord shall laugh at him: for he seeth that his day is coming. -- The God of peace shall bruise Satan under your feet shortly. -- The devil ... was cast into the lake of fire and brimstone ... and shall be tormented day and night for ever and ever.  
+How oft shall my brother sin against me, and I forgive him? till seven times? Jesus saith unto him, I say not unto thee, Until seven times: but, until seventy times seven.
+ 
+Charity ... is the bond of perfectness.  
 
-**Job 20:5; Gen 3:15; Luke 22:53; Heb 2:14; Col 2:15; 1 Pet 5:8,9; Jas 4:7; Psa 37:12,13; Rom 16:20; Rev 20:10**
+**Col 3:13; Luke 7:41,42; Matt 18:32,33; Mark 11:25,26; Col 3:12,13; Matt 18:21,22; Col 3:14**
 
 ---
 
-[Wednesday 09-June, 2021](https://t.me/s/daily_light)
+[Thursday 10-June, 2021](https://t.me/s/daily_light)
 
 > Jonathan Bagster, the son of Samuel Bagster, created the Daily Light for his own family's daily devotion in 1875
 
