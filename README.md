@@ -1,32 +1,32 @@
 # Morning
 
-**Oh that thou wouldest bless me indeed, and that thou wouldest keep me from evil! And God granted him that which he requested.**
+**Who shall be able to stand?**
  
-The blessing of the Lord, it maketh rich, and he addeth no sorrow with it. -- When he giveth quietness, who then can make trouble? and when he hideth his face, who then can behold him?
+Who may abide the day of his coming? and who shall stand when he ap-peareth? for he is like a refiner's fire, and like fullers' soap.
  
-Salvation belongeth unto the Lord: thy blessing is upon thy people. -- How great is thy goodness, which thou hast laid up for them that fear thee; which thou hast wrought for them that trust in thee before the sons of men. -- I pray not that thou shouldest take them out of the world, but that thou shouldest keep them from the evil.
+I beheld, and, lo, a great multitude, which no man could number, of all nations, and kindreds, and peoples, and tongues, stood before the throne, and before the Lamb, clothed with white robes, and palms in their hands. These are they which came out of great tribulation, and have washed their robes and made them white in the blood of the Lamb. They shall hunger no more, neither thirst any more: neither shall the sun light on them, nor any heat. For the Lamb, which is in the midst of the throne, shall feed them, and shall lead them unto living fountains of waters: and God shall wipe away all tears from their eyes.
  
-Ask, and it shall be given you; seek, and ye shall find; knock, and it shall be opened unto you: for every one that asketh receiveth; and he that seeketh findeth; and to him that knocketh it shall be opened. -- The Lord redeemeth the soul of his servants and none of them that trust in him shall be desolate.  
+There is no condemnation to them which are in Christ Jesus, who walk not after the flesh, but after the Spirit. -- Stand fast therefore in the liberty where-with Christ hath made us free.  
 
-**1 Chr 4:10; Prov 10:22; Job 34:29; Psa 3:8; Psa 31:19; John 17:15; Matt 7:7,8; Psa 3422**
+**Rev 6:17; Mal 3:2; Rev 7:9,14-17; Rom 8:1; Gal 5:1**
 
 # Evening
 
-**It is a night to be much observed unto the Lord for bringing them out from the land of Egypt.**
+**Enter not into judgment with thy servant: for in thy sight shall no man living be justified.**
  
-The Lord Jesus the same night in which he was betrayed took bread: and when he had given thanks, he brake it, and said, Take, eat: this is my body which is broken for you: this do in remembrance of me. After the same manner also he took the cup, when he had supped, saying, This cup is the new testament in my blood: this do ye, as oft as ye drink it, in remembrance of me.
+Come now, and let us reason together, saith the Lord: though your sins be as scarlet, they shall be as white as snow; though they be red like crimson, they shall be as wool.
  
-He ... kneeled down, and prayed. And being in an agony he prayed more earnestly: and his sweat was as it were great drops of blood falling down to the ground.
+Let him take hold of my strength that he may make peace with me; and he shall make peace with me. -- Acquaint now thyself with him, and be at peace.
  
-It was the preparation of the passover, and about the sixth hour: ... they took Jesus, and led him away, ... into a place called ... Golgotha: where they cruci-fied him.
+Being justified by faith, we have peace with God through our Lord Jesus Christ. -- A man is not justified by the works of the law, but by the faith of Jesus Christ. -- By the deeds of the law there shall no flesh be justified in his sight.
  
-Christ our passover is sacrificed for us: therefore let us keep the feast.  
+By him all that believe are justified from all things, from which ye could not be justified by the law of Moses.Thanks be to God, which giveth us the victory through our Lord Jesus Christ.  
 
-**Exo 12:42; 1 Cor 11:23-25; Luke 22:41,44; John 19:14,16-18; 1 Cor 5:7,8**
+**Psa 143:2; Isa 1:18; Isa 27:5; Job 22:21; Rom 5:1; Gal 2:16; Rom 3:20; Acts 13:39; 1 Cor 15:57**
 
 ---
 
-[Saturday 26-June, 2021](https://t.me/s/daily_light)
+[Sunday 27-June, 2021](https://t.me/s/daily_light)
 
 > Jonathan Bagster, the son of Samuel Bagster, created the Daily Light for his own family's daily devotion in 1875
 
