@@ -1,15 +1,13 @@
 **Evening**
 
-**Mind not high things, but condescend to men of low estate.**
+**Thy lovingkindness is before mine eyes.**
  
-My brethren, have not the faith of our Lord Jesus Christ, the Lord of glory, with respect of persons. Hath not God chosen the poor of this world rich in faith, and heirs of the kingdom which he hath promised to them that love him?
+The Lord is gracious, and full of compassion; slow to anger, and of great mercy. -- Your Father which is in heaven: ... maketh his sun to rise on the evil and on the good, and sendeth rain on the just and on the unjust.
  
-Let no man seek his own, but every man another's wealth. -- Having food and raiment let us be therewith content. But they that will be rich fall into temptation and a snare, and into many foolish and hurtful lusts, which drown men in destruction and perdition.
+Be ye ... followers of God, as dear children; and walk in love, as Christ also hath loved us, and hath given himself for us an offering and a sacrifice to God for a sweet‑smelling savour. -- Be ye kind to one another, tender-hearted, forgiving one another, even as God for Christ's sake hath forgiven you. -- Seeing ye have purified your souls in obeying the truth through the Spirit unto unfeigned love of the brethren, see that ye love one another with a pure heart fervently. -- The love of Christ constraineth us.
  
-God hath chosen the foolish things of the world to confound the wise: and God hath chosen the weak things of the world to confound the things which are mighty; and base things of the world, and things which are despised, hath God chosen, yea, and things which are not, to bring to nought things that are: that no flesh should glory in his presence.
- 
-Lord, my heart is not haughty, nor mine eyes lofty.  
+Love ye your enemies, and do good, and lend, hoping for nothing again; and your reward shall be great, and ye shall be the children of the Highest: for he is kind unto the unthankful and to the evil. Be ye therefore merciful, as your Father also is merciful.  
 
-**Rom 12:16; Jas 2:1,5; 1 Cor 10:24; 1 Tim 6:8,9; 1 Cor 1:27‑29; Psa 131:1**
+**Psa 26:3; Psa 145:8; Matt 5:45; Eph 5:1,2; Eph 4:32; 1 Pet 1:22; 2 Cor 5:14; Luke 6:35,36**
 
-[Monday 05-July, 2021](https://t.me/daily_light)
+[Tuesday 06-July, 2021](https://t.me/daily_light)
