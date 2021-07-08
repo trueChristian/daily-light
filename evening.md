@@ -1,15 +1,15 @@
 **Evening**
 
-**The Son of man came to give his life a ransom for many.**
+**Shall the throne of iniquity have fellowship with thee?**
  
-If the blood of bulls and of goats, and the ashes of an heifer sprinkling the unclean, sanctifieth to the purifying of the flesh: how much more shall the blood of Christ, who through the eternal Spirit offered himself without spot to God, purge your conscience from dead works to serve the living God?
+Truly our fellowship is with the Father, and with his Son Jesus Christ. -- Beloved, now are we the sons of God, and it doth not yet appear what we shall be: but we know that, when he shall appear, we shall be like him; for we shall see him as he is. And every man that hath this hope in him purifieth himself, even as he is pure.
  
-He is brought as a lamb to the slaughter. -- I lay down my life for the sheep. No man taketh it from me, but I lay it down of myself. I have power to lay it down, and I have power to take it again.
+The prince of this world cometh, and hath nothing in me. -- An high priest ... holy, harmless, undefiled.
  
-The life of the flesh is in the blood: and I have given it to you upon the altar, to make an atonement for your souls: for it is the blood that maketh an atonement for the soul. -- Without shedding of blood is no remission.
+We wrestle not against flesh and blood, but against principalities, against powers, against the rulers of the darkness of this world, against spiritual wickedness in high places. -- The prince of the power of the air, the spirit that now worketh in the children of disobedience.
  
-While we were yet sinners, Christ died for us. Much more then, being now justified by his blood, we shall be saved from wrath through him.  
+Whosoever is born of God sinneth not; but he that is begotten of God keepeth himself, and that wicked one toucheth him not. And we know that we are of God, and the whole world lieth in wickedness.  
 
-**Matt 20:28; Heb 9:13,14; Isa 53:7; John 10:15,18; Lev 17:11; Heb 9:22; Rom 5:8,9**
+**Psa 94:20; 1 John 1:3; 1 John 3:2,3; John 14:30; Heb 7:26; Eph 6:12; Eph 2:2; 1 John 5:18,19**
 
-[Wednesday 07-July, 2021](https://t.me/daily_light)
+[Thursday 08-July, 2021](https://t.me/daily_light)

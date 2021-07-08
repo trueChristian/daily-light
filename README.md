@@ -1,30 +1,34 @@
 # Morning
 
-**Then was Jesus led up of the spirit into the wilderness to be tempted of the devil.**
+**If we confess our sins, he is faithful and just to forgive us our sins, and to cleanse us from all unrighteousness.**
  
-In the days of his flesh, when he had offered up prayers and supplications with strong crying and tears unto him that was able to save him from death, and was heard in that he feared; though he were a Son, yet learned he obedience by the things which he suffered; and being made perfect, he became the author of eternal salvation unto all them that obey him. -- We have not an high priest which cannot be touched with the feeling of our infirmities: but was in all points tempted like as we are, yet without sin.
+I acknowledge my transgressions: and my sin is ever before me. Against thee, thee only, have I sinned, and done this evil in thy sight.
  
-There hath no temptation taken you but such as is common to man: but God is faithful, who will not suffer you to be tempted above that ye are able; but will with the temptation also make a way to escape, that ye may be able to bear it. -- My grace is sufficient for thee: for my strength is made perfect in weakness.  
+And he arose, and came to his father. But when he was yet a great way off, his father saw him, and had compassion, and ran, and fell on his neck, and kissed him. -- I have blotted out as a thick cloud, thy transgressions, and, as a cloud, thy sins: return unto me; for I have redeemed thee. -- Your sins are forgiven you for his name's sake. -- God for Christ's sake hath forgiven you. -- That he might be just, and the justifier of him which believeth in Jesus.
+ 
+Then will I sprinkle clean water upon you, and ye shall be clean. -- They shall walk with me in white: for they are worthy.
+ 
+This is he that came by water and blood, even Jesus Christ: not by water only, but by water and blood.  
 
-**Matt 4:1; Heb 5:7‑9; Heb 4:15; 1 Cor 10:13; 2 Cor 12:9**
+**1 John 1:9; Psa 51:3,4; Luke 15:20; Isa 44:22; 1 John 2:12; Eph 4:32; Rom 3:26; Eze 36:25; Rev 3:4; 1 John 5:6**
 
 # Evening
 
-**The Son of man came to give his life a ransom for many.**
+**Shall the throne of iniquity have fellowship with thee?**
  
-If the blood of bulls and of goats, and the ashes of an heifer sprinkling the unclean, sanctifieth to the purifying of the flesh: how much more shall the blood of Christ, who through the eternal Spirit offered himself without spot to God, purge your conscience from dead works to serve the living God?
+Truly our fellowship is with the Father, and with his Son Jesus Christ. -- Beloved, now are we the sons of God, and it doth not yet appear what we shall be: but we know that, when he shall appear, we shall be like him; for we shall see him as he is. And every man that hath this hope in him purifieth himself, even as he is pure.
  
-He is brought as a lamb to the slaughter. -- I lay down my life for the sheep. No man taketh it from me, but I lay it down of myself. I have power to lay it down, and I have power to take it again.
+The prince of this world cometh, and hath nothing in me. -- An high priest ... holy, harmless, undefiled.
  
-The life of the flesh is in the blood: and I have given it to you upon the altar, to make an atonement for your souls: for it is the blood that maketh an atonement for the soul. -- Without shedding of blood is no remission.
+We wrestle not against flesh and blood, but against principalities, against powers, against the rulers of the darkness of this world, against spiritual wickedness in high places. -- The prince of the power of the air, the spirit that now worketh in the children of disobedience.
  
-While we were yet sinners, Christ died for us. Much more then, being now justified by his blood, we shall be saved from wrath through him.  
+Whosoever is born of God sinneth not; but he that is begotten of God keepeth himself, and that wicked one toucheth him not. And we know that we are of God, and the whole world lieth in wickedness.  
 
-**Matt 20:28; Heb 9:13,14; Isa 53:7; John 10:15,18; Lev 17:11; Heb 9:22; Rom 5:8,9**
+**Psa 94:20; 1 John 1:3; 1 John 3:2,3; John 14:30; Heb 7:26; Eph 6:12; Eph 2:2; 1 John 5:18,19**
 
 ---
 
-[Wednesday 07-July, 2021](https://t.me/s/daily_light)
+[Thursday 08-July, 2021](https://t.me/s/daily_light)
 
 > Jonathan Bagster, the son of Samuel Bagster, created the Daily Light for his own family's daily devotion in 1875
 
