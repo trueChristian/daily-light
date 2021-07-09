@@ -1,15 +1,13 @@
 **Morning**
 
-**If we confess our sins, he is faithful and just to forgive us our sins, and to cleanse us from all unrighteousness.**
+**I have caused thine iniquity to pass from thee, and I will clothe thee with change of raiment.**
  
-I acknowledge my transgressions: and my sin is ever before me. Against thee, thee only, have I sinned, and done this evil in thy sight.
+Blessed is he whose transgression is forgiven, whose sin is covered. -- We are all as an unclean thing. -- I know that in me (that is, in my flesh,) dwelleth no good thing: for to will is present with me; but how to perform that which is good I find not.
  
-And he arose, and came to his father. But when he was yet a great way off, his father saw him, and had compassion, and ran, and fell on his neck, and kissed him. -- I have blotted out as a thick cloud, thy transgressions, and, as a cloud, thy sins: return unto me; for I have redeemed thee. -- Your sins are forgiven you for his name's sake. -- God for Christ's sake hath forgiven you. -- That he might be just, and the justifier of him which believeth in Jesus.
+As many of you as have been baptized into Christ have put on Christ. -- Ye have put off the old man with his deeds; and have put on the new man, which is renewed in knowledge after the image of him that created him. -- Not having mine own righteousness which is of the law, but ... the righteousness which is of God by faith.
  
-Then will I sprinkle clean water upon you, and ye shall be clean. -- They shall walk with me in white: for they are worthy.
- 
-This is he that came by water and blood, even Jesus Christ: not by water only, but by water and blood.  
+Bring forth the best robe, and put it on him. -- The fine linen is the right-eousness of saints. -- I will greatly rejoice in the Lord, my soul shall be joyful in my God; for he hath clothed me with the garments of salvation, he hath covered me with the robe of righteousness.  
 
-**1 John 1:9; Psa 51:3,4; Luke 15:20; Isa 44:22; 1 John 2:12; Eph 4:32; Rom 3:26; Eze 36:25; Rev 3:4; 1 John 5:6**
+**Zech 3:4; Psa 32:1; Isa 64:6; Rom 7:18; Col 3:27; Col 3:9,10; Phl 3:9; Luke 15:22; Rev 19:8; Isa 61:10**
 
-[Thursday 08-July, 2021](https://t.me/daily_light)
+[Friday 09-July, 2021](https://t.me/daily_light)
