@@ -1,11 +1,13 @@
 **Morning**
 
-**I am with thee to save thee.**
+**My presence shall go with thee, and I will give thee rest.**
  
-Shall the prey be taken from the mighty, or the lawful captive delivered? But thus saith the Lord, Even the captives of the mighty shall be taken away, and the prey of the terrible shall be delivered: for I will contend with him that contendeth with thee. And all flesh shall know that I the Lord am thy Saviour and thy Redeemer, the mighty One of Jacob. -- Fear thou not; for I am with thee: be not dismayed; for I am thy God: I will strengthen thee; yea, I will help thee; yea, I will uphold thee with the right hand of my right-ousness.
+Be strong and of a good courage, fear not, nor be afraid of them: for the Lord thy God, he it is that doth go with thee; he will not fail thee, nor forsake thee. The Lord, he it is that doth go before thee; he will be with thee, he will not fail thee, neither forsake thee: fear not, neither be dismayed. -- Have not I commanded thee? Be strong and of a good courage; be not afraid, neither be thou dismayed: for the Lord thy God is with thee whithersoever thou goest. -- In all thy ways acknowledge him, and he shall direct thy paths.
  
-We have not an high priest which cannot be touched with the feeling of our infirmities; but was in all points tempted like as we are, yet without sin. -- In that he himself hath suffered being tempted, he is able to succour them that are tempted. -- The steps of a good man are ordered by the Lord: and he delighteth in his way. Though he fall, he shall not be utterly cast down: for the Lord upholdeth him with his hand.  
+He hath said, I will never leave thee, nor forsake thee. So that we may boldly say, The Lord is my helper, and I will not fear what man shall do unto me. -- Our sufficiency is of God.
+ 
+Lead us not into temptation. -- O Lord, I know that the way of man is not in himself: it is not in man that walketh to direct his steps. -- My times are in thy hand.  
 
-**Jer 15:20; Isa 49:24‑26; Isa 41:10; Heb 4:15; Heb 2:18; Psa 37:23,24**
+**Exo 33:14; Deut 31:6,8; Josh 1:9; Prov 3:6; Heb 13:5,6; 2 Cor 3:5; Matt 6:13; Jer 10:23; Psa 31:15**
 
-[Sunday 11-July, 2021](https://t.me/daily_light)
+[Monday 12-July, 2021](https://t.me/daily_light)
