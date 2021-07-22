@@ -1,30 +1,32 @@
 # Morning
 
-**What profit is there of circumcision?**
+**In that he died, he died unto sin once: but in that he liveth, he liveth unto God.**
  
-Much every way. -- Circumcise yourselves to the Lord, and take away the foreskins of your heart. -- If ... their uncircumcised hearts be humbled, and they then accept of the punishment of their iniquity: then will I remember my covenant with Jacob, and also my covenant with Isaac, and also my covenant with Abraham will I remember.
+He was numbered with the transgressors. -- Christ was once offered to bear the sins of many. -- Who his own self bare our sins in his own body on the tree, that we, being dead to sins, should live unto righteousness: by whose stripes ye were healed. -- By one offering he hath perfected for ever them that are sanctified.
  
-Jesus Christ was a minister of the circumcision for the truth of God, to confirm the promises made unto the fathers. -- In whom also ye are cir-cumcised with the circumcision made without hands, in putting off the body of the sins of the flesh by the circumcision of Christ. -- You, being dead in your sins and the uncircumcision of your flesh, hath he quickened together with him, having forgiven you all trespasses.
+This man, because he continueth ever, hath an unchangeable priesthood. Wherefore he is able also to save them to the uttermost that come unto God by him, seeing he ever liveth to make intercession for them. -- While we were yet sinners Christ died for us. Much more then, being now justified by his blood, we shall be saved from wrath through him.
  
-Put off concerning the former conversation the old man, which is corrupt according to the deceitful lusts; and be renewed in the spirit of your mind; and ... put on the new man, which after God is created in righteousness.  
+Forasmuch ... as Christ hath suffered for us in the flesh, arm yourselves likewise with the same mind: for he that hath suffered in the flesh hath ceased from sin; that he no longer should live the rest of his time in the flesh to the lusts of men, but to the will of God.  
 
-**Rom 3:1; Rom 3:2; Jer 4:4; Lev 26:41,42; Rom 15:8; Col 2:11; Col 2:13; Eph 4:22‑24**
+**Rom 6:10; Isa 53:12; Heb 9:28; 1 Pet 2:24; Heb 10:14; Heb 7:24,25; Rom 5:8,9; 1 Pet 4:1,2**
 
 # Evening
 
-**The veil of the temple was rent in twain from the top to the bottom.**
+**Keep yourselves in the love of God.**
  
-The Lord Jesus the same night in which he was betrayed took bread: and when he had given thanks, he brake it, and said, Take, eat: this is my body, which is broken for you: this do in remembrance of me. -- The bread that I will give is my flesh, which I will give for the life of the world.
+Abide in me, and I in you. As the branch cannot bear fruit of itself, except it abide in the vine; no more can ye, except ye abide in me. I am the vine, ye are the branches: He that abideth in me, and I in him, the same bringeth forth much fruit: for without me ye can do nothing.
  
-Except ye eat the flesh of the Son of man, and drink his blood, ye have no life in you. Whoso eateth my flesh, and drinketh my blood, hath eternal life. He that eateth my flesh, and drinketh my blood, dwelleth in me, and I in him. As the living Father hath sent me, and I live by the Father: so he that eateth me, even he shall live by me. Doth this offend you? What and if ye shall see the Son of man ascend up where he was before? It is the spirit that quickeneth; the flesh profiteth nothing.
+The fruit of the Spirit is love.
  
-A new and living way, which he hath consecrated for us, through the veil, that is to say, his flesh; let us draw near.  
+Herein is my Father glorified, that ye bear much fruit; so shall ye be my disciples. As the Father hath loved me, so have I loved you: continue ye in my love. If ye keep my commandments, ye shall abide in my love; even as I have kept my Father's commandments, and abide in his love. -- Whoso keepeth his word, in him verily is the love of God perfected.
+ 
+This is my commandment, That ye love one another, as I have loved you. -- God commendeth his love toward us, in that, while we were yet sinners, Christ died for us. -- God is love; and he that dwelleth in love dwelleth in God, and God in him.  
 
-**Matt 27:51; 1 Cor 11:23,24; John 6:51; John 6:53,54,56,57,61‑63; Heb 10:20,22**
+**Jude 21; John 15:4,5; Gal 5:22; John 15:8‑10; 1 John 2:5; John 15:12; Rom 5:8; 1 John 4:16**
 
 ---
 
-[Wednesday 21-July, 2021](https://t.me/s/daily_light)
+[Thursday 22-July, 2021](https://t.me/s/daily_light)
 
 > Jonathan Bagster, the son of Samuel Bagster, created the Daily Light for his own family's daily devotion in 1875
 

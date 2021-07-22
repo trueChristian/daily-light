@@ -1,13 +1,13 @@
 **Morning**
 
-**What profit is there of circumcision?**
+**In that he died, he died unto sin once: but in that he liveth, he liveth unto God.**
  
-Much every way. -- Circumcise yourselves to the Lord, and take away the foreskins of your heart. -- If ... their uncircumcised hearts be humbled, and they then accept of the punishment of their iniquity: then will I remember my covenant with Jacob, and also my covenant with Isaac, and also my covenant with Abraham will I remember.
+He was numbered with the transgressors. -- Christ was once offered to bear the sins of many. -- Who his own self bare our sins in his own body on the tree, that we, being dead to sins, should live unto righteousness: by whose stripes ye were healed. -- By one offering he hath perfected for ever them that are sanctified.
  
-Jesus Christ was a minister of the circumcision for the truth of God, to confirm the promises made unto the fathers. -- In whom also ye are cir-cumcised with the circumcision made without hands, in putting off the body of the sins of the flesh by the circumcision of Christ. -- You, being dead in your sins and the uncircumcision of your flesh, hath he quickened together with him, having forgiven you all trespasses.
+This man, because he continueth ever, hath an unchangeable priesthood. Wherefore he is able also to save them to the uttermost that come unto God by him, seeing he ever liveth to make intercession for them. -- While we were yet sinners Christ died for us. Much more then, being now justified by his blood, we shall be saved from wrath through him.
  
-Put off concerning the former conversation the old man, which is corrupt according to the deceitful lusts; and be renewed in the spirit of your mind; and ... put on the new man, which after God is created in righteousness.  
+Forasmuch ... as Christ hath suffered for us in the flesh, arm yourselves likewise with the same mind: for he that hath suffered in the flesh hath ceased from sin; that he no longer should live the rest of his time in the flesh to the lusts of men, but to the will of God.  
 
-**Rom 3:1; Rom 3:2; Jer 4:4; Lev 26:41,42; Rom 15:8; Col 2:11; Col 2:13; Eph 4:22‑24**
+**Rom 6:10; Isa 53:12; Heb 9:28; 1 Pet 2:24; Heb 10:14; Heb 7:24,25; Rom 5:8,9; 1 Pet 4:1,2**
 
-[Wednesday 21-July, 2021](https://t.me/daily_light)
+[Thursday 22-July, 2021](https://t.me/daily_light)
