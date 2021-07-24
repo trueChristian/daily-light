@@ -1,30 +1,30 @@
 # Morning
 
-**Then cometh the end.**
+**Patient in tribulation.**
  
-Of that day and that hour knoweth no man, no, not the angels which are in heaven, neither the Son, but the Father. Take ye heed, watch and pray: for ye know not when the time is. And what I say unto you I say unto all, Watch. -- The Lord is not slack concerning his promise, as some men count slackness; but is longsuffering to us‑ward, not willing that any should perish, but that all should come to repentance. -- The coming of the Lord draweth nigh. The judge standeth before the door. -- Surely I come quickly.
+It is the Lord: let him do what seemeth him good. -- Whom, though I were righteous, yet would I not answer, but I would make supplication to my judge. -- The Lord gave, and the Lord hath taken away; blessed be the name of the Lord. -- What? shall we receive good at the hand of God, and shall we not receive evil?
  
-Seeing ... that all these things shall be dissolved, what manner of persons ought ye to be in all holy conversation and godliness.
+Jesus wept. -- A man of sorrows, and acquainted with grief. Surely he hath borne our griefs, and carried our sorrows.
  
-The end of all things is at hand: be ye therefore sober, and watch unto prayer. -- Let your loins be girded about, and your lights burning; and ye yourselves like unto men that wait for their lord, when he will return from the wedding; that when he cometh and knocketh, they may open unto him immediately.  
+Whom the Lord loveth he chasteneth, and scourgeth every son whom he receiveth. Now no chastening for the present seemeth to be joyous, but grievous: nevertheless afterward it yieldeth the peaceable fruit of right-eousness unto them which are exercised thereby. -- Strengthened with all might, according to his glorious power, unto all patience and longsuffering with joyfulness. -- In the world ye shall have tribulation: but be of good cheer; I have overcome the world.  
 
-**1 Cor 15:24; Matt 13:32,33,37; 2 Pet 3:9; Jas 5:8,9; Rev 22:20; 2 Pet 3:11; 1 Pet 4:7; Luke 12:35,36**
+**Rom 12:12; 1 Sam 3:18; Job 9:15; Job 1:21; Job 2:10; John 11:35; Isa 53:3,4; Heb 12:6,11; Col L:11; John 16:33**
 
 # Evening
 
-**Brethren, pray for us.**
+**He staggered not at the promise of God through unbelief.**
  
-Is any sick among you? let him call for the elders of the church; and let them pray over him. And the prayer of faith shall save the sick, and the Lord shall raise him up. Pray one for another, that ye may be healed. The effectual fervent prayer of a righteous man availeth much. Elias was a man subject to like passions as we are, and he prayed earnestly that it might not rain: and it rained not on the earth by the space of three years and six months. And he prayed again, and the heaven gave rain, and the earth brought forth her fruit.
+Have faith in God. Whosoever shall say unto this mountain, Be thou remov-ed, and be thou cast into the sea; and shall not doubt in his heart, but shall believe that those things which he saith shall come to pass; he shall have whatsoever he saith. Therefore I say unto you, What things soever ye desire, when ye pray, believe that ye receive them, and ye shall have them. -- Without faith it is impossible to please him: for he that cometh to God, must believe that he is, and that he is a rewarder of them that diligently seek him.
  
-Praying always with all prayer and supplication in the Spirit, and watching thereunto with all perseverance and supplication for all saints.
+He that had received the promises offered up his only begotten son, of whom it was said, That in Isaac shall thy seed be called: accounting that God was able to raise him up, even from the dead. -- Being fully persuaded that, what he had promised, he was able also to perform.
  
-Without ceasing I make mention of you always in my prayers. -- Always labouring fervently for you in prayers, that ye may stand perfect and complete in all the will of God.  
+Is any thing too hard for the Lord? -- With God all things are possible. -- Lord, increase our faith.  
 
-**1 Thes 5:25; Jas 5:14‑18; Eph 6:18; Rom 1:9; Col 4:12**
+**Rom 4:20; Mark 11:22‑24; Heb 11:16; Heb 11:17‑19; Rom 4:21; Gen 18:14; Matt 19:26; Luke 17:5**
 
 ---
 
-[Friday 23-July, 2021](https://t.me/s/daily_light)
+[Saturday 24-July, 2021](https://t.me/s/daily_light)
 
 > Jonathan Bagster, the son of Samuel Bagster, created the Daily Light for his own family's daily devotion in 1875
 
