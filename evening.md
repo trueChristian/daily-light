@@ -1,13 +1,15 @@
 **Evening**
 
-**He staggered not at the promise of God through unbelief.**
+**Thou wilt shew me the path of life.**
  
-Have faith in God. Whosoever shall say unto this mountain, Be thou remov-ed, and be thou cast into the sea; and shall not doubt in his heart, but shall believe that those things which he saith shall come to pass; he shall have whatsoever he saith. Therefore I say unto you, What things soever ye desire, when ye pray, believe that ye receive them, and ye shall have them. -- Without faith it is impossible to please him: for he that cometh to God, must believe that he is, and that he is a rewarder of them that diligently seek him.
+Thus saith the Lord; Behold, I set before you the way of life and the way of death. -- I will teach you the good and the right way.-- I am the way, the truth, and the life: no man cometh unto the Father, but by me. -- Follow me.
  
-He that had received the promises offered up his only begotten son, of whom it was said, That in Isaac shall thy seed be called: accounting that God was able to raise him up, even from the dead. -- Being fully persuaded that, what he had promised, he was able also to perform.
+There is a way which seemeth right unto a man, but the ends thereof are the ways of death. -- Wide is the gate, and broad is the way, that leadeth to destruction, and many there be which go in thereat: because strait is the gate, and narrow is the way, that leadeth unto life, and few there be that find it.
  
-Is any thing too hard for the Lord? -- With God all things are possible. -- Lord, increase our faith.  
+An highway shall be there, and a way, and it shall be called The way of holiness; the unclean shall not pass over it; but it shall be for those: the wayfaring men, though fools, shall not err therein. -- Then shall we know, if we follow on to know the Lord.
+ 
+In my Father’s house are many mansions: if it were not so I would have told you. I go to prepare a place for you.  
 
-**Rom 4:20; Mark 11:22‑24; Heb 11:16; Heb 11:17‑19; Rom 4:21; Gen 18:14; Matt 19:26; Luke 17:5**
+**Psa 16:11; Jer 21:8; 1 Sam 12:23; John 14:6; Matt 14:19; Prov 4:12; Matt 7:13,14; Isa 35:8; Hos 6:3; John 14:2**
 
-[Saturday 24-July, 2021](https://t.me/daily_light)
+[Sunday 25-July, 2021](https://t.me/daily_light)
