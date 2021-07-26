@@ -1,15 +1,17 @@
 **Evening**
 
-**Thou wilt shew me the path of life.**
+**Give thanks at the remembrance of his holiness.**
  
-Thus saith the Lord; Behold, I set before you the way of life and the way of death. -- I will teach you the good and the right way.-- I am the way, the truth, and the life: no man cometh unto the Father, but by me. -- Follow me.
+The heavens are not clean in his sight. How much more abominable and filthy is man, which drinketh iniquity like water? -- Yea, the stars are not pure in his sight. How much less man, that is a worm?
  
-There is a way which seemeth right unto a man, but the ends thereof are the ways of death. -- Wide is the gate, and broad is the way, that leadeth to destruction, and many there be which go in thereat: because strait is the gate, and narrow is the way, that leadeth unto life, and few there be that find it.
+Who is like unto thee, O Lord, among the gods? who is like thee, glorious in holiness? -- Holy, holy, holy, is the Lord of hosts.
  
-An highway shall be there, and a way, and it shall be called The way of holiness; the unclean shall not pass over it; but it shall be for those: the wayfaring men, though fools, shall not err therein. -- Then shall we know, if we follow on to know the Lord.
+As he which hath called you is holy, so be ye holy in all manner of conversation; because it is written, Be ye holy; for I am holy. -- Partakers of his holiness.
  
-In my Father’s house are many mansions: if it were not so I would have told you. I go to prepare a place for you.  
+The temple of God is holy, which temple ye are. -- What manner of persons ought ye to be in all holy conversation and godliness, ... without spot, and blameless?
+ 
+Let no corrupt communication proceed out of your mouth, but that which is good to the use of edifying. And grieve not the holy Spirit of God, whereby ye are sealed unto the day of redemption.  
 
-**Psa 16:11; Jer 21:8; 1 Sam 12:23; John 14:6; Matt 14:19; Prov 4:12; Matt 7:13,14; Isa 35:8; Hos 6:3; John 14:2**
+**Psa 97:12; Job 15:15,16; Job 25:5,6; Exo 15:11; Isa 6:3; 1 Pet 1:15,16; Heb 12:10; 1 Cor 3:17; 2 Pet 3:11,14; Eph 4:29,30**
 
-[Sunday 25-July, 2021](https://t.me/daily_light)
+[Monday 26-July, 2021](https://t.me/daily_light)
