@@ -1,13 +1,13 @@
 **Morning**
 
-**Christ, who is the image of God.**
+**Walk in love.**
  
-The glory of the Lord shall be revealed, and all flesh shall see it together. -- No man hath seen God at any time; the only begotten Son, which is in the bosom of the Father, he hath declared him. And the Word was made flesh, and dwelt among us, (and we beheld his glory, the glory as of the only begotten of the Father,) full of grace and truth. -- He that hath seen me hath seen the Father. -- The brightness of his glory, and the express image of his person. -- God was manifest in the flesh.
+A new commandment I give unto you, That ye love one another; as I have loved you, that ye also love one another. -- Above all things have fervent charity among yourselves: for charity shall cover the multitude of sins. -- Love covereth all sins.
  
-In whom we have redemption through his blood, even the forgiveness of sins: who is the image of the invisible God, the first‑born of every creature. -- Whom he did foreknow, he also did predestinate to be conformed to the image of his Son, that he might be the firstborn among many brethren.
+When ye stand praying, forgive, if ye have ought against any: that your Father also which is in heaven may forgive you your trespasses. -- Love ye your enemies, and do good, and lend, hoping for nothing again. -- Rejoice not when thine enemy falleth, and let not thine heart be glad when he stumbleth. -- Not rendering evil for evil, or railing for railing: but contrar-wise blessing; knowing that ye are thereunto called, that ye should inherit a blessing. -- If it be possible, as much as lieth in you, live peaceably with all men. -- Be ye kind one to another, tender‑hearted, forgiving one another, even as God for Christ's sake hath forgiven you.
  
-As we have borne the image of the earthy, we shall also bear the image of the heavenly.  
+My little children, let us not love in word, neither in tongue; but in deed and in truth.  
 
-**2 Cor 4:4; Isa 40:5; John 1:18,14; John 14:9; Heb 1:3; 1 Tim 3:16; Col 1:14,15; Rom 8:29; 1 Cor 15:49**
+**Eph 5:2; John 13:34; 1 Pet 4:8; Prov 10:12; Mark 11:25; Luke 6:35; Prov 24:17; 1 Pet 3:9; Rom 12:18; Eph 4:32; 1 John 3:18**
 
-[Tuesday 27-July, 2021](https://t.me/daily_light)
+[Wednesday 28-July, 2021](https://t.me/daily_light)
