@@ -1,30 +1,32 @@
 # Morning
 
-**Endure hardness, as a good soldier of Jesus Christ**.
+**The fruit of the Spirit is ... faith.**
  
-I have given him for a witness to the people, a leader and a commander to the people. -- It became him, for whom are all things and by whom are all things, in bringing many sons unto glory, to make the captain of their salvation perfect through suffering. -- We must through much tribulation enter into the kingdom of God.
+By grace are ye saved through faith; and that not of yourselves: it is the gift of God. -- Without faith it is impossible to please him. -- He that believeth on him is not condemned: but he that believeth not is condemned already, because he hath not believed in the name of the only begotten Son of God. -- Lord, I believe; help thou mine unbelief.
  
-We wrestle not against flesh and blood, but against principalities, against powers, against the rulers of the darkness of this world, against spiritual wickedness in high places. Wherefore take unto you the whole armour of God. -- We do not war after the flesh: (for the weapons of our warfare are not carnal, but mighty through God to the pulling down of strongholds.)
+Whoso keepeth his word, in him verily is the love of God perfected: hereby know we that we are in him. -- Faith worketh by love. -- Faith without works is dead.
  
-The God of all grace, who hath called us unto his eternal glory by Christ Jesus, after that ye have suffered a while, make you perfect, stablish, strengthen, settle you.  
+We walk by faith, not by sight. -- I am crucified with Christ: nevertheless I live; yet not I, but Christ liveth in me: and the life which I now live in the flesh I live by the faith of the Son of God, who loved me, and gave himself for me. -- Whom having not seen, ye love; in whom, though now ye see him not, yet believing, ye rejoice with joy unspeakable and full of glory; receiving the end of your faith, even the salvation of your souls.  
 
-**2 Tim 2:3; Isa 55:4; Heb 2:10; Acts 14:22; Eph 6:12,13; 2 Cor 10:3,4; 1 Pet 5:10**
+**Gal 5:22; Eph 2:8; Heb 11:6; John 3:18; Mark 9:24; 1 John 2:5; Gal 5:6; Jas 2:20; 2 Cor 5:7; Gal 2:20; 1 Pet 1:8,9**
 
 # Evening
 
-**The unity of the Spirit.**
+**The Lord is very pitiful, and of tender mercy.**
  
-There is one body, and one Spirit. -- Through him we both have access by one Spirit unto the Father. Now therefore ye are no more strangers and foreigners, but fellow‑citizens with the saints and of the household of God; and are built upon the foundation of the apostles and prophets, Jesus Christ himself being the chief cornerstone; in whom all the building fitly framed together groweth unto an holy temple in the Lord: in whom ye also are builded together for an habitation of God through the Spirit.
+Like as a father pitieth his children, so the Lord pitieth them that fear him. -- The Lord is gracious and full of compassion. He will ever be mindful of his covenant.
  
-Behold, how good and how pleasant it is for brethren to dwell together in unity! It is like the precious ointment upon the head that ran down upon the beard, even Aaron's beard; that went down to the skirts of his garments.
+He that keepeth thee will not slumber. Behold, he that keepeth Israel shall neither slumber nor sleep. -- As an eagle stirreth up her nest, fluttereth over her young, spreadeth abroad her wings, taketh them, beareth them on her wings: so the Lord alone did lead him, and there was no strange god with him.
  
-Seeing ye have purified your souls in obeying the truth through the Spirit unto unfeigned love of the brethren, see that ye love one another with a pure heart fervently.  
+His compassions fail not. They are new every morning: great is thy faith-fulness.Jesus went forth, and saw a great multitude, and was moved with compas-sion toward them, and he healed their sick. -- The same yesterday, and today, and forever.
+ 
+The very hairs of your head are all numbered. Are not two sparrows sold for a farthing? and one of them shall not fall on the ground without your Father. Fear ye not therefore.  
 
-**Eph 4:3; Eph 4:4; Eph 2:18‑22; Psa 133:1,2; 1 Pet 1:22**
+**Jas 5:11; Psa 103:13; Psa 111:4,5; Psa 121:3,4; Deut 32:11,12; Lam 3:22,23; Matt 14:14; Heb 13:8; Matt 10:30,29,31**
 
 ---
 
-[Saturday 31-July, 2021](https://t.me/s/daily_light)
+[Sunday 01-August, 2021](https://t.me/s/daily_light)
 
 > Jonathan Bagster, the son of Samuel Bagster, created the Daily Light for his own family's daily devotion in 1875
 
