@@ -1,15 +1,13 @@
 **Evening**
 
-**The Lord is very pitiful, and of tender mercy.**
+**I have trodden the winepress alone.**
  
-Like as a father pitieth his children, so the Lord pitieth them that fear him. -- The Lord is gracious and full of compassion. He will ever be mindful of his covenant.
+Who is like unto thee, O Lord, among the gods? who is like thee, glorious in holiness, fearful in praises, doing wonders? -- He saw that there was no man, and wondered that there was no intercessor: therefore his arm brought salvation unto him; and his righteousness, it sustained him. -- Who his own self bare our sins in his own body on the tree. -- Being made a curse for us.
  
-He that keepeth thee will not slumber. Behold, he that keepeth Israel shall neither slumber nor sleep. -- As an eagle stirreth up her nest, fluttereth over her young, spreadeth abroad her wings, taketh them, beareth them on her wings: so the Lord alone did lead him, and there was no strange god with him.
+O sing unto the Lord a new song; for he hath done marvellous things: his right hand, and his holy arm, hath gotten him the victory. -- Having spoiled principalities and powers, he made a shew of them openly, triumphing over them in it. -- He shall see of the travail of his soul, and shall be satisfied: by his knowledge shall my righteous servant justify many; for he shall bear their iniquities.
  
-His compassions fail not. They are new every morning: great is thy faith-fulness.Jesus went forth, and saw a great multitude, and was moved with compas-sion toward them, and he healed their sick. -- The same yesterday, and today, and forever.
- 
-The very hairs of your head are all numbered. Are not two sparrows sold for a farthing? and one of them shall not fall on the ground without your Father. Fear ye not therefore.  
+O my soul, thou hast trodden down strength. -- We are more than conquerors through him that loved us. -- They overcame by the blood of the Lamb, and by the word of their testimony.  
 
-**Jas 5:11; Psa 103:13; Psa 111:4,5; Psa 121:3,4; Deut 32:11,12; Lam 3:22,23; Matt 14:14; Heb 13:8; Matt 10:30,29,31**
+**Isa 63:3; Exo 15:11; Isa 59:16; 1 Pet 2:24; Gal 3:13; Psa 98:1; Col 2:15; Isa 53:11; Judg 5:21; Rom 8:37; Rev 12:11**
 
-[Sunday 01-August, 2021](https://t.me/daily_light)
+[Monday 02-August, 2021](https://t.me/daily_light)
