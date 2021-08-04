@@ -1,32 +1,28 @@
 # Morning
 
-**His mercy is on them that fear Him.**
+**It is finished: and he bowed his head, and gave up the ghost.**
  
-Oh how great is thy goodness, which thou hast laid up for them that fear thee; which thou hast wrought for them that trust in thee before the sons of men! Thou shalt hide them in the secret of thy presence from the pride of man: thou shalt keep them secretly in a pavilion from the strife of tongues.
+Jesus the author and finisher of our faith. -- I have glorified thee on the earth: I have finished the work which thou gavest me to do. -- We are sanctified through the offering of the body of Jesus Christ once for all. And every priest standeth daily ministering an offering oftentimes the same sacrifices, which can never take away sins: but this man, after he had offered one sacrifice for sins for ever, sat down on the right hand of God; from henceforth expecting till his enemies be made his footstool. For by one offering he hath perfected for ever them that are sanctified. -- Blotting out the handwriting of ordin-ances that was against us, which was contrary to us, and took it out of the way, nailing it to his cross.
  
-If ye call on the Father, who without respect of persons judgeth according to every man's work, pass the time of your sojourning here in fear. -- The Lord is nigh unto all them that call upon him in truth. He will fulfil the desire of them that fear him: he also will hear their cry, and will save them.
- 
-Because thine heart was tender, and thou hast humbled thyself before the Lord, ... and hast rent thy clothes, and wept before me; I also have heard thee, saith the Lord. -- To this man will I look, even to him that is poor and of a contrite spirit, and trembleth at my word. -- The Lord is nigh unto them that are of a broken heart; and saveth such as be of a contrite spirit.  
+I lay down my life, that I might take it again. No man taketh it from me, but I lay it down of myself. I have power to lay it down, and I have power to take it again. -- Greater love hath no man than this, that a man lay down his life for his friends.  
 
-**Luke 1:50; Psa 31:19,20; 1 Pet 1:17; Psa 145:18,19; 2 Kgs 22:19; Isa 66:2; Psa 34:18**
+**John 19:30; Heb 12:2; John 17:4; Heb 10:10-14; Col 2:14; John 10:17,18; John 15:13**
 
 # Evening
 
-**Them that honour me I will honour.**
+**He sent from above, he took me, he drew me out of many waters.**
  
-Whosoever ... shall confess me before men, him will I confess also before my Father which is in heaven. -- He that loveth father or mother more than me is not worthy of me: and he that loveth son or daughter more than me is not worthy of me. And he that taketh not his cross, and followeth after me, is not worthy of me. He that findeth his life shall lose it: and he that loseth his life for my sake shall find it.
+He brought me up ... out of an horrible pit, out of the miry clay, and set my feet upon a rock, and established my goings. -- You hath he quickened, who were dead in trespasses and sins wherein in time past ye walked according to the course of this world. We all had our conversation in times past in the lusts our flesh.
  
-Blessed is the man that endureth temptation: for when he is tried, he shall receive the crown of life, which the Lord hath promised to them that love him.
+Hear my cry, O God; attend unto my prayer. From the end the earth will I cry unto thee, when my heart is overwhelmed. -- Out of the belly of hell cried I, and thou heardest my voice. For thou hadst cast me into the deep, in the midst of the seas; and the floods compassed me about: all thy billows and thy waves passed over me. -- We went through fire and through water: thou broughtest us out into a wealthy place.
  
-Fear none of these things which thou shalt suffer. Be thou faithful unto death, and I will give thee a crown of life.
- 
-Our light affliction, which is but for a moment, worketh for us a far more exceeding and eternal weight of glory. -- Praise and honour and glory at the appearing of Jesus Christ.  
+When thou passest through the waters, I will be with thee; and through the rivers, they shall not overflow thee.  
 
-**1 Sam 2:30; Matt 10:32; Matt 10:37‑39; Jas 1:12; Rev 2:10; 2 Cor 4:17; 1 Pet 1:7**
+**Psa 18:16; Psa 40:2; Eph 2:1,3; Psa 61:1,2; Jon 2:2,3; Psa 66:12; Isa 43:2**
 
 ---
 
-[Tuesday 03-August, 2021](https://t.me/s/daily_light)
+[Wednesday 04-August, 2021](https://t.me/s/daily_light)
 
 > Jonathan Bagster, the son of Samuel Bagster, created the Daily Light for his own family's daily devotion in 1875
 
