@@ -1,28 +1,30 @@
 # Morning
 
-**It is finished: and he bowed his head, and gave up the ghost.**
+**Walk in newness of life.**
  
-Jesus the author and finisher of our faith. -- I have glorified thee on the earth: I have finished the work which thou gavest me to do. -- We are sanctified through the offering of the body of Jesus Christ once for all. And every priest standeth daily ministering an offering oftentimes the same sacrifices, which can never take away sins: but this man, after he had offered one sacrifice for sins for ever, sat down on the right hand of God; from henceforth expecting till his enemies be made his footstool. For by one offering he hath perfected for ever them that are sanctified. -- Blotting out the handwriting of ordin-ances that was against us, which was contrary to us, and took it out of the way, nailing it to his cross.
+As ye have yielded your members servants to uncleanness and to iniquity unto iniquity; even so now yield your members servants to righteousness unto holiness. -- I beseech you, ... brethren, by the mercies of God, that ye present your bodies a living sacrifice, holy, acceptable unto God, which is your reasonable service. And be not conformed to this world: but be ye transformed by the renewing of your mind.
  
-I lay down my life, that I might take it again. No man taketh it from me, but I lay it down of myself. I have power to lay it down, and I have power to take it again. -- Greater love hath no man than this, that a man lay down his life for his friends.  
+If any man be in Christ he is a new creature: old things are passed away; behold, all things are become new. -- In Christ Jesus neither circumcision availeth anything, nor uncircumcision, but a new creature. And as many as walk according to this rule, peace be on them, and mercy. -- This I say therefore, and testify in the Lord, that ye henceforth walk not as other Gentiles walk, in the vanity of their mind. -- Ye have not so learned Christ; if so be that ye have heard him, and have been taught by him, as the truth is in Jesus. Put on the new man, which after God is created in righteousness and true holiness.  
 
-**John 19:30; Heb 12:2; John 17:4; Heb 10:10-14; Col 2:14; John 10:17,18; John 15:13**
+**Rom 6:4; Rom 6:19; Rom 12:1,2; 2 Cor 5:17; Gal 6:15,16; Eph 4:17; Eph 4:20,21,24**
 
 # Evening
 
-**He sent from above, he took me, he drew me out of many waters.**
+**Thy will be done.**
  
-He brought me up ... out of an horrible pit, out of the miry clay, and set my feet upon a rock, and established my goings. -- You hath he quickened, who were dead in trespasses and sins wherein in time past ye walked according to the course of this world. We all had our conversation in times past in the lusts our flesh.
+O Lord, I know that the way of man is not in himself: it is not in man that walketh to direct his steps. -- Not as I will, but as thou wilt. -- Surely I have behaved and quieted myself, as a child that is weaned of his mother: my soul is even as a weaned child.
  
-Hear my cry, O God; attend unto my prayer. From the end the earth will I cry unto thee, when my heart is overwhelmed. -- Out of the belly of hell cried I, and thou heardest my voice. For thou hadst cast me into the deep, in the midst of the seas; and the floods compassed me about: all thy billows and thy waves passed over me. -- We went through fire and through water: thou broughtest us out into a wealthy place.
+We know not what we should pray for as we ought: but the Spirit itself maketh intercession for us with groanings which cannot be uttered. And he that searcheth the hearts knoweth what is the mind of the Spirit, because he maketh intercession for the saints according to the will of God.
  
-When thou passest through the waters, I will be with thee; and through the rivers, they shall not overflow thee.  
+Ye know not what ye ask. -- He gave them their request; but sent leanness into their soul. -- These things were our examples, to the intent we should not lust after evil things, as they also lusted.
+ 
+I would have you without carefulness. -- Thou wilt keep him in perfect peace, whose mind is stayed on thee: because he trusteth in thee.  
 
-**Psa 18:16; Psa 40:2; Eph 2:1,3; Psa 61:1,2; Jon 2:2,3; Psa 66:12; Isa 43:2**
+**Matt 26:42; Jer 10:23; Matt 26:39; Psa 131:2; Rom 8:26,27; Matt 20:22; Psa 106:15; 1 Cor 10:6; 1 Cor 7:32; Isa 26:3**
 
 ---
 
-[Wednesday 04-August, 2021](https://t.me/s/daily_light)
+[Thursday 05-August, 2021](https://t.me/s/daily_light)
 
 > Jonathan Bagster, the son of Samuel Bagster, created the Daily Light for his own family's daily devotion in 1875
 
