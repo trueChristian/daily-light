@@ -1,30 +1,28 @@
 # Morning
 
-**The Comforter, which is the Holy Ghost, whom the Father will send in my name.**
+**The path of the just is as the shining light, that shineth more and more unto the perfect day.**
  
-If thou knewest the gift of God, and who it is that saith to thee, Give me to drink; thou wouldest have asked of him, and he would have given thee living water. -- If ye ... being evil, know how to give good gifts unto your children: how much more shall your heavenly Father give the Holy Spirit to them that ask him? -- Verily, verily, I say unto you, Whatsoever ye shall ask the Father in my name, he will give it you. Hitherto have ye asked nothing in my name: ask, and ye shall receive, that your joy may be full. -- Ye have not, because ye ask not.
+Not as though I had already attained, either were already perfect: but I follow after, if that I may apprehend that for which also I am apprehended of Christ Jesus. -- Then shall we know, if we follow on to know the Lord.
  
-When ... the Spirit of truth is come, he will guide you into all truth: for he shall not speak of himself; but whatsoever he shall hear, that shall he speak: and he will shew you things to come. He shall glorify me: for he shall receive of mine, and shall shew it unto you.
- 
-They rebelled, and vexed his Holy Spirit: therefore he was turned to be their enemy, and He fought against them.  
+Then shall the righteous shine forth as the sun in the kingdom of their Father. -- We all, with open face beholding as in a glass the glory of the Lord, are changed into the same image from glory to glory, even as by the Spirit of the Lord. -- When that which is perfect is come, then that which is in part shall be done away. -- For now we see through a glass, darkly; but then face to face: now I know in part; but then shall I know even as also I am known. -- Beloved, now are we the sons of God; and it doth not yet appear what we shall be: but we know that, when he shall appear, we shall be like him, for we shall see him as he is. And every man that hath this hope in him purifieth himself, even as he is pure.  
 
-**John 14:26; John 4:10; Luke 11:13; John 16:23,24; Jas 4:2; John 16:13,14; Isa 63:10**
+**Prov 4:18; Phl 3:12; Hos 6:3; Matt 13:43; 2 Cor 3:18; 1 Cor 13:10,12; 1 John 3:2,3**
 
 # Evening
 
-**What think ye of Christ?**
+**Whosoever shall call upon the name of the Lord shall be saved.**
  
-Lift up your heads, O ye gates; even lift them up, ye everlasting doors; and the King of glory shall come in. Who is this King of glory? The Lord of hosts, he is the King of glory. -- He hath on his vesture and on his thigh a name written, KING OF KINGS, AND LORD OF LORDS.
+Him that cometh to me I will in no wise cast out. -- Lord, remember me when thou comest into thy kingdom. And Jesus said unto him, Verily I say unto thee, To day shalt thou be with me in paradise. -- What will ye that I shall do unto you? They say unto him, Lord, that our eyes may be opened. So Jesus had compassion on them, and touched their eyes: and immediately their eyes received sight, and they followed him.
  
-Unto you ... which believe he is precious: but unto them which be disobed-ient, the stone which the builders disallowed, the same is made the head of the corner. -- Christ crucified, unto the Jews a stumblingblock, and unto the Greeks foolishness; but unto them which are called, both Jews and Greeks, Christ the power of God, and the wisdom of God.
+If ye ... being evil, know how to give good gifts unto your children: how much more shall your heavenly Father give the Holy Spirit to them that ask him? -- I will put my Spirit within you. Thus saith the Lord GOD; I will yet for this be enquired of.
  
-I count all things but loss for the excellency of the knowledge of Christ Jesus my Lord: for whom I have suffered the loss of all things, and do count them but dung, that I may win Christ. -- Lord, thou knowest all things: thou knowest that I love thee.  
+This is the confidence that we have in him, that, if we ask any thing according to his will, he heareth us: and if we know that he hear us, what-soever we ask, we know that we have the petitions that we desired of him.  
 
-**Matt 22:42; Psa 24:9,10; Rev 9:16; 1 Pet 2:7; 1 Cor 1:23,24; Phl 3:8; John 21:17**
+**Rom 10:13; John 6:37; Luke 23:42,43; Matt 20:32‑34; Luke 11:13; Eze 6:27,37; 1 John 5:14,15**
 
 ---
 
-[Saturday 07-August, 2021](https://t.me/s/daily_light)
+[Sunday 08-August, 2021](https://t.me/s/daily_light)
 
 > Jonathan Bagster, the son of Samuel Bagster, created the Daily Light for his own family's daily devotion in 1875
 
