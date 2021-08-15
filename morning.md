@@ -1,11 +1,15 @@
 **Morning**
 
-**The joy of the Lord is your strength.**
+**The God of peace make you perfect in every good work to do his will.**
  
-Sing, O heavens; and be joyful, O earth; and break forth with singing, O mountains: for the LORD hath comforted his people and will have mercy upon his afflicted. -- Behold, God is my salvation; I will trust, and not be afraid: for the LORD JEHOVAH is my strength and my song; he also is become my salvation. -- The LORD is my strength and my shield; my heart trusted in him, and I am helped: therefore my heart greatly rejoiceth; and with my song will I praise him. -- My soul shall be joyful in my God; for he hath clothed me with the garments of salvation, he hath covered me with the robe of righteousness, as a bridegroom decketh himself with ornaments, and as a bride adorneth herself with her jewels.
+Be perfect, be of good comfort, be of one mind, live in peace; and the God of love and peace shall be with you.
  
-I have therefore whereof I may glory through Jesus Christ those things which pertain to God. -- We ... joy in God through our Lord Jesus Christ, by whom we have now received the atonement. -- I will joy in the God of my salvation.  
+By grace are ye saved through faith; and that not of yourselves: it is the gift of God; not of works, lest any man should boast. -- Every good gift and every perfect gift is from above, and cometh down from the Father of lights, with whom is no variableness neither shadow of turning.
+ 
+Work out your own salvation with fear and trembling. For it is God which worketh in you both to will and to do of his good pleasure. -- Be ye trans-formed by the renewing of your mind, that ye may prove what is that good, and acceptable, and perfect, will of God. -- Being filled with the fruits of righteousness, which are by Jesus Christ, unto the glory and praise of God.
+ 
+Not that we are sufficient of ourselves to think anything as of ourselves; but our sufficiency is of God.  
 
-**Neh 8:10; Isa 49:13; Isa 12:2; Psa 28:7; Isa 61:10; Rom 15:17; Rom 5:11; Hab 3:18**
+**Heb 13:20,21; 2 Cor 13:11; Eph 2:8,9; Jas 1:17; Phl 2:12,13; Rom 12:2; Phl 1:11; 2 Cor 3:5**
 
-[Saturday 14-August, 2021](https://t.me/daily_light)
+[Sunday 15-August, 2021](https://t.me/daily_light)
