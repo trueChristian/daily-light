@@ -1,32 +1,30 @@
 # Morning
 
-**Thou art my portion, O Lord.**
+**None of us liveth to himself, and no man dieth to himself.**
  
-All things are yours; ... and ye are Christ's; and Christ is God's. -- Our Saviour Jesus Christ ... gave himself for us. -- God gave him to be the head over all things to the church. -- Christ loved the church, and gave himself for it; that he might present it to himself a glorious church, not having spot, or wrinkle, or any such thing; but that it should be holy and without blemish.
+Whether we live, we live unto the Lord; and whether we die, we die unto the Lord: whether we live therefore, or die, we are the Lord's. -- Let no man seek his own: but every man another's wealth. -- Ye are bought with a price: therefore glorify God in your body, and in your spirit, which are God's.
  
-My soul shall make her boast in the LORD. -- I will greatly rejoice in the LORD, my soul shall be joyful in my God; for he hath clothed me with the garments of salvation, he hath covered me with the robe of righteousness.
+Christ shall be magnified in my body, whether it be by life, or by death. For to me to live is Christ, and to die is gain. But if I live in the flesh, this is the fruit of my labour: yet what I shall choose I wot not. For I am in a strait betwixt two, having a desire to depart, and to be with Christ; which is far better.
  
-Whom have I in heaven but thee? and there is none upon earth that I desire beside thee. My flesh and my heart faileth: but God is the strength of my heart, and my portion for ever. -- O my soul, thou hast said unto the LORD, Thou art my Lord. The LORD is the portion of mine inheritance and of my cup: thou maintamest my lot. The lines are fallen unto me in pleasant places; yea, I have a goodly heritage.  
+I through the law am dead to the law, that I might live unto God. I am crucified with Christ: nevertheless I live; yet not I, but Christ liveth in me: and the life which I now live in the flesh I live by the faith of the Son of God, who loved me, and gave himself for me.  
 
-**Psa 119:57; 1 Cor 3:21,23; Tit 2:13,14; Eph 1:22; Eph 5:25,27; Psa 34:2; Isa 61:10; Psa 73:25,26; Psa 16:2,5,6**
+**Rom 14:7; Rom 14:8; 1 Cor 10:24; 1 Cor 6:20; Phl 1:20-23; Gal 2:19,20**
 
 # Evening
 
-**There is a way which seemeth right unto a man, but the end thereof are the ways of death.**
+**God gave Solomon ... largeness of heart, even as the sand that is on the sea shore.**
  
-He that trusteth in his own heart is a fool.
+Behold, a greater than Solomon is here. -- The Prince of Peace.
  
-Thy word is a lamp unto my feet, and a light unto my path. -- Concerning the works of men, by the word of thy lips I have kept me from the paths of the destroyer.
+Scarcely for a righteous man will one die: yet peradventure for a good man some would even dare to die. But God commendeth his love toward us, in that, while we were yet sinners, Christ died for us. -- Who, being in the form of God, thought it not robbery to be equal with God: but made himself of no reputation, and took upon him the form of a servant, and was made in the likeness of men: and being found in fashion as a man, he humbled himself, and became obedient unto death, even the death of the cross. -- The love of Christ passeth knowledge.
  
-If there arise among you a prophet, or a dreamer of dreams, saying, Let us go after other gods, which thou hast not known, and let us serve them; thou shalt not hearken unto the words of that prophet: for the LORD your God proveth you, to know whether ye love the LORD your God with all your heart and with all your soul. Ye shall walk after the LORD your God, and fear him, and keep his commandments, and obey his voice, and ye shall serve him, and cleave unto him.
- 
-I will instruct thee and teach thee in the way which thou shalt go; I will guide thee with mine eye.  
+Christ the power of God, and the wisdom of God. -- In whom are hid all the treasures of wisdom and knowledge. -- The unsearchable riches of Christ. -- Of him are ye in Christ Jesus, who of God is made unto us wisdom, and righteousness, and sanctification, and redemption.  
 
-**Prov 14:12; Psa 28:26; Psa 119:105; Psa 17:4; Deut 13:1-4; Psa 32:8**
+**1 Kgs 4:29; Matt 12:42; Isa 9:6; Rom 5:7,8; Phl 2:6-8; Eph 3:19; 1 Cor 1:24; Col 2:3; Eph 3:8; 1 Cor 1:33**
 
 ---
 
-[Saturday 21-August, 2021](https://t.me/s/daily_light)
+[Sunday 22-August, 2021](https://t.me/s/daily_light)
 
 > Jonathan Bagster, the son of Samuel Bagster, created the Daily Light for his own family's daily devotion in 1875
 
