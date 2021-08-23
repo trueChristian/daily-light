@@ -1,13 +1,15 @@
 **Evening**
 
-**God gave Solomon ... largeness of heart, even as the sand that is on the sea shore.**
+**I have made, and I will bear.**
  
-Behold, a greater than Solomon is here. -- The Prince of Peace.
+Thus saith the LORD that created thee, O Jacob, and he that formed thee, O Israel, Fear not: for I have redeemed thee, I have called thee by thy name; thou art mine. When thou passest through the waters, I will be with thee; and through the rivers, they shall not overflow thee. -- Even to your old age I am he; and even to hoar hairs will I carry you.
  
-Scarcely for a righteous man will one die: yet peradventure for a good man some would even dare to die. But God commendeth his love toward us, in that, while we were yet sinners, Christ died for us. -- Who, being in the form of God, thought it not robbery to be equal with God: but made himself of no reputation, and took upon him the form of a servant, and was made in the likeness of men: and being found in fashion as a man, he humbled himself, and became obedient unto death, even the death of the cross. -- The love of Christ passeth knowledge.
+As an eagle stirreth up her nest, fluttereth over her young, spreadeth abroad her wings, taketh them, beareth them on her wings: so the LORD alone did lead him. -- He bare them, and carried them all the days of old.
  
-Christ the power of God, and the wisdom of God. -- In whom are hid all the treasures of wisdom and knowledge. -- The unsearchable riches of Christ. -- Of him are ye in Christ Jesus, who of God is made unto us wisdom, and righteousness, and sanctification, and redemption.  
+Jesus Christ the same yesterday, and today, and forever. -- For I am persuaded, that neither ... height, nor depth, nor any other creature, shall be able to separate us from the love of God, which is in Christ Jesus our Lord.
+ 
+Can a woman forget her sucking child, that she should not have compassion on the son of her womb? yea, they may forget, yet will I not forget thee.  
 
-**1 Kgs 4:29; Matt 12:42; Isa 9:6; Rom 5:7,8; Phl 2:6-8; Eph 3:19; 1 Cor 1:24; Col 2:3; Eph 3:8; 1 Cor 1:33**
+**Isa 46:4; Isa 43:1,2; Isa 46:4; Deut 32:11,12; Isa 63:9; Heb 13:8; Rom 8:38,39; Isa 49:15**
 
-[Sunday 22-August, 2021](https://t.me/daily_light)
+[Monday 23-August, 2021](https://t.me/daily_light)
