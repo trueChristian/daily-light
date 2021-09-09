@@ -1,13 +1,13 @@
 **Morning**
 
-**Thou art weighed in the balances, and art found wanting**.
+**He hath filled the hungry with good things; and the rich he hath sent empty away.**
  
-The LORD is a God of knowledge, and by him, actions are weighed. -- That which is highly esteemed among men is abomination in the sight of God. -- The LORD seeth not as man seeth; for man looketh on the outward appearance, but the LORD looketh on the heart. -- Be not deceived, God is not mocked: for whatsoever a man soweth, that shall he also reap. For he that soweth to his flesh shall of the flesh reap corruption; but he that soweth to the Spirit shall of the spirit reap life everlasting.
+Thou sayest, I am rich, and increased with goods and have need of nothing: and knowest not that thou art wretched, and miserable, and poor, and blind, and naked. I counsel thee to buy of me gold tried in the fire, that thou mayest be rich. As many as I love, I rebuke and chasten: be zealous therefore and repent.
  
-What is a man profited if he shall gain the whole world, and lose his own soul? or what shall a man give in exchange for his soul? -- What things were gain to me, those I counted loss for Christ.
+Blessed are they which do hunger and thirst after righteousness: for they shall be filled. -- When the poor and needy seek water, and there is none, and their tongue faileth for thirst, I the LORD will hear them, I the God of Israel will not forsake them. -- I am the Lord thy God ... open thy mouth wide and I will fill it.
  
-Behold, thou desirest truth in the inward parts. -- Thou hast proved mine heart; thou hast visited me in the night; thou hast tried me, and shalt find nothing.  
+Wherefore do ye spend money for that which is not bread? and your labour for that which satisfieth not? hearken diligently unto me, and eat ye that which is good, and let your soul delight itself in fatness. -- I am the bread of life: he that cometh to me shall never hunger; and he that believeth on me shall never thirst.  
 
-**Dan 5:27; 1 Sam 2:3; Luke 16:15; 1 Sam 16:7; Gal 6:7,8; Matt 16:26; Phl 3:7; Psa 51:6; Psa 17:3**
+**Luke 1:53; Rev 3:17-19; Matt 5:6; Isa 41:17; Psa 81:10; Isa 55:2; John 6:35**
 
-[Wednesday 08-September, 2021](https://t.me/daily_light)
+[Thursday 09-September, 2021](https://t.me/daily_light)

@@ -1,13 +1,17 @@
 **Evening**
 
-**Christ the firstfruits.**
+**My feet were almost gone; my steps had well nigh slipped.**
  
-Except a corn of wheat fall into the ground and die, it abideth alone: but if it die, it bringeth forth much fruit. -- If the firstfruit be holy the lump is also holy : and if the root be holy, so are the branches. -- Now is Christ risen from the dead, and become the firstfruits of them that slept. -- If we have been planted together in the likeness of his death we shall be also in the likeness of his resurrection. -- The Lord Jesus Christ ... shall change our vile body, that it may be fashioned like unto his glorious body, according to the working whereby he is able even to subdue all things unto himself.
+When I said, My foot slippeth; thy mercy, O LORD, held me up.
  
-The firstborn from the dead. -- If the Spirit of him that raised up Jesus from the dead dwell in you, he that raised up Christ from the dead shall also quicken our mortal bodies by his Spirit that dwelleth in you.
+The Lord said, Simon, Simon, behold Satan hath desired to have you, that he may sift you as wheat: but I have prayed for thee, that thy faith fail not.
  
-I am the resurrection, and the life: he that believeth in me, though he were dead, yet shall he live.  
+A just man falleth seven times, and riseth up again. -- Although he fall, he shall not be utterly cast down: for the LORD upholdeth him with his hand.
+ 
+Rejoice not against me, O my enemy: when I fall, I shall arise: when I sit in darkness, the Lord shall be a light unto me. -- He shall deliver thee in six troubles: yea, in seven there shall no evil touch thee.
+ 
+If any man sin, we have an advocate with the Father, Jesus Christ the righteous. -- Wherefore he is able also to save them to the uttermost that come unto God by him, seeing he ever liveth to make intercession for them.  
 
-**1 Cor 15:23; John 12:24; Rom 11:16; 1 Cor 15:20; Rom 6:5; Phl 3:20,21; Col 1:18; Rom 8:11; John 11:25**
+**Psa 73:2; Psa 94:18; Luke 22:31,32; Prov 24:16; Psa 37:24; Mic 7:8; Job 5:19; 1 John 2:1; Heb 7:25**
 
-[Wednesday 08-September, 2021](https://t.me/daily_light)
+[Thursday 09-September, 2021](https://t.me/daily_light)
