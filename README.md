@@ -1,34 +1,32 @@
 # Morning
 
-**He hath filled the hungry with good things; and the rich he hath sent empty away.**
+**I will give them one heart, and one way, that they may fear me forever, for the good of them, and of their children after them.**
  
-Thou sayest, I am rich, and increased with goods and have need of nothing: and knowest not that thou art wretched, and miserable, and poor, and blind, and naked. I counsel thee to buy of me gold tried in the fire, that thou mayest be rich. As many as I love, I rebuke and chasten: be zealous therefore and repent.
+A new heart ... will I give you and a new spirit will I put within you. -- Good and upright is the LORD: therefore will he teach sinners in the way. The meek will he guide in judgment: and the meek will he teach his way. All the paths of the LORD are mercy and truth unto such as keep his covenant and his testimonies.
  
-Blessed are they which do hunger and thirst after righteousness: for they shall be filled. -- When the poor and needy seek water, and there is none, and their tongue faileth for thirst, I the LORD will hear them, I the God of Israel will not forsake them. -- I am the Lord thy God ... open thy mouth wide and I will fill it.
+That they all may be one; as thou, Father, art in me, and I in thee, that they also may be one in us: that the world may believe that thou hast sent me.
  
-Wherefore do ye spend money for that which is not bread? and your labour for that which satisfieth not? hearken diligently unto me, and eat ye that which is good, and let your soul delight itself in fatness. -- I am the bread of life: he that cometh to me shall never hunger; and he that believeth on me shall never thirst.  
+I ... beseech you that ye walk worthy of the vocation wherewith ye are called, with all lowliness and meekness, ... endeavouring to keep the unity of the Spirit in the bond of peace. There is one body, and one Spirit, even as ye are called in one hope of your calling; one Lord, one faith, one baptism, one God and Father of all, who is above all, and through all, and in you all.  
 
-**Luke 1:53; Rev 3:17-19; Matt 5:6; Isa 41:17; Psa 81:10; Isa 55:2; John 6:35**
+**Jer 32:39; Ezek 36:26; Psa 25:8-10; John 17:21; Eph 4:1-6**
 
 # Evening
 
-**My feet were almost gone; my steps had well nigh slipped.**
+**They that wait upon the Lord shall renew their strength. (Or, change strength.)**
  
-When I said, My foot slippeth; thy mercy, O LORD, held me up.
+When I am weak, then am I strong. -- God shall be my strength. -- He said unto me, My grace is sufficient for thee: for my strength is made perfect in weakness. Most gladly therefore will I rather glory in my infirmities, that the power of Christ may rest upon me. -- Let him take hold of my strength.
  
-The Lord said, Simon, Simon, behold Satan hath desired to have you, that he may sift you as wheat: but I have prayed for thee, that thy faith fail not.
+Cast thy burden upon the LORD, and he shall sustain thee. -- The arms of his hands were made strong by the hands of the mighty God of Jacob.
  
-A just man falleth seven times, and riseth up again. -- Although he fall, he shall not be utterly cast down: for the LORD upholdeth him with his hand.
+I will not let thee go, except thou bless me.
  
-Rejoice not against me, O my enemy: when I fall, I shall arise: when I sit in darkness, the Lord shall be a light unto me. -- He shall deliver thee in six troubles: yea, in seven there shall no evil touch thee.
- 
-If any man sin, we have an advocate with the Father, Jesus Christ the righteous. -- Wherefore he is able also to save them to the uttermost that come unto God by him, seeing he ever liveth to make intercession for them.  
+Thou comest to me with a sword, and with a spear, and with a shield: but I come to thee in the name of the LORD of hosts, the God of the armies of Israel, whom thou hast defied. -- Plead my cause, O LORD, with them that strive with me: fight against them that fight against me. Take hold of shield and buckler, and stand up for mine help.  
 
-**Psa 73:2; Psa 94:18; Luke 22:31,32; Prov 24:16; Psa 37:24; Mic 7:8; Job 5:19; 1 John 2:1; Heb 7:25**
+**Isa 40:31; 2 Cor 12:10; Isa 49:5; 2 Cor 12:9; Isa 27:5; Psa 55:22; Gen 49:24; Gen 32:26; 1 Sam 17:45; Psa 35:1,2**
 
 ---
 
-[Thursday 09-September, 2021](https://t.me/s/daily_light)
+[Friday 10-September, 2021](https://t.me/s/daily_light)
 
 > Jonathan Bagster, the son of Samuel Bagster, created the Daily Light for his own family's daily devotion in 1875
 

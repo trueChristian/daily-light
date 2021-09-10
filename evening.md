@@ -1,17 +1,15 @@
 **Evening**
 
-**My feet were almost gone; my steps had well nigh slipped.**
+**They that wait upon the Lord shall renew their strength. (Or, change strength.)**
  
-When I said, My foot slippeth; thy mercy, O LORD, held me up.
+When I am weak, then am I strong. -- God shall be my strength. -- He said unto me, My grace is sufficient for thee: for my strength is made perfect in weakness. Most gladly therefore will I rather glory in my infirmities, that the power of Christ may rest upon me. -- Let him take hold of my strength.
  
-The Lord said, Simon, Simon, behold Satan hath desired to have you, that he may sift you as wheat: but I have prayed for thee, that thy faith fail not.
+Cast thy burden upon the LORD, and he shall sustain thee. -- The arms of his hands were made strong by the hands of the mighty God of Jacob.
  
-A just man falleth seven times, and riseth up again. -- Although he fall, he shall not be utterly cast down: for the LORD upholdeth him with his hand.
+I will not let thee go, except thou bless me.
  
-Rejoice not against me, O my enemy: when I fall, I shall arise: when I sit in darkness, the Lord shall be a light unto me. -- He shall deliver thee in six troubles: yea, in seven there shall no evil touch thee.
- 
-If any man sin, we have an advocate with the Father, Jesus Christ the righteous. -- Wherefore he is able also to save them to the uttermost that come unto God by him, seeing he ever liveth to make intercession for them.  
+Thou comest to me with a sword, and with a spear, and with a shield: but I come to thee in the name of the LORD of hosts, the God of the armies of Israel, whom thou hast defied. -- Plead my cause, O LORD, with them that strive with me: fight against them that fight against me. Take hold of shield and buckler, and stand up for mine help.  
 
-**Psa 73:2; Psa 94:18; Luke 22:31,32; Prov 24:16; Psa 37:24; Mic 7:8; Job 5:19; 1 John 2:1; Heb 7:25**
+**Isa 40:31; 2 Cor 12:10; Isa 49:5; 2 Cor 12:9; Isa 27:5; Psa 55:22; Gen 49:24; Gen 32:26; 1 Sam 17:45; Psa 35:1,2**
 
-[Thursday 09-September, 2021](https://t.me/daily_light)
+[Friday 10-September, 2021](https://t.me/daily_light)
