@@ -1,30 +1,34 @@
 # Morning
 
-**Ii any man thirst, let him come unto me, and drink.**
+**I, even I, am he that comforteth you.**
  
-My soul longeth, yea, even fainteth for the courts of the LORD: my heart and my flesh crieth out for the living God. -- O God, thou art my God; early will I seek thee: my soul thirsteth for thee, my flesh longeth for thee in a dry and thirsty land where no water is; to see thy power and thy glory, so as I have seen thee in the sanctuary.
+Blessed be God, even the Father of our Lord Jesus Christ, the father of mercies, and the God of all comfort; who comforteth us in all our tribulation, that we may be able to comfort them which are in any trouble, by the comfort wherewith we ourselves are comforted of God. -- Like as a father pitieth his children, so the LORD pitieth them that fear him. For he knoweth our frame; he remembereth that we are dust. -- As one whom his mother comforteth, so will I comfort you. -- Casting all your care upon him, for he careth for you.
  
-Ho, every one that thirsteth, come ye to the waters, and he that hath no money; come ye, buy, and eat; yea, come, buy wine and milk without money and without price. -- The Spirit and the bride say, Come. And let him that heareth say, Come. And let him that is athirst come. And whosoever will, let him take the water of life freely. -- Whosoever drinketh of the water that I shall give him shall never thirst; but the water that I shall give him shall be in him a well of water springing up into everlasting life. -- My blood is drink indeed.
+Thou, O Lord, art a God full of compassion, and gracious, longsuffering, and plenteous in mercy and truth.
  
-Eat, O friends; drink, yea, drink abundantly, O beloved.  
+Another Comforter ... even the Spirit of truth. -- The Spirit ... helpeth our infirmities.
+ 
+God shall wipe away all tears from their eyes; and there shall be no more death, neither sorrow, nor crying, neither shall there be any more pain: for the former things are passed away.  
 
-**John 7:37; Psa 84:2; Psa 63:1,2; Isa 55:1; Rev 22:17; John 4:14; John 6:55; Song 5:1**
+**Isa 51:12; 2 Cor 1:3,4; Psa 103:3,14; Isa 66:13; 1 Pet 5:7; Psa 86:15; John 14:16,17; Rom 8:26; Rev 21:4**
 
 # Evening
 
-**Ye are the salt of the earth**.
+**Ye were called unto the fellowship of his Son**.
  
-That which is not corruptible. -- Being born again, not of corruptible seed, but of incorruptible, by the word of God, which liveth and abideth for ever. -- He that believeth in me, though he were dead, yet shall he live. -- The children of God, being the children of the resurrection. -- The uncorruptible God.
+He received from God the Father honour and glory, when there came such a voice to him from the excellent glory, This is my beloved Son, in whom I am well pleased. -- Behold, what manner of love the Father hath bestowed upon us, that we should be called the sons of God.
  
-If any man have not the Spirit of Christ, he is none of his. And if Christ be in you, the body is dead because of sin; but the Spirit is life because of righteousness. But if the Spirit of him that raised up Jesus from the dead dwell in you, he that raised up Christ from the dead shall also quicken your mortal bodies by his Spirit that dwelleth in you. -- It is sown in corruption; it is raised in incorruption.
+Be ye ... followers of God, as dear children. -- If children, then heirs; heirs of God, and joint heirs with Christ.
  
-Have salt in yourselves, and have peace one with another. -- Let no corrupt communication proceed out of your mouth, but that which is good to the use of edifying, that it may minister grace unto the hearers.  
+The brightness of his glory, and the express image of his person. -- Let your light so shine before men, that they may see your good works, and glorify your Father which is in heaven.
+ 
+Jesus the author and finisher of our faith; who for the joy that was set before him endured the cross, despising the shame. -- These things I speak in the world, that they might have my joy fulfilled in themselves. -- As the sufferings of Christ abound in us, so our consolation also aboundeth by Christ.  
 
-**Matt 5:13; 1 Pet 3:4; 1 Pet 1:23; John 11:25; Luke 20:36; Rom 1:23; Rom 5:9-11; 1 Cor 15:42; Mark 9:50; Eph 4:29**
+**1 Cor 1:9; 2 Pet 1:17; 1 John 3:1; Eph 5:1; Rom 8:17; Heb 1:3; Matt 5:16; Heb 12:2; John 17:13; 2 Cor 1:5**
 
 ---
 
-[Monday 13-September, 2021](https://t.me/s/daily_light)
+[Tuesday 14-September, 2021](https://t.me/s/daily_light)
 
 > Jonathan Bagster, the son of Samuel Bagster, created the Daily Light for his own family's daily devotion in 1875
 
