@@ -1,17 +1,13 @@
 **Evening**
 
-**O taste and see that the Lord is good: blessed is the man that trusteth in him.**
+**En hakkore. (Or, The well of him that cried.)**
  
-When the ruler of the feast had tasted the water that was made wine, and knew not whence it was: he saith, ... Every man at the beginning doth set forth good wine; and when men have well drunk, then that which is worse: but thou hast kept the good wine until now.
+If thou knewest the gift of God, and who it is that saith unto thee, Give me to drink; thou wouldest have asked of him, and he would have given thee living water. -- If any man thirst, let him come unto me and drink. This spake he of the Spirit, which they that believe on him should receive.
  
-The ear trieth words, as the mouth tasteth meat. --I believed, and therefore have I spoken. -- I know whom I have believed. -- I sat down under his shadow with great delight, and his fruit was sweet to my taste.
+Prove me now herewith, saith the LORD of hosts, if I will not open you the windows of heaven, and pour you out a blessing, that there shall not be room enough to receive it. -- If ye, ... being evil, know how to give good gifts unto your children: how much more shall your heavenly Father give the Holy Spirit to them that ask him? -- Ask, and it shall be given you; seek, and ye shall find.
  
-The goodness of God. -- He that spared not his own Son, but delivered him up for us all, how shall he not with him also freely give us all things?
- 
-As newborn babes, desire the sincere milk of the word, that ye may grow thereby: if so be ye have tasted that the Lord is gracious.
- 
-Let all those that put their trust in thee rejoice: let them ever shout for joy.  
+Because ye are sons, God hath sent forth the Spirit of his Son into your hearts, crying, Abba, Father. -- Ye have not received the spirit of bondage again to fear; but ye have received the Spirit of adoption, whereby we cry, Abba, Father.  
 
-**Psa 34:8; John 2:9,10; Job 34:3; 2 Cor 4:13; 2 Tim 1:12; Song 2:3; Rom 2:4; Rom 8:32; 1 Pet 2:2,3; Psa 5:11**
+**Judg 15:19; John 4:10; John 7:37,39; Mal 3:10; Luke 11:13; Luke 11:9; Gal 4:6; Rom 8:15**
 
-[Friday 17-September, 2021](https://t.me/daily_light)
+[Saturday 18-September, 2021](https://t.me/daily_light)
