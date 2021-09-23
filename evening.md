@@ -1,13 +1,13 @@
 **Evening**
 
-**O my Father, if it be possible, let this cup pass from me: nevertheless not as I will, but as thou wilt.**
+**He that overcometh shall inherit all things**.
  
-Now is my soul troubled; and what shall I say? Father, save me from this hour: but for this cause came I unto this hour.
+If in this life only we have hope in Christ, we are of all men most miserable. -- Now they desire a better country, that is, an heavenly: wherefore God is not ashamed to be called their God; for he hath prepared for them a city. -- An inheritance incorruptible, and undefiled, and that fadeth not away, reserved in heaven for you.
  
-I came down from heaven, not to do mine own will, but the will of him that sent me. -- He ... became obedient unto death, even the death of the cross. -- In the days of his flesh, when he had offered up prayers and supplications with strong crying and tears unto him that was able to save him from death, and was heard in that he feared; though he were a Son, yet learned he obed-ience by the things which he suffered.
+All things are your's; ... the world, or life, or death, or things present, or things to come; all are your's. -- Eye hath not seen, nor ear heard, neither have entered into the heart of man, the things which God hath prepared for them that love him. But God hath revealed them unto us by his Spirit.
  
-Thinkest thou that I cannot now pray to my Father, and he shall presently give me more than twelve legions of angels? -- Thus it is written, and thus it behooved Christ to suffer, and to rise from the dead the third day: and that repentance and remission of sins should be preached in his name among all nations, beginning at Jerusalem.  
+Look to yourselves, that we lose not those things which we have wrought, but that we receive a full reward. -- Let us lay aside every weight, and the sin which doth so easily beset us, and let us run with patience the race that is set before us.  
 
-**Matt 26:39; John 12:27; John 6:38; Phl 2:8; Heb 5:7,8; Matt 26:53; Luke 24:46,47**
+**Rev 21:7; 1 Cor 15:19; Heb 11:16; 1 Pet 1:4; 1 Cor 3:21,22; 1 Cor 2:9,10; 2 John 8; Heb 12:1**
 
-[Wednesday 22-September, 2021](https://t.me/daily_light)
+[Thursday 23-September, 2021](https://t.me/daily_light)

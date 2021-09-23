@@ -1,19 +1,15 @@
 **Morning**
 
-**My meditation of him shall be sweet: I will be glad in the Lord.**
+**Our God hath not forsaken us.**
  
-As the apple tree among the trees of the wood, so is my beloved among the sons. I sat down under his shadow with great delight, and his fruit was sweet to my taste. -- For who in the heaven can be compared unto the LORD? who among the sons of the mighty can be likened unto the LORD?
+Beloved, think it not strange concerning the fiery trial which is to try you, as though some strange thing happened unto you. -- If ye endure chastening, God dealeth with you as with sons; for what son is he whom the father chasteneth not? But if ye be without chastisement, whereof all are partakers, then are ye bastards, and not sons.
  
-My beloved is white and ruddy, the chiefest among ten thousand. -- One pearl of great price. -- The prince of the kings of the earth.
+The LORD your God proveth you, to know whether ye love the LORD your God with all your heart and with all your soul.
  
-His head is as the most fine gold, his locks are bushy, and black as a raven. -- The head over all things. -- He is the head of the body, the church.
+The LORD will not forsake his people for his great name's sake: because it hath pleased the LORD to make you his people. -- Can a woman forget her sucking child, that she should not have compassion on the son of her womb? yea, they may forget, yet will I not forget thee. -- Happy is he that hath the God of Jacob for his help, whose hope is in the LORD his God.
  
-His cheeks are as a bed of spices, as sweet flowers. -- He could not be hid.
- 
-His lips like lilies, dropping sweet smelling myrrh. -- Never man spake like this man.
- 
-His countenance is as Lebanon, excellent as the cedars. -- Make thy face to shine upon thy servant. -- LORD, lift thou up the light thy countenance upon us.  
+Shall not God avenge his own elect, which cry day and night unto him, though he bear long with them? I tell you that he will avenge them speedily.  
 
-**Psa 104:34; Song 2:3; Psa 89:6; Song 5:10; Matt 13:46; Rev 1:5; Song 5:11; Eph 1:22; Col 1:18; Song 5:13; Mark 7:24; Song 5:13; John 7:46; Song 5:15; Psa 31:16; Psa 4:6**
+**Ezra 9:9; 1 Pet 4:12; Heb 12:7,8; Deut 13:3; 1 Sam 12:22; Isa 49:15; Psa 146:5; Luke 18:7,8**
 
-[Wednesday 22-September, 2021](https://t.me/daily_light)
+[Thursday 23-September, 2021](https://t.me/daily_light)
