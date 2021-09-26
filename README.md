@@ -1,32 +1,34 @@
 # Morning
 
-**It is good for me to draw near to God.**
+**A God of truth and without iniquity, just and right is he.**
  
-LORD,  I have loved the habitation of thy house, and the place where thine  honour dwelleth. - A day in thy courts is better than a thousand. I had  rather be a door keeper in the house of my God, than to dwell in the  tents of wickedness. - Blessed is the man whom thou choosest, and  causest to approach unto thee, that he may dwell in thy courts: we shall  be satisfied with the goodness of thy house, even of thy holy temple.
+Him that judgeth righteously. -- We must all appear before the judgment seat of Christ; that every one may receive the things done in his body, according to that he hath done, whether it be good or bad. -- Every one of us shall give account of himself to God. -- The soul that sinneth it shall die.
  
-The  LORD is good unto them that wait for him, to the soul that seeketh him.  - Therefore will the LORD wait that he may be gracious unto you, and  therefore will he be exalted that he may have mercy upon you: for the  LORD is a God of judgment: blessed are all they that wait for him.
+Awake, O sword, against my shepherd, and against the man that is my fellow, saith the LORD of hosts: smite the shepherd. -- The LORD hath laid on him the iniquity of us all. -- Mercy and truth are met together: righteousness and peace have kissed each other. -- Mercy rejoiceth against judgment. -- The wages of sin is death; but the gift of God is eternal life through Jesus Christ our Lord.
  
-Having  therefore, brethren, boldness to enter into the holiest by the blood of  Jesus, by a new and living way, which he hath consecrated for us: ...  let us draw near with a true heart in full assurance of faith, having  our hearts sprinkled from an evil conscience.  
+A just God and a Saviour; there is none beside me. -- Just, and the justifier of him which believeth in Jesus. -- Justified freely by his grace through the redemption that is in Christ Jesus.  
 
-**Psa 73:28; Psa 26:8; Psa 84:10; Psa 65:4; Lam 3:25; Isa 30:18; Heb 10:19,20,22**
+**Deut 32:4; 1 Pet 2:23; 2 Cor 5:10; Rom 14:12; Ezek 18:4; Zech 13:7; Isa 53:6; Psa 85:10; Isa 2:13; Rom 6:23; Isa 45:21; Rom 3:26; Rom 3:24**
 
 # Evening
 
-**Ye know the grace of our Lord Jesus Christ.**
+**Death is swallowed up in victory.**
  
-The  Word was made flesh, and dwelt among us, (and we beheld his glory, the  glory as of the only begotten of the Father,) full of grace and truth. -  Thou are fairer than the children of men: grace is poured into thy  lips. - All bare him witness, and wondered at the gracious words which  proceeded out of his mouth.
+Thanks be to God, which giveth us the victory through our Lord Jesus Christ.
  
-Ye have tasted that the Lord is  gracious. - He that believeth on the Son of God hath the witness in  himself. - We speak that we do know, and testify that we have seen.
+Forasmuch ... as the children are partakers of flesh and blood, he also himself likewise took part of the same; that through death he might destroy him that had the power of death, that is, the devil; and deliver them who through fear of death were all their lifetime subject to bondage.
  
-O  taste and see that the LORD is good: blessed is the man that trusteth  in him. - I sat down under his shadow with great delight, and his fruit  was sweet to my taste.
+If we be dead with Christ, we believe that we shall also live with him: knowing that Christ being raised from the dead dieth no more; death hath no more dominion over him. For in that he died, he died unto sin once: but in that he liveth, he liveth unto God.
  
-He said unto me, My grace is sufficient  for thee: for my strength is made perfect in weakness. - Unto every one  of us is given grace according to the measure of the gift of Christ. -  As every man hath received the gift, even so minister the same one to  another, as good stewards of the manifold grace of God.  
+Likewise reckon ye also yourselves to be dead indeed unto sin, but alive unto God through Jesus Christ our Lord.
+ 
+In all these things we are more than conquerors through him that loved us.  
 
-**2 Cor 8:9; John 1:14; Psa 45:2; Luke 4:22; 1 Pet 2:3; 1 John 5:10; John 3:11; Psa 34:8; Song 2:3; 2 Cor 12:9; Eph 4:7; 1 Pet 4:10**
+**1 Cor 15:54; 1 Cor 15:57; Heb 2:14,15; Rom 6:8-10; Rom 6:11; Rom 8:37**
 
 ---
 
-[Saturday 25-September, 2021](https://t.me/s/daily_light)
+[Sunday 26-September, 2021](https://t.me/s/daily_light)
 
 > Jonathan Bagster, the son of Samuel Bagster, created the Daily Light for his own family's daily devotion in 1875
 
