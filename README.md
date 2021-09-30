@@ -1,34 +1,30 @@
 # Morning
 
-**Hereby perceive we the love of God, because he laid down his life for us.**
+**He knoweth the way that I take: when he hath tried me, I shall come forth as gold.**
  
-The love of Christ, which passeth knowledge. -- Greater love hath no man than this, that a man lay down his life for his friends. Ye know the grace of our Lord Jesus Christ, that, though he was rich, yet for your sakes he became poor, that ye through his poverty might be rich. -- Beloved, if God so loved us, we ought also to love one another. -- Be ye kind one to another, tender-hearted, forgiving one another, even as God for Christ's sake hath forgiven you. -- Forbearing one another, and forgiving one another, if any man have a quarrel against any: even as Christ forgave you, so also do ye. -- For even the Son of man came not to be ministered unto, but to minister, and to give his life a ransom for many. -- Christ ... suffered for us, leaving us an example, that ye should follow his steps.
+He knoweth our frame. -- He doth not afflict willingly nor grieve the children of men.
  
-Ye also ought to wash one another’s feet. For I have given you an example, that ye should do as I have done to you. -- We ought to lay down our lives for the brethren.  
+The foundation of God standeth sure, having this seal, The Lord knoweth them that are his. And, Let every one that nameth the name of Christ depart from iniquity. But in a great house there are not only vessels of gold and of silver, but also of wood and of earth; and some to honour, and some to dishonour. If a man therefore purge himself from these, he shall be a vessel unto honour, sanctified, and meet for the master's use, and prepared unto every good work.
+ 
+He shall sit as a refiner and purifier of silver: and he shall purify the sons of Levi, and purge them as gold and silver, that they may offer unto the LORD an offering in righteousness. -- I ... will refine them as silver is refined, ... they shall call on my name, and I will hear them: I will say, It is my people: and they shall say, the LORD is my God.  
 
-**1 John 3:16; Eph 3:19; John 15:13; 2 Cor 8:9; 1 John 4:11; Eph 4:32; Col 3:13; Mark 10:4,5; 1 Pet 2:21; John 13:14,15; 1 John 3:16**
+**Job 23:10; Psa 103:14; Lam 3:33; 2 Tim 2:19-21; Mal 3:3; Zech 13:9**
 
 # Evening
 
-**What things soever the Father doeth, these also doeth the Son likewise.**
+**Shew me thy ways, O Lord; teach me thy paths.**
  
-The LORD giveth wisdom: out of his mouth cometh knowledge and understanding. -- I will give you a mouth and wisdom, which all your adversaries shall not be able to gainsay nor resist.
+Moses said unto the LORD, I pray thee, if I have found grace in thy sight, shew me now thy way, that I may know thee. And he said, My presence shall go with thee, and I will give thee rest. -- He made known his ways unto Moses, his acts unto the children of Israel.
  
-Wait on the LORD: be of good courage, and he shall strengthen thine heart. -- My grace is sufficient for thee: for my strength is made perfect in weak-ness.
+The meek will he guide in judgment; and the meek will he teach his way. What man is he that feareth the LORD? him shall teach in the way that he shall choose. -- Trust in the LORD with all thine heart; and lean not unto thine own understanding. In all thy ways acknowledge him, and he shall direct thy paths.
  
-Them that are sanctified by God the Father. -- He that sanctifieth and they who are sanctified are all of one: for which cause he is not ashamed to call them brethren.
- 
-Do not I fill heaven and earth? saith the LORD. -- The fulness of him that filleth all in all.
- 
-I, even I, am the LORD; and beside me there is no saviour. -- This is indeed the Christ, the Saviour of the world.
- 
-Grace, mercy, and peace, from God the Father and the Lord Jesus Christ our Saviour.  
+Thou wilt shew me the path of life: in thy presence is fulness of joy; at thy right hand there are pleasures for evermore. -- I will instruct thee and teach thee in the way which thou shalt go: I will guide thee with mine eye. -- The path of the just is as the shining light, that shineth more and more unto the perfect day.  
 
-**John 5:19; Prov 2:6; Luke 21:15; Psa 27:14; 2 Cor 12:9; Jude 1; Heb 2:11; Jer 23:24; Eph 1:23; Isa 43:11; John 4:42; Tit 1:4**
+**Psa 25:4; Exo 33:12-14; Psa 103:7; Psa 25:9,12; Prov 3:5,6; Psa 16:11; Psa 32:8; Prov 4:18**
 
 ---
 
-[Wednesday 29-September, 2021](https://t.me/s/daily_light)
+[Thursday 30-September, 2021](https://t.me/s/daily_light)
 
 > Jonathan Bagster, the son of Samuel Bagster, created the Daily Light for his own family's daily devotion in 1875
 
