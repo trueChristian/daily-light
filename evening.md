@@ -1,15 +1,11 @@
 **Evening**
 
-**Grow up into him in all things, which is the head, even Christ.**
+**Who maketh thee to differ from another? and what hast thou that thou didst not receive?**
  
-First the blade, then the ear, after that the full corn in the ear. -- Till we all come to the unity of the faith, and of the knowledge of the Son of God, unto a perfect man, unto the measure of the stature of the fulness of Christ.
+By the grace of God I am what I am. -- Of his own will begat he us with the word of truth. -- It is not of him that willeth, nor of him that runneth, but of God that sheweth mercy. -- Where is boasting then? It is excluded. -- Christ Jesus, ... is made unto us wisdom, and righteousness, and sanctification, and redemption: ... He that glorieth let him glory in the Lord.
  
-They measuring themselves by themselves, and comparing themselves among themselves, are not wise. But he that glorieth, let him glory in the Lord. For not he that commendeth himself is approved, but whom the Lord commendeth.
- 
-The body is of Christ. Let no man beguile you of your reward in a voluntary humility and worshipping of angels, intruding into those things which he hath not seen, vainly puffed up by his fleshly mind, and not holding the Head from which all the body by joints and bands, having nourishment ministered and knit together, increaseth with the increase of God.
- 
-Grow in grace, and in the knowledge of our Lord and Saviour Jesus Christ.  
+You hath he quickened, who were dead in trespasses and sins; wherein in time past ye walked according to the course of this world, according to the prince of the power of the air, the spirit that now worketh in the children of disobedience: among whom also we all had our conversation in times past in the lusts of our flesh, fulfilling the desires of the flesh and of the mind; and were by nature the children of wrath, even as others. -- Ye are washed, ... ye are sanctified, ... ye are justified in the name of the Lord Jesus, and by the Spirit of our God.  
 
-**Eph 4:15; Matt 4:28; Eph 4:13; 2 Cor 10:12,17,18; Col 2:17-19; 2 Pet 3:18**
+**1 Cor 4:7; 1 Cor 15:10; Jas 1:18; Rom 9:16; Rom 3:27; 1 Cor 1:30,31; Eph 2:1-3; 1 Cor 6:11**
 
-[Friday 01-October, 2021](https://t.me/daily_light)
+[Saturday 02-October, 2021](https://t.me/daily_light)
