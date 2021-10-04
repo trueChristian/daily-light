@@ -1,13 +1,17 @@
 **Evening**
 
-**There are differences of administrations, but the same Lord.**
+**There are diversities of operations, but it is the same God which worketh all in all.**
  
-Over the king's treasures was Azmaveth the son of Adiel: and over the storehouses ... Jehonathan: and over them that did the work of the field for tillage of the ground was Ezri: and over the vineyards was Shimei. These were the rulers of the substance which was king David's.
+There fell some of Manasseh to David. And they helped David against the band of the rovers: for they were all mighty men of valour. -- The mani-festation of the spirit is given to every man to profit withal.
  
-God hath set some in the church, first apostles, secondarily prophets, thirdly teachers, after that miracles, then gifts of healings, helps, governments, diversities of tongues. All these worketh that one and the selfsame Spirit, dividing to every man severally as he will.
+Of the children of Issachar, which were men that had understanding of the times, to know what Israel ought to do. -- To one is given by the Spirit ... the word of wisdom, to another the word of knowledge by the same Spirit.
  
-As every man hath received the gift, even so minister the same one to another, as good stewards of the manifold grace of God. If any man speak, let him speak as the oracles of God; if any man minister, let him do it as of the ability which God giveth: that God in all things may be glorified through Jesus Christ, to whom be praise and dominion for ever and ever.  
+Of Zebulun, such as went forth to battle, expert in war, with all instruments of war, fifty thousand, which could keep rank: they were not of double heart. -- A double minded man is unstable in all his ways.
+ 
+There should be no schism in the body; but ... the members should have the same care one for another. And whether one member suffer, all the members suffer with it; or one member be honoured, all the members rejoice with it.
+ 
+One Lord, one faith, one baptism.  
 
-**1 Cor 12:5; 1 Chr 27:25-27,31; 1 Cor 12:28,11; 1 Pet 4:10,11**
+**1 Cor 12:6; 1 Chr 12:19,21; 1 Cor 12:7; 1 Chr 12:32; 1 Cor 12:8; 1 Chr 12:33; Jas 1:8; 1 Cor 12:25,26; Eph 4:5**
 
-[Sunday 03-October, 2021](https://t.me/daily_light)
+[Monday 04-October, 2021](https://t.me/daily_light)
