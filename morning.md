@@ -1,13 +1,13 @@
 **Morning**
 
-**Call upon me in the day of trouble: I will deliver thee, and thou shalt glorify me.**
+**The Lord God omnipotent reigneth.**
  
-Why art thou cast down, O my soul? and why art thou disquieted within me? hope thou in God: for I shall yet praise him, who is the health of my count-enance, and my God. -- LORD, thou hast heard the desire of the humble: thou wilt prepare their heart, thou wilt cause thine ear to hear. -- For thou, Lord, art good, and ready to forgive; and plenteous in mercy unto all them that call upon thee.
+I know that thou canst do every thing. -- The things which are impossible with men are possible with God. -- He doeth according to his will in the army of heaven, and among the inhabitants of the earth: and none can stay his hand, or say unto him, What doest thou? -- There is none that can deliver out of my hand: I will work, and who shall let it? -- Abba, Father, all things are possible unto thee.
  
-Jacob said unto his household, ... Let us arise and go up to Bethel; and I will make there an altar unto God, who answered me in the day of my distress, and was with me in the way which I went. -- Bless the LORD, O my soul, and forget not all his benefits.
+Believe ye that I am able to do this? They said unto him, Yea, Lord. Then touched he their eyes, saying, According to your faith be it unto you. -- Lord, if thou wilt, thou canst make me clean. And Jesus put forth his hand and touched him, saying, I will; be thou clean. -- The mighty God. -- All power is given unto me in heaven and in earth.
  
-I love the LORD, because he hath heard my voice and my supplications. Because he hath inclined his ear unto me, therefore will I call upon him as long as I live. The sorrows of death compassed me, and the pains of hell gat hold upon me: I found trouble and sorrow. Then called I on the name of the LORD.  
+Some trust in chariots, and some in horses: but we will remember the name of the LORD our God. -- Be strong and courageous, be not afraid nor dismayed, ... there be more with us than with him.  
 
-**Psa 50:15; Psa 42:11; Psa 10:17; Psa 86:5; Gen 35:2,3; Psa 103:2; Psa 116:1-4**
+**Rev 19:6; Job 42:2; Luke 18:27; Dan 4:35; Isa 43:13; Mark 14:36; Matt 9:28,29; Matt 8:23; Isa 9:6; Matt 28:18; Psa 20:7; 2 Chr 32:7**
 
-[Tuesday 05-October, 2021](https://t.me/daily_light)
+[Wednesday 06-October, 2021](https://t.me/daily_light)

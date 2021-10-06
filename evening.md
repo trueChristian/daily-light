@@ -1,11 +1,15 @@
 **Evening**
 
-**Yet a little while, (Gr. how little, how little,) and he that shall come will come, and will not tarry.**
+**What is the thing that the Lord hath said unto thee?**
  
-Write the vision, and make it plain upon tables, that he may run that readeth it. For the vision is yet for an appointed time, but at the end it shall speak, and not lie: though it tarry, wait for it because it will surely come, it will not tarry.
+He hath shewed thee, O man, what is good; and what doth the LORD require of thee, but to do justly, and to love mercy, and to walk humbly with thy God? -- To keep the commandments of the LORD, and his statutes, which I command thee this day for thy good.
  
-Beloved, be not ignorant of this one thing, that one day is with the Lord as a thousand years, and a thousand years as one day. The Lord is not slack concerning his promise, as some men count slackness; but is longsuffering to us ward, not willing that any should perish, but that all should come to repentence. -- Thou, O Lord, art a God full of compassion, and gracious, longsuffering and plenteous in mercy and truth. -- Oh that thou wouldest rend the heavens, that thou wouldest come down. For since the beginning of the world men have not heard, nor perceived by the ear, neither hath the eye seen, O God, beside thee, what he hath prepared for him that waiteth for him.  
+As many as are of the works of the law are under the curse: for it is written, Cursed is every one that continueth not in all things which are written in the book of the law to do them. But that no man is justified by the law in the sight of God, it is evident: for The just shall live by faith. Wherefore then serveth the law? It was added because of transgressions, till the seed should come to whom the promise was made.
+ 
+God, who at sundry times and in divers manners spake in time past unto the fathers by the prophets, hath in these last days spoken unto us by his Son.
+ 
+Speak, LORD; for thy servant heareth.  
 
-**Heb 10:37; Hab 2:2,3; 2 Pet 3:8,9; Psa 86:15; Isa 64:1,4**
+**1 Sam 3:17; Mic 6:8; Deut 10:13; Gal 3:10,11,19; Heb 1:1,2; 1 Sam 3:9**
 
-[Tuesday 05-October, 2021](https://t.me/daily_light)
+[Wednesday 06-October, 2021](https://t.me/daily_light)
