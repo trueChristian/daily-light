@@ -1,30 +1,28 @@
 # Morning
 
-**From the first day that thou didst set thine heart to understand, and to chasten thyself before thy God, thy words were heard.**
+**Christ both died, and rose, and revived, that he might be Lord both of the dead and living.**
  
-Thus saith the high and lofty One that inhabiteth eternity, whose name is Holy; I dwell in the high and holy place, with him also that is of a contrite and humble spirit, to revive the spirit of the humble, and to revive the heart of the contrite ones. -- The sacrifices of God are a broken spirit: a broken and a contrite heart, O God, thou wilt not despise. -- Though the LORD be high, yet hath he respect unto the lowly: but the proud he knoweth afar off. -- Humble yourselves therefore under the mighty hand of God, that he may exalt you in due time. -- God resisteth the proud, but giveth grace unto the humble. Submit yourselves therefore to God.
+It pleased the LORD to bruise him; he hath put him to grief: when thou shalt make his soul an offering for sin, he shall see his seed, he shall prolong his days, and the pleasure of the LORD shall prosper in his hand. He shall see of the travail of his soul, and shall be satisfied: by his knowledge shall my righteous servant justify many; for he shall bear their iniquities. -- Ought not Christ to have suffered these things, and to enter into his glory? -- We thus judge, that if one died for all, then were all dead: and that be died for all, that they which live should not henceforth live unto themselves, but unto him which died for them, and rose again.
  
-Thou, Lord, art good, and ready to forgive; and plenteous in mercy unto all them that call upon thee. Give ear, O LORD, unto my prayer; and attend to the voice of my supplications. In the day of my trouble I will call upon thee: for thou wilt answer me.  
+Let all the house of Israel know assuredly, that God hath made that same Jesus, whom ye have crucified, both Lord and Christ. -- Who verily was foreordained before the foundation of the world, but was manifest in these last times for you, who by him do believe in God.  
 
-**Dan 10:12; Isa 57:15; Psa 51:17; Psa 138:6; Prov 5:6; Jas 4:6; Jas 4:7; Psa 86:5-7**
+**Rom 14:9; Isa 53:10,11; Luke 24:26; 2 Cor 5:14,15; Acts 2:36; 1 Pet 1:20,21**
 
 # Evening
 
-**Thy will be done in earth, as it is in heaven.**
+**Give us this day our daily bread.**
  
-Understanding what the will of the Lord is.
+I have been young, and now am old; yet have I not seen the righteous forsaken, nor his seed begging bread. -- His bread shall be given him; his waters shall be sure. -- The ravens brought him bread and flesh in the morning, and bread and flesh in the evening; and he drank of the brook.
  
-It is not the will of your Father which is in heaven, that one of these little ones should perish.
+My God shall supply all your need according to his riches in glory by Christ Jesus. -- Be content with such things as ye have: for he hath said, I will never leave thee, nor forsake thee.
  
-This is the will of God, even your sanctification. -- That he no longer should live the rest of his time in the flesh to the lusts of men, but to the will of God. -- Of his own will begat he us with the word of truth: wherefore lay apart all filthiness.
- 
-Be ye holy; for I am holy. -- [Jesus] said, Whosoever shall do the will of God, the same is my brother, and my sister, and mother. -- Whosoever heareth these sayings of mine, and doeth them, I will liken him unto a wise man, which built his house upon a rock: and the rain descended, and the floods came, and the winds blew, and beat upon that house; and it fell not: for it was founded upon a rock. -- The world passeth away, and the lust thereof: but he that doeth the will of God abideth for ever.  
+He humbled thee, and suffered thee to hunger, and fed thee with manna, ... that he might make thee know that man doth not live by bread only, but by every word that proceedeth out of the mouth of the LORD doth man live. -- Jesus said unto them, Verily, verily, I say unto you, Moses gave you not that bread from heaven; but my Father giveth you the true bread from heaven. For the bread of God is he which cometh down from heaven, and giveth life unto the world. Then said they unto him, Lord, evermore give us this bread.  
 
-**Matt 6:10; Eph 5:17; Matt 18:14; 1 Thes 4:3; 1 Pet 4:2; Jas 1:18,21; 1 Pet 1:16; Mark 3:34,35; Matt 7:24,25; 1 John 2:17**
+**Matt 6:11; Psa 37:25; Isa 33:16; 1 Kgs 17:6; Phl 4:19; Heb 13:5; Deut 8:3; John 6:32-34**
 
 ---
 
-[Wednesday 13-October, 2021](https://t.me/s/daily_light)
+[Thursday 14-October, 2021](https://t.me/s/daily_light)
 
 > Jonathan Bagster, the son of Samuel Bagster, created the Daily Light for his own family's daily devotion in 1875
 
