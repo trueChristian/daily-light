@@ -2,7 +2,7 @@
 
 **Amen.**
  
-Amen: the LORD God ... say so too. -- He who blesseth himself in the earth shall bless himself in the God of truth (Heb. The Amen) and he that sweareth in the earth shall swear by the God of truth (The Amen).</strong>
+Amen: the LORD God ... say so too. -- He who blesseth himself in the earth shall bless himself in the God of truth (Heb. The Amen) and he that sweareth in the earth shall swear by the God of truth (The Amen).
  
 When God made promise to Abraham, because he could swear by no greater, he sware by himself. For men verily swear by the greater: and an oath for confirmation is to them an end of all strife. Wherein God, willing more abundantly to shew unto the heirs of promise the immutability of his counsel, confirmed it by an oath: that by two immutable things, in which it was impossible for God to lie, we might have a strong consolation, who have fled for refuge to lay hold upon the hope set before us.
  
