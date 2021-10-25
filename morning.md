@@ -1,13 +1,13 @@
 **Morning**
 
-**I am cast out of thy sight; yet I will look again toward thy holy temple.**
+**Lo, I am with you alway, even unto the end of the world.**
  
-Zion said, The LORD hath forsaken me, and my Lord hath forgotten me. Can a woman forget her sucking child, that she should not have compassion on the son of her womb? yea, they may forget, yet will I not forget thee.
+If two of you shall agree on earth as touching any thing that they shall ask, it shall be done for them of my Father which is in heaven. For where two or three are gathered together in my name, there am I in the midst of them. -- He that hath my commandments, and keepeth them, he it is that loveth me: and he that loveth me shall be loved of my Father, and I will love him, and will manifest myself to him.
  
-I forgat prosperity. And I said, My strength and my hope is perished from the LORD. -- Awake, why sleepest thou, O Lord? arise, cast us not off for ever. -- Why sayest thou, O Jacob, and speakest, O Israel, My way is hid from the LORD, and my judgment is passed over from my God? -- In a little wrath I hid my face from thee for a moment; but with everlasting kindness will I have mercy on thee, saith the LORD thy Redeemer.
+Lord, how is it that thou wilt manifest thyself unto us, and not unto the world? ... If a man love me, he will keep my words: and my Father will love him, and we will come unto him, and make our abode with him.
  
-Why art thou cast down, O my soul? and why art thou disquieted within me? hope in God: for I shall yet praise him, who is the health of my countenance. -- We are troubled on every side, yet not distressed; we are perplexed, but not in despair; persecuted, but not forsaken; cast down, but not destroyed.  
+Unto him that is able to keep you from falling, and to present you faultless before the presence of his glory with exceeding joy, to the only wise God our Saviour, be glory and majesty, dominion and power, both now and ever. Amen.  
 
-**Jon 2:4; Psa 49:14,15; Lam 3:17,18; Psa 44:23; Isa 40:27; Isa 54:8; Psa 43:5; 2 Cor 4:8,9**
+**Matt 28:20; Mark 18:19,20; John 14:21; John 14:22,23; Jude 24,25**
 
-[Sunday 24-October, 2021](https://t.me/daily_light)
+[Monday 25-October, 2021](https://t.me/daily_light)
