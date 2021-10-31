@@ -1,11 +1,13 @@
 **Evening**
 
-**Take us the foxes, the little foxes, that spoil the vines: for our vines have tender grapes.**
+**Do as thou hast said.**
  
-Who can understand his errors? cleanse thou me from secret faults. -- Looking diligently lest any man fail of the grace of God; lest any root of bitterness springing up trouble you, and thereby many be defiled. -- Ye did run well; who did hinder you that ye should not obey the truth?
+Stablish thy word unto thy servant, who is devoted to thy fear. So shall I have wherewith to answer him that reproacheth me: for I trust in thy word. Re-member the word unto thy servant, upon which thou hast caused me to hope. Thy statutes have been my songs in the house of my pilgrimage. The law of thy mouth is better unto me than thousands of gold and silver. For ever, O LORD, thy word is settled in heaven. Thy faithfulness is unto all generations.
  
-He which hath begun a good work in you will perform it until the day of Jesus Christ: only let your conversation be as it becometh the gospel of Christ. -- The tongue is a little member, and boasteth great things. Behold, how great a matter a little fire kindleth! And the tongue is a fire, a world of iniquity: so is the tongue among our members, that it defileth the whole body, and setteth on fire the course of nature; and it is set on fire of hell. The tongue can no man tame; it is an unruly evil, full of deadly poison. -- Let your speech be alway with grace, seasoned with salt.  
+God, willing more abundantly to shew unto the heirs of promise the im-mutability of his counsel, confirmed it by an oath; that by two immutable things, in which it was impossible for God to lie, we might have a strong consolation, who have fled for refuge to lay hold upon the hope set before us: which hope we have as an anchor of the soul, both sure and stedfast, and which entereth into that within the veil; whither the forerunner is for us entered, even Jesus.
+ 
+Exceeding great and precious promises.  
 
-**Song 2:15; Psa 19:12; Heb 12:15; Gal 5:7; Phl 1:6,27; Jas 3:5,6; Col 4:6**
+**2 Sam 7:25; Psa 119:38,42,49,54,72,89,90; Heb 6:17-20; 2 Pet 1:4**
 
-[Saturday 30-October, 2021](https://t.me/daily_light)
+[Sunday 31-October, 2021](https://t.me/daily_light)
