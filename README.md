@@ -1,28 +1,32 @@
 # Morning
 
-**Now for a season, if need be, ye are in heaviness through manifold temptations.**
+**Take thou also unto thee principal spices, and thou shalt make it an oil of holy ointment.**
  
-Beloved, think it not strange concerning the fiery trial which is to try you, as though some strange thing happened unto you: but rejoice, inasmuch as ye are partakers of Christ's sufferings; that, when his glory shall be revealed, ye may be glad also with exceeding joy. -- The exhortation ... speaketh unto you as unto children, My son, despise not thou the chastening of the Lord, nor faint when thou art rebuked of him. -- Now no chastening for the present seemeth to be joyous but grievous: nevertheless, afterward it yieldeth the peaceable fruit of righteousness unto them which are exercised thereby.
+Upon man's flesh shall it not be poured, neither shall ye make any other like it, after the composition of it: it is holy, and it shall be holy unto you. -- One Spirit. -- Diversities of gifts, but the same Spirit.
  
-We have not a high priest which cannot be touched with the feeling of our infirmities; but was in all points tempted like as we are, yet without sin. -- For in that he himself hath suffered being tempted, he is able to succour them that are tempted. -- God is faithful, who will not suffer you to be tempted above that ye are able.  
+Thy God hath anointed thee with the oil of gladness above thy fellows. -- God anointed Jesus of Nazareth with the Holy Ghost and with power. -- God giveth not the Spirit by measure unto him.
+ 
+Of his fulness have all we received. -- As the same anointing teacheth you of all things, and is truth, and is no lie, and even as it hath taught you, ye shall abide in him. -- He which ... hath anointed us, is God; who hath also sealed us, and given the earnest of the Spirit in our hearts.
+ 
+The fruit of the Spirit is love, joy, peace, longsuffering, gentleness, good-ness, faith, meekness, temperance: against such there is no law.  
 
-**1 Pet 1:6; 1 Pet 4:12,13; Heb 12:5; Heb 12:11; Heb 4:15; Heb 2:18; 1 Cor 10:13**
+**Exo 30:23,25; Exo 30:32; Eph 4:4; 1 Cor 12:4; Psa 45:7; Acts 10:38; John 3:34; John 1:16; 1 John 2:27; 2 Cor 1:21,22; Gal 5:22,23**
 
 # Evening
 
-**The Prince of Peace.**
+**The fashion of this world passeth away.**
  
-He shall judge thy people with righteousness, and thy poor with judgment. The mountains shall bring peace to the people, and the little hills, by right-eousness. He shall come down like rain upon the mown grass; as showers that water the earth. In his days shall the righteous flourish; and abundance of peace so long as the moon endureth. -- Glory to God ... on earth peace, good will toward men.
+All the days of Methuselah were nine hundred sixty and nine years: and he died.
  
-Through the tender mercy of our God; ... the dayspring from on high hath visited us. To give light to them that sit in darkness and in the shadow of death, to guide our feet into the way of peace; -- peace by Jesus Christ: (he is Lord of all).
+Let the brother of low degree rejoice in that he is exalted: but the rich, in that he is made low: because as the flower of the grass he shall pass away. For the sun is no sooner risen with a burning beat, but it withereth the grass, and the flower thereof falleth, and the grace of the fashion of it perisheth: so also shall the rich man fade away in his ways. -- For what is your life? It is even a vapour of that appeareth for a little time, and then vanisheth away. -- The world passeth away, and the lust thereof: but he that doeth the will of God abideth for ever.
  
-These things I have spoken unto you, that in me ye might have peace. In the world ye shall have tribulation: but be of good cheer; I have overcome the world. -- Peace I leave with you, my peace I give unto you: not as the world giveth give I unto you. -- The peace of God, which passeth all understanding, shall keep your hearts and minds through Christ Jesus.  
+LORD, make me to know mine end, and the measure of my days, what it is; that I may know how frail I am. -- When they shall say, Peace and safety; then sudden destruction cometh upon them, as travail upon a woman with child; and they shall not escape. But ye, brethren, are not in darkness, that that day should overtake you as a thief.  
 
-**Isa 9:6; Psa 72:2-7; Luke 2:14; Luke 1:78,79; Acts 10:36; John 16:33; John 14:27; Phl 4:7**
+**1 Cor 7:31; Gen 5:27; Jas 1:9-11; Jas 4:14; 1 John 2:17; Psa 39:4; 1 Thes 5:3,4**
 
 ---
 
-[Thursday 04-November, 2021](https://t.me/s/daily_light)
+[Friday 05-November, 2021](https://t.me/s/daily_light)
 
 > Jonathan Bagster, the son of Samuel Bagster, created the Daily Light for his own family's daily devotion in 1875
 
