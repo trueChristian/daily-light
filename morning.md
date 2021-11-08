@@ -1,13 +1,13 @@
 **Morning**
 
-**Oh that men would praise the Lord for his goodness, and for his wonderful works to the children of men!**
+**Let us, who are of the day, be sober, putting on the breastplate of faith and love; and for an helmet, the hope of salvation.**
  
-O taste and see that the LORD is good: blessed is the man that trusteth in him. -- How great is thy goodness, which thou hast laid up for them that fear thee!
+Gird up the loins of your mind, be sober, and hope to the end for the grace that is to be brought unto you at the revelation of Jesus Christ. -- Stand therefore, having your loins girt about with truth, and having on the breast-plate of righteousness; above all, taking the shield of faith, wherewith ye shall be able to quench all the fiery darts of the wicked. And take the helmet of salvation, and the sword of the Spirit, which is the word of God.
  
-This people have I formed for myself; they shall shew forth my praise. -- Having predestinated us unto the adoption of children by Jesus Christ to himself, according to the good pleasure of his will, to the praise of the glory of his grace, wherein he hath made us accepted in the beloved. That we should be to the praise of his glory, who first trusted in Christ.
+He will swallow up death in victory; and the Lord GOD will wipe away tears from off all faces; and the rebuke of his people shall he take away from off all the earth: for the LORD hath spoken it. And it shall be said in that day, Lo, this is our God; we have waited for him, and he will save us: this is the LORD; ... we will be glad and rejoice in his salvation.
  
-How great is his goodness, and how great is his beauty! -- The LORD is good to all: and his tender mercies are over all his works. All thy works shall praise thee, O LORD; and thy saints shall bless thee. They shall speak of the glory of thy kingdom, and talk of thy power; to make known to the sons of men his mighty acts, and the glorious majesty of his kingdom.  
+Faith is the substance of things hoped for, the evidence of things not seen.  
 
-**Psa 107:8; Psa 34:8; Psa 31:19; Isa 43:21; Eph 1:5,6,12; Zech 9:17; Psa 145:9-12**
+**1 Thes 5:8; 1 Pet 1:13; Eph 6:14,16,17; Isa 25:8,9; Heb 11:1**
 
-[Sunday 07-November, 2021](https://t.me/daily_light)
+[Monday 08-November, 2021](https://t.me/daily_light)
