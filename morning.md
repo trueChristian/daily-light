@@ -1,15 +1,15 @@
 **Morning**
 
-**He led them on safely.**
+**Godly sorrow worketh repentance not to be repented of.**
  
-I lead in the way of righteousness, in the midst of the paths of judgment.
+Peter remembered the word of Jesus, which said unto him, Before the cock crow, thou shalt deny me thrice. And he went out, and wept bitterly. -- If we confess our sins, he is faithful and just to forgive us our sins, and to cleanse us from all unrighteousness. -- The blood of Jesus Christ his Son cleanseth us from all sin.
  
-Behold, I send an Angel before thee, to keep thee in the way, and to bring thee into the place which I have prepared. -- In all their affliction he was afflicted, and the angel of his presence saved them: in his love and in his pity he redeemed them; and he bare them, and carried them all the days of old.
+Mine iniquities have taken hold upon me, so that I am not able to look up; they are more than the hairs of my head: therefore my heart faileth me. Be pleased, O LORD, to deliver me: O LORD, make haste to help me.
  
-They got not the land in possession by their own sword, neither did their own arm save them: but thy right hand, and thine arm, and the light of thy countenance, because thou hadst a favour unto them. -- So didst thou lead thy people, to make thyself a glorious name.
+Turn thou to thy God: keep mercy and judgment, and wait on thy God con-tinually.
  
-Lead me, O LORD, in thy righteousness because of mine enemies; make thy way straight before my face. -- O send out thy light and thy truth: let them lead me; let them bring me unto thy holy hill, and to thy tabernacles. Then will I go unto the altar of God, unto God my exceeding joy: yea, upon the harp will I praise thee, O God my God.  
+The sacrifices of God are a broken spirit: a broken and a contrite heart, O God, thou wilt not despise. -- He healeth the broken in heart, and bindeth up their wounds. -- He hath shewed thee, O man, what is good: and what doth the LORD require of thee, but to do justly, and to love mercy, and to walk humbly with thy God?  
 
-**Psa 78:53; Prov 8:20; Exo 23:20; Isa 63:9; Psa 44:3; Isa 63:14; Psa 5:8; Psa 43:3,4**
+**2 Cor 7:10; Matt 26:75; 1 John 1:9; 1 John 1:7; Psa 40:12,13; Hos 12:6; Psa 51:17; Psa 147:3; Mic 6:8**
 
-[Thursday 11-November, 2021](https://t.me/daily_light)
+[Friday 12-November, 2021](https://t.me/daily_light)
