@@ -1,13 +1,13 @@
 **Evening**
 
-**Fellow citizens with the saints.**
+**Whatsoever a man soweth, that shall he also reap.**
  
-Ye are come unto mount Sion, and unto the city of the living God, the heavenly Jerusalem, and to an innumerable company of angels, to the general assembly and church of the firstborn, which are written in heaven, and to God the Judge of all, and to the spirits of just men made perfect.
+They that plow iniquity, and sow wickedness, reap the same. -- They have sown the wind, and they shall reap the whirlwind. -- He that soweth to his flesh shall of the flesh reap corruption.
  
-These all died in faith, not having received the promises, but having seen them afar off, and were persuaded of them, and embraced them, and confessed that they were strangers and pilgrims on the earth. -- Our conversation (Gr. citizenship) is in heaven; from whence also we look for the Saviour, the Lord Jesus Christ: who shall change our vile body, that it may be fashioned like unto his glorious body, according to the working whereby he is able even to subdue all things unto himself. -- The Father, ... hath delivered us from the power of darkness, and hath translated us into the kingdom of his dear Son.
+To him that soweth righteousness shall be a sure reward. -- He that soweth to the Spirit shall of the Spirit reap life everlasting. And let us not be weary in well doing: for in due season we shall reap, if we faint not. As we have therefore opportunity, let us do good unto all men, especially unto them who are of the household of faith.
  
-As strangers and pilgrims, abstain from fleshly lusts, which war against the soul.  
+There is that scattereth, and yet increaseth; and there is that withholdeth more than is meet, but it tendeth to poverty. -- The liberal soul shall be made fat: and he that watereth shall be watered also himself. -- He which soweth sparingly shall reap also sparingly; and he which soweth bountifully shall reap also bountifully.  
 
-**Eph 2:19; Heb 12:22,23; Heb 11:13; Phl 3:20,21; Col 1:12,13; 1 Pet 211**
+**Gal 6:7; Job 4:8; Hos 8:7; Gal 6:8; Prov 11:18; Gal 6:8-10; Prov 11:24; Prov 11:25; 2 Cor 9:6**
 
-[Tuesday 16-November, 2021](https://t.me/daily_light)
+[Wednesday 17-November, 2021](https://t.me/daily_light)
