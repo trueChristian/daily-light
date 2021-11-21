@@ -1,15 +1,13 @@
 **Evening**
 
-**One God, and one mediator between God and men, the man Christ Jesus.**
+**His dear Son.**
  
-Hear, O Israel: The LORD our God is one LORD. -- A mediator is not a mediator of one, but God is one.
+Lo a voice from heaven, saying, This is my beloved Son, in whom I am well pleased. -- Behold my servant, whom I uphold; mine elect, in whom my soul delighteth. -- The only begotten Son, which is in the bosom of the Father.
  
-We have sinned with our fathers, we have committed iniquity, we have done wickedly. Our fathers understood not thy wonders in Egypt; they remem-bered not the multitude of thy mercies ... Therefore he said that he would destroy them, had not Moses his chosen stood before him in the breach, to turn away his wrath, lest he should destroy them.
+In this was manifested the love of God toward us, because that God sent his only begotten Son into the world, that we might live through him. Herein is love, not that we loved God, but that he loved us, and sent his son to be the propitiation for our sins. And we have known and believed the love that God hath to us. God is love.
  
-Wherefore, holy brethren, partakers of the heavenly calling, consider the Apostle and High Priest of our profession, Christ Jesus; who was faithful to him that appointed him, as also Moses was faithful in all his house.
- 
-He is the mediator of a better covenant, which was established upon better promises. I will be merciful to their unrighteousness, and their sins and their iniquities will I remember no more.  
+The glory which thou gavest me I have given them; that they may be one, even as we are one: I in them, and thou in me, that they may be made perfect in one; and that the world may know that thou hast sent me, and hast loved them, as thou hast loved me. -- Behold, what manner of love the Father hath bestowed upon us, that we should be called the sons of God.  
 
-**1 Tim 2:5; Deut 6:4; Gal 3:20; Psa 106:6,7,23; Heb 3:1-3; Heb 8:6,12**
+**Col 1:13; Matt 3:17; Isa 42:1; John 1:18; 1 John 4:9,10,16; John 17:22-24; 1 John 3:1**
 
-[Saturday 20-November, 2021](https://t.me/daily_light)
+[Sunday 21-November, 2021](https://t.me/daily_light)
