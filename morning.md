@@ -1,11 +1,15 @@
 **Morning**
 
-**My mother and my brethren are these which hear the word of God, and do it.**
+**Being made free from sin, ye became the servants of righteousness.**
  
-Both he that sanctifieth and they who are sanctified are all of one: for which cause he is not ashamed to call them brethren: saying, I will declare thy name unto my brethren; in the midst of the church will I sing praise unto thee. -- In Jesus Christ neither circumcision availeth any thing, nor uncircumcision; but faith which worketh by love. -- Ye are my friends, if ye do whatsoever I command you. Blessed are they that hear the word of God, and keep it.
+Ye cannot serve God and Mammon. -- When ye were the servants of sin, ye were free from righteousness. What fruit had ye then in those things whereof ye are now ashamed? for the end of those things is death. But now being made free from sin, and become servants to God, ye have your fruit unto holiness, and the end everlasting life.
  
-Not every one that saith unto me, Lord, Lord, shall enter into the kingdom of heaven; but he that doeth the will of my Father which is in heaven. -- My meat is to do the will of him that sent me. If we say that we have fellowship with him, and walk in darkness, we lie, and do not the truth. -- Whoso keepeth his word, in him verily is the love of God perfected; hereby know we that we are in him.  
+Christ is the end of the law for righteousness to every one that believeth.
+ 
+If any man serve me, let him follow me; and where I am, there shall also my servant be: if any man serve me, him will my Father honour. -- Take my yoke upon you, and learn of me: for I am meek and lowly in heart: and ye shall find rest unto your souls. For my yoke is easy, and my burden is light.
+ 
+O LORD our God, other lords beside thee have had dominion over us: but by thee only will we make mention of thy name. -- I will run the way of thy commandments, when thou shalt enlarge my heart.  
 
-**Luke 8:21; Heb 2:11,12; Gal 5:6; John 15:14; Luke 11:28; Matt 7:21; John 4:34; 1 John 1:6; 1 John 2:5**
+**Rom 6:18; Matt 6:24; Rom 6:20-22; Rom 10:4; John 12:26; Matt 11:29,30; Isa 26:13; Psa 119:32**
 
-[Wednesday 24-November, 2021](https://t.me/daily_light)
+[Thursday 25-November, 2021](https://t.me/daily_light)
