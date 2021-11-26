@@ -1,15 +1,13 @@
 **Morning**
 
-**Being made free from sin, ye became the servants of righteousness.**
+**The Lord delighteth in thee.**
  
-Ye cannot serve God and Mammon. -- When ye were the servants of sin, ye were free from righteousness. What fruit had ye then in those things whereof ye are now ashamed? for the end of those things is death. But now being made free from sin, and become servants to God, ye have your fruit unto holiness, and the end everlasting life.
+Thus saith the LORD that created thee, ... Fear not: for I have redeemed thee, I have called thee by thy name; thou art mine. -- Can a woman forget her sucking child, that she should not have compassion on the son of her womb? yea, they may forget, yet will I not forget thee. Behold, I have graven thee upon the palms of mine hands: thy walls are continually before me.
  
-Christ is the end of the law for righteousness to every one that believeth.
+The steps of a good man are ordered by the LORD: and he delighteth in his way. -- My delights were with the sons of men. -- The LORD taketh pleasure in them that fear him, in those that hope in his mercy. -- They shall be mine, saith the LORD of hosts, in that day when I make up my jewels; and I will spare them, as a man spareth his own son that serveth him.
  
-If any man serve me, let him follow me; and where I am, there shall also my servant be: if any man serve me, him will my Father honour. -- Take my yoke upon you, and learn of me: for I am meek and lowly in heart: and ye shall find rest unto your souls. For my yoke is easy, and my burden is light.
- 
-O LORD our God, other lords beside thee have had dominion over us: but by thee only will we make mention of thy name. -- I will run the way of thy commandments, when thou shalt enlarge my heart.  
+You, that were sometime alienated and enemies in your mind by wicked works, yet now hath he reconciled in the body of his flesh through death, to present you holy and unblameable and unreproveable in his sight.  
 
-**Rom 6:18; Matt 6:24; Rom 6:20-22; Rom 10:4; John 12:26; Matt 11:29,30; Isa 26:13; Psa 119:32**
+**Isa 62:4; Isa 43:1; Isa 49:15,16; Psa 37:23; Prov 8:31; Psa 147:11; Mal 3:17; Col 1:21,22**
 
-[Thursday 25-November, 2021](https://t.me/daily_light)
+[Friday 26-November, 2021](https://t.me/daily_light)
