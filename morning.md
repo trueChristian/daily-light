@@ -1,13 +1,11 @@
 **Morning**
 
-**The Lord delighteth in thee.**
+**The glory which thou gavest me I have given them.**
  
-Thus saith the LORD that created thee, ... Fear not: for I have redeemed thee, I have called thee by thy name; thou art mine. -- Can a woman forget her sucking child, that she should not have compassion on the son of her womb? yea, they may forget, yet will I not forget thee. Behold, I have graven thee upon the palms of mine hands: thy walls are continually before me.
+I saw ... the Lord sitting upon a throne, high and lifted up, and his train filled the temple. Above it stood the seraphims. And one cried unto another, and said, Holy, holy, holy, is the LORD of hosts; the whole earth is full of his glory. -- These things said Esaias, when he saw his glory, and spake of him. -- Upon the likeness of the throne was the likeness ... of a man above upon it. As the appearance of the bow that is in the cloud in the day of rain, so was the appearance of the brightness round about. This was the appearance of the likeness of the glory of the LORD.
  
-The steps of a good man are ordered by the LORD: and he delighteth in his way. -- My delights were with the sons of men. -- The LORD taketh pleasure in them that fear him, in those that hope in his mercy. -- They shall be mine, saith the LORD of hosts, in that day when I make up my jewels; and I will spare them, as a man spareth his own son that serveth him.
- 
-You, that were sometime alienated and enemies in your mind by wicked works, yet now hath he reconciled in the body of his flesh through death, to present you holy and unblameable and unreproveable in his sight.  
+I beseech thee, shew me thy glory. And he said, Thou canst not see my face: for there shall no man see me, and live. -- No man hath seen God at any time; the only begotten Son, which is in the bosom of the Father, he hath declared him. -- God, who commanded the light to shine out of darkness, hath shined in our hearts, to give the light of the knowledge of the glory of God in the face of Jesus Christ.  
 
-**Isa 62:4; Isa 43:1; Isa 49:15,16; Psa 37:23; Prov 8:31; Psa 147:11; Mal 3:17; Col 1:21,22**
+**John 17:22; Isa 6:1-3; John 12:41; Ezek 1:26,28; Exo 33:18,20; John 1:18; 2 Cor 4:6**
 
-[Friday 26-November, 2021](https://t.me/daily_light)
+[Saturday 27-November, 2021](https://t.me/daily_light)
