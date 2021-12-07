@@ -1,13 +1,17 @@
 **Evening**
 
-**The spirit indeed is willing, but the flesh is weak.**
+**I will be as the dew unto Israel.**
  
-In the way of thy judgments, O LORD, have we waited for thee; the desire of our soul is to thy name, and to the remembrance of thee. With my soul have I desired thee in the night; yea, with my spirit within me will I seek thee early.
+The meekness and gentleness of Christ.
  
-I know that in me, (that is, in my flesh) dwelleth no good thing: for to will is present with me; but how to perform that which is good I find not. For I delight in the law of God after the inward man: but I see another law in my members, warring against the law of my mind, and bringing me into captivity to the law of sin which is in my members. -- The flesh lusteth against the Spirit, and the Spirit against the flesh: and these are contrary the one to the other: so that ye cannot do the things that ye would.
+A bruised reed shall he not break, and the smoking flax shall he not quench.
  
-I can do all things through Christ which strengtheneth me. -- Our sufficiency is of God. -- My grace is sufficient for thee.  
+The Spirit of the Lord is upon me, because he hath anointed me to preach the gospel to the poor; he hath sent me to heal the brokenhearted, to preach deliverance to the captives, and recovering of sight to the blind, to set at liberty them that are bruised, to preach the acceptable year of the Lord. And he began to say unto thern, This day is this scripture fulfilled in your ears. And all bare him witness, and wondered at the gracious words which proceeded out of his mouth.
+ 
+And the Lord turned, and looked upon Peter, and Peter remembered the word of the Lord, how he had said unto him, Before the cock crow, thou shalt deny me thrice. And Peter went out and wept bitterly.
+ 
+He shall feed his flock like a shepherd: he shall gather the lambs with his arm, and carry them in his bosom, and shall gently lead those that are with young.  
 
-**Matt 26:41; Isa 26:8,9; Rom 7:18,22,23; Gal 5:17; Phl 4:13; 2 Cor 3:5; 2 Cor 12:9**
+**Hos 14:5; 2 Cor 10:1; Isa 42:3; Luke 4:18,19,21,22; Luke 22:61,62; Isa 40:11**
 
-[Monday 06-December, 2021](https://t.me/daily_light)
+[Tuesday 07-December, 2021](https://t.me/daily_light)
