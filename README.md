@@ -1,34 +1,30 @@
 # Morning
 
-**He hath chosen us in Him before the foundation of the world.**
+**The days of thy mourning shall be ended.**
  
-That we should be holy and without blame before him in love.
+In the world ye shall have tribulation. -- The whole creation groaneth and travaileth in pain together until now. And not only they, but ourselves also, which have the firstfruits of the Spirit, even we ourselves groan within ourselves, waiting for the adoption, to wit, the redemption of our body. -- We that are in this tabernacle do groan, being burdened: not for that we would be unclothed, but clothed upon, that mortality might be swallowed up of life.
  
-God hath from the beginning chosen you to salvation through sanctification of the Spirit and belief of the truth: whereunto he called you, ... to the obtaining of the glory of our Lord Jesus Christ. -- Whom he did foreknow, he also did predestinate to be conformed to the image of his Son, that he might be the firstborn among many brethren. Moreover whom he did pre-destinate, them he also called: and whom he called, them he also justified: and whom he justified, them he also glorified. -- Elect according to the foreknowledge of God the Father, through sanctification of the Spirit, unto obedience and sprinkling of the blood of Jesus Christ.
- 
-A new heart also will I give you, and a new spirit will I put within you: and I will take away the stony heart out of your flesh, and I will give you a heart of flesh. -- God hath not called us unto uncleanness, but unto holiness.  
+These are they which came out of great tribulation, and have washed their robes, and made them white in the blood of the Lamb, Therefore are they before the throne of God, and serve him day and night in his temple: and he that sitteth on the throne shall dwell among them. They shall hunger no more, neither thirst any more; neither shall the sun light on them, nor any heat. For the Lamb which is in the midst of the throne shall feed them, and shall lead them unto living fountains of waters; and God shall wipe away all tears from their eyes.  
 
-**Eph 1:4; Eph 1:4; 2 Thes 2:13,14; Rom 8:29,30; 1 Pet 1:2; Eze 36:26; 1 Thes 4:7**
+**Isa 60:20; John 16:33; Rom 8:22,23; 2 Cor 5:4; Rev 7:14-17**
 
 # Evening
 
-**If the Lord would make windows in heaven might this thing be?**
+**Master, carest thou not that we perish?**
  
-Have faith in God. -- Without faith it is impossible to please God. -- With God all things are possible.
+The LORD is good to all: and his tender mercies are over all his works.
  
-Is my hand shortened at all, that it cannot redeem? or have I no power to deliver?
+Every moving thing that liveth shall be meat for you; even as the green herb have I given you all things. -- While the earth remaineth, seed time and harvest, and cold and heat, and summer and winter, and day and night, shall not cease.
  
-My thoughts are not your thoughts, neither are your ways my ways, saith the LORD. For as the heavens are higher than the earth, so are my ways higher than your ways, and my thoughts than your thoughts. -- Prove me now herewith, saith the LORD of hosts, if I will not open you the windows of heaven, and pour you out a blessing, that there shall not be room enough to receive it.
+The LORD is good, a strong hold in the day of trouble; and he knoweth them that trust in him. -- God heard the voice of the lad: and the angel of God called to Hagar out of heaven, and said unto her, What aileth thee, Hagar? fear not; for God hath heard the voice of the lad where he is. And God opened her eyes, and she saw a well of water; and she went, and filled the bottle with water, and gave the lad drink.
  
-Behold, the LORD's hand is not shortened, that it cannot save; neither his ear heavy, that it cannot hear. -- LORD, it is nothing with thee to help, whether with many or with them that have no power.
- 
-We should not trust in ourselves, but in God which raiseth the dead.  
+Take no thought, saying, What shall we eat? or, what shall we drink? for your heavenly Father knoweth that ye have need of all these things. -- Trust ... in the living God, who giveth us richly all things to enjoy.  
 
-**2 Kgs 7:2; Mark 11:22; Heb 11:6; Matt 19:26; Isa 50:2; Isa 55:8,9; Mal 3:10; Isa 59:1; 2 Chr 14:11; 2 Cor 1:9**
+**Mark 4:38; Psa 145:9; Gen 9:3; Gen 8:22; Nah 1:7; Gen 21:17,19; Matt 6:31,32; 1 Tim 6:17**
 
 ---
 
-[Monday 20-December, 2021](https://t.me/s/daily_light)
+[Tuesday 21-December, 2021](https://t.me/s/daily_light)
 
 > Jonathan Bagster, the son of Samuel Bagster, created the Daily Light for his own family's daily devotion in 1875
 
