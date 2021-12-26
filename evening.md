@@ -1,15 +1,13 @@
 **Evening**
 
-**Thanks be unto God for his unspeakable gift.**
+**He is able ... to save them to the uttermost that come unto God by him.**
  
-Make a joyful noise unto the LORD, all ye lands. Serve the LORD with gladness; come before his presence with singing. Enter into his gates with thanksgiving, and into his courts with praise: be thankful unto him, and bless his name. -- For unto us a child is born, unto us a son is given: and the government shall be upon his shoulder: and his name shall be called Wonderful, Counsellor, The mighty God, The everlasting Father, The Prince of Peace.
+I am the way, the truth, and the life: no man cometh unto the Father, but by me. -- Neither is there salvation in any other: for there is none other name under heaven given among men, whereby we must be saved.
  
-He ... spared not his own Son, but delivered him up for us all. -- Having yet ... one son, his wellbeloved, he sent him.
+My sheep hear my voice, and I know them, and they follow me: and I give unto them eternal life; and they shall never perish, neither shall any man pluck them out of my hand. -- He which hath begun a good work in you will perform it until the day of Jesus Christ. -- Is any thing too hard for the LORD!
  
-Oh that men would praise the LORD for his goodness, and for his wonderful works to the children of men! -- Bless the LORD, O my soul: and all that is within me, bless his holy name.
- 
-My soul doth magnify the Lord, and my spirit hath rejoiced in God my Saviour.  
+Now unto him that is able to keep you from falling, and to present you faultless before the presence of his glory with exceeding joy, to the only wise God our Saviour, be glory and majesty, dominion and power, both now and ever. Amen.  
 
-**2 Cor 9:15; Psa 100:1,2,4; Isa 9:6,7; Rom 8:32; Mark 12:6; Psa 107:21; Psa 103:1; Luke 1:46,47**
+**Heb 7:25; John 14:6; Acts 4:12; John 10:27,28; Phl 1:6; Gen 18:14; Jude 24,25**
 
-[Saturday 25-December, 2021](https://t.me/daily_light)
+[Sunday 26-December, 2021](https://t.me/daily_light)
