@@ -1,15 +1,11 @@
 **Morning**
 
-**Thy sins be forgiven thee.**
+**Understanding what the will of the Lord is.**
  
-I will forgive their iniquity, and I will remember their sin no more. -- Who can forgive sins but God only?
+This is the will of God, even your sanctification. -- Acquaint now thyself with him, and be at peace: thereby good shall come unto thee. -- This is life eternal, that they might know thee the only true God, and Jesus Christ, whom thou hast sent. -- We know that the Son of God is come, and hath given us an understanding, that we may know him that is true, and we are in him that is true, even in his Son Jesus Christ. This is the true God, and eternal life.
  
-I, even I, am he that blotteth out thy transgressions for mine own sake, and will not remember thy sins. -- Blessed is he whose transgression is forgiven, whose sin is covered. Blessed is the man unto whom the LORD imputeth not iniquity. -- Who is a God like unto thee, that pardoneth iniquity?
- 
-God for Christ's sake hath forgiven you. -- The blood of Jesus Christ his Son cleanseth us from all sin. If we say that we have no sin, we deceive ourselves, and the truth is not in us. If we confess our sins, he is faithful and just to forgive us our sins, and to cleanse us from all unrighteousness.
- 
-As far as the east is from the west, so far hath he removed our transgressions from us. -- Sin shall not have dominion over you: for ye are not under the law, but under grace. Being then made free from sin, ye became the servants of righteousness.  
+We ... do not cease to pray for you, and to desire that ye might be filled with the knowledge of his will in all wisdom and spiritual understanding. -- The God of our Lord Jesus Christ, the Father of glory, ... give unto you the spirit of wisdom and revelation in the knowledge of him: the eyes of your under-standing being enlightened; that ye may know what is the hope of his calling, and what the riches of the glory of his inheritance in the saints, and what is the exceeding greatness of his power to us ward who believe.  
 
-**Mark 2:5; Jer 31:34; Mark 27; Isa 43:25; Psa 32:1,2; Mic 7:18; Eph 4:32; 1 John 1:7-9; Psa 103:12; Rom 6:14,18**
+**Eph 5:17; 1 Thes 4:3; Job 22:21; John 17:3; 1 John 5:20; Col 1:9; Eph 1:17-19**
 
-[Tuesday 28-December, 2021](https://t.me/daily_light)
+[Wednesday 29-December, 2021](https://t.me/daily_light)
