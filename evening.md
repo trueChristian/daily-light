@@ -1,15 +1,13 @@
 **Evening**
 
-**Draw nigh to God, and he will draw nigh to you.**
+**He will keep the feet of his saints.**
  
-Enoch walked with God. -- Can two walk together, except they be agreed? -- It is good for me to draw near to God.
+If we say that we have fellowship with him, and walk in darkness, we lie, and do not the truth: but if we walk in the light, as he is in the light, we have fellowship one with another, and the blood of Jesus Christ his Son cleanseth us from all sin. -- He that is washed needeth not save to wash his feet, but is clean every whit.
  
-The LORD is with you, while ye be with him: and if ye seek him, he will be found of you: but if ye forsake him, he will forsake you. When they in their trouble did turn unto the LORD God of Israel, and sought him, he was found of them.
+I have taught thee in the way of wisdom; I have led thee in right paths. When thou goest, thy steps shall not be straitened; and when thou runnest, thou shalt not stumble. Enter not into the path of the wicked, and go not in the way of evil men. Avoid it, pass not by it, turn from it, and pass away. Let thine eyes look right on, and let thine eyelids look straight before thee. Ponder the path of thy feet, and let all thy ways be established. Turn not to the right hand nor to the left: remove thy foot from evil.
  
-For I know the thoughts that I think toward you, saith the LORD, thoughts of peace, and not of evil, to give you an expected end. Then shall ye call upon me, and ye shall go and pray unto me, and I will hearken unto you. And ye shall seek me, and find me, when ye shall search for me with all your heart.
- 
-Having therefore, brethren, boldness to enter into the holiest by the blood of Jesus, by a new and living way, ... and having an high priest over the house of God; let us draw near with a true heart in full assurance of faith.  
+The Lord shall deliver me from every evil work, and will preserve me unto his heavenly kingdom: to whom be glory for ever and ever. Amen.  
 
-**James 4:8; Gen 5:24; Amos 3:3; Psa 73:28; 2 Chr 15:2,4; Jer 29:11-13; Heb 10:19-22**
+**1 Sam 2:9; 1 John 1:6,7; John 13:10; Prov 4:11,12,14,15,25-27; 2 Tim 4:18**
 
-[Wednesday 29-December, 2021](https://t.me/daily_light)
+[Thursday 30-December, 2021](https://t.me/daily_light)
