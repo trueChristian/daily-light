@@ -1,13 +1,13 @@
 **Morning**
 
-**We which have believed do enter into rest.**
+**Let the beauty of the Lord our God be upon us: and establish thou the work of our hands.**
  
-They weary themselves to commit iniquity. -- I see another law in my members, warring against the law of my mind, and bringing me into captivity to the law of sin which is in my members. O wretched man that I am! who shall deliver me from the body of this death?
+Thy renown went forth among the heathen for thy beauty: for it was perfect through my comeliness, which I had put upon thee, saith the Lord GOD. -- We all, with open face beholding as in a glass the glory of the Lord, are changed into the same image from glory to glory, even as by the Spirit of the Lord. -- The Spirit of glory and of God resteth upon us.
  
-Come unto me, all ye that labour and are heavy laden, and I will give you rest. -- Being justified by faith, we have peace with God through our Lord Jesus Christ: by whom also we have access by faith into this grace wherein we stand, and rejoice in hope of the glory of God.
+Blessed is every one that feareth the Lord; that walketh in his ways. For thou shalt eat the labour of thine hands: happy shalt thou be, and it shall be well with thee. -- Commit thy works unto the Lord, and thy thoughts shall be established.
  
-He that is entered into his rest, he also hath ceased from his own works. -- Not having mine own righteousness, which is of the law, but that which is through the faith of Christ, the righteousness which is of God by faith. -- This is the rest wherewith ye may cause the weary to rest; and this is the refreshing.  
+Work out your own salvation with fear and trembling. For it is God which worketh in you both to will and to do of his good pleasure. -- Our Lord Jesus Christ himself, and God, even our Father, which hath loved us, and hath given us everlasting consolation and good hope through grace, comfort your hearts, and stablish you in every good word and work.  
 
-**Heb 4:3; Jer 9:5; Rom 7:23,24; Matt 11:28; Rom 5:1,2; Heb 4:10; Phl 3:9; Isa 28:12**
+**Psa 90:17; Ezek 16:14; 2 Cor 3:18; 1 Pet 4:14; Psa 128:1,2; Prov 16:3; Phl 2:12,13; 2 Thes 2:16,17**
 
-[Wednesday 05-January, 2022](https://t.me/daily_light)
+[Thursday 06-January, 2022](https://t.me/daily_light)
