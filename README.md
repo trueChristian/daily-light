@@ -1,30 +1,30 @@
 # Morning
 
-**Think upon me, my God, for good.**
+**They that know thy name will put their trust in thee: for thou, Lord, hast not forsaken them that seek thee.**
  
-Thus saith the Lord; I remember thee, the kindness of thy youth, the love of thine espousals, when thou wentest after me in the wilderness. -- I will remember my covenant with thee in the days of thy youth, and I will establish unto thee an everlasting covenant. -- I will visit you, and perform my good word toward you. -- For I know the thoughts that I think toward you, saith the Lord, thoughts of peace, and not of evil, to give you an expected end.
+The name of the Lord is a strong tower: the righteous runneth into it, and is safe. -- I will trust, and not be afraid: for the Lord JEHOVAH is my strength and my song; he also is become my salvation.
  
-As the heavens are higher than the earth, so are my ways higher than your ways, and my thoughts than your thoughts. -- I would seek unto God, and unto God would I commit my cause: which doeth great things and unsearchable; marvelous things without number. -- Many, O Lord my God, are thy wonderful works which thou hast done, and thy thoughts which are to us ward: they cannot be reckoned up in order unto thee: if I would declare and speak of them they are more than can be numbered.  
+I have been young, and now am old; yet have I not seen the righteous forsaken, nor his seed begging bread. -- For the Lord loveth judgment, and forsaketh not his saints, they are preserved for ever: but the seed of the wicked shall be cut off. -- The Lord will not forsake his people for his great name's sake: because it hath pleased the Lord to make you his people. -- Who delivered us from so great a death, and doth deliver: in whom we trust that he will yet deliver us.
+ 
+Be content with such things as ye have: for he hath said, I will never leave thee, nor forsake thee. So that we may boldly say, The Lord is my helper, I will not fear what man shall do unto me.  
 
-**Neh 5:19; Jer 2:2; Ezek 16:60; Jer 29:10; Jer 29:11; Isa 55:9; Job 5:8,9; Psa 40:5**
+**Psa 9:10; Prov 18:10; Isa 12:2; Psa 37:25; Psa 37:28; 1 Sam 12:22; 2 Cor 1:10; Heb 13:5,6**
 
 # Evening
 
-**I will not fail thee, nor forsake thee.**
+**They are without fault before the throne of God.**
  
-There failed not ought of any good thing which the Lord had spoken unto the house of Israel; all came to pass. -- God is not a man, that he should lie; neither the son of man, that he should repent: hath he said, and shall he not do it? or hath he spoken, and shall he not make it good?
+The iniquity of Israel shall be sought for, and there shall be none; and the sins of Judah, and they shall not be found: for I will pardon them whom I reserve. -- Who is a God like unto thee, that pardoneth iniquity, and passeth by the transgression of the remnant of his heritage? he retaineth not his anger forever, because he delighteth in mercy. He will turn again, he will have compassion upon us; he will subdue our iniquities; and thou wilt cast all their sins into the depths of the sea.
  
-The Lord thy God, he is God, the faithful God, which keepeth covenant and mercy with them that love him. -- He will ever be mindful of his covenant.
+He hath made us accepted in the beloved. -- To present you holy and unblameable and unreproveable in his sight.
  
-Can a woman forget her sucking child, that she should not have compassion on the son of her womb? yea, they may forget, yet will I not forget thee. Behold, I have graven thee upon the palms of my hands.
- 
-The Lord thy God in the midst of thee is mighty; he will save, he will rejoice over thee with joy; he will rest in his love, he will joy over thee with singing.  
+Now unto him that is able to keep you from falling, and to present you faultless before the presence of his glory with exceeding joy, to the only wise God our Saviour, be glory and majesty, dominion and power, both now and ever. Amen.  
 
-**Josh 1:5; Josh 21:45; Num 23:19; Deut 7:9; Psa 111:5; Isa 49:15,16; Zeph 3:17**
+**Rev 14:5; Jer 50:20; Mic 7:18,19; Eph 1:6; Col 1:22; Jude 24,25**
 
 ---
 
-[Friday 07-January, 2022](https://t.me/s/daily_light)
+[Saturday 08-January, 2022](https://t.me/s/daily_light)
 
 > Jonathan Bagster, the son of Samuel Bagster, created the Daily Light for his own family's daily devotion in 1875
 
