@@ -1,17 +1,17 @@
 **Evening**
 
-**[The woman's seed] shall bruise thy head, and thou shalt bruise his heel.**
+**The measure of faith.**
  
-His visage was so marred more than any man, and his form more than the sons of men. -- He was wounded for our transgressions, he was bruised for our iniquities: the chastisement of our peace was upon him; and with his stripes we are healed.
+Him that is weak in the faith. -- Strong in faith, giving glory to God.
  
-This is your hour, and the power of darkness. -- Thou couldest have no power at all against me, except it were given thee from above.
+O thou of little faith, wherefore didst thou doubt? -- Great is thy faith: be it unto thee even as thou wilt.
  
-The Son of God was manifested, that he might destroy the works of the devil. -- He cast out many devils; and suffered not the devils to speak, because they knew him.
+Believe ye that I am able to do this? They said unto him, Yea, Lord ... According to your faith be it unto you.
  
-All power is given unto me in heaven and in earth. -- In my name shall they cast out devils.
+Lord, increase our faith. -- Building up yourselves on your most holy faith. -- Rooted and built up in him, and established in the faith. -- He which stablisheth us with you in Christ, ... is God. -- The God of all grace ... after that ye have suffered a while, make you perfect, stablish, strengthen, settle you.
  
-The God of peace shall bruise Satan under your feet shortly.  
+We ... that are strong ought to bear the infirmities of the weak, and not to please ourselves. -- Let us not ... judge one another ... but judge this rather, that no man put a stumblingblock or an occasion to fall in his brother’s way.  
 
-**Gen 3:15; Isa; 52:14; Isa 53:5; Luke 22:5; John 19:11; 1 John 3:8; Mark 1:34; Matt 28:18; Mark 16:17; Rom 16:20**
+**Rom 12:3; Rom 14:1; Rom 4:20; Matt 14:31; Matt 15:28; Matt 9:28,29; Luke 17:5; Jude 20; Col 2:7; 2 Cor 1:21; 1 Pet 5:10; Rom 15:1; Rom 14:13**
 
-[Friday 14-January, 2022](https://t.me/daily_light)
+[Saturday 15-January, 2022](https://t.me/daily_light)
