@@ -1,11 +1,13 @@
 **Morning**
 
-**Thou hast in love to my soul delivered it from the pit of corruption.**
+**Him that was to come.**
  
-God sent his only begotten Son into the world, that we might live through him. Herein is love, not that we loved God, but that he loved us, and sent his Son to be the propitiation for our sins.
+Jesus ... made a little lower than the angels for the suffering of death, ... that he by the grace of God should taste death for every man. -- One died for all. -- As by one man's disobedience many were made sinners, so by the obedience of one shall many be made righteous.
  
-Who is a God like unto thee, that pardoneth iniquity, and passeth by the transgression of the remnant of his heritage? he retaineth not his anger for ever, because he delighteth in mercy. He will turn again, he will have com-passion upon us; he will subdue our iniquities; and thou wilt cast all their sins into the depths of the sea. -- O Lord my God, I cried unto thee, and thou hast healed me. O Lord, thou hast brought up my soul from the grave: thou hast kept me alive, that I should not go down to the pit. -- When my soul fainted within me I remembered the Lord: and my prayer came in unto thee, into thine holy temple. -- I waited patiently for the Lord. He brought me up ... out of an horrible pit, out of the miry clay, and set my feet upon a rock.  
+The first man Adam was made a living soul; the last Adam was made a quickening spint. -- That was not first which is spiritual, but that which is natural; and afterward that which is spiritual. -- God said, Let us make man in our image, after our likeness. So God created man in his own image, in the image of God created he him. -- God ... hath in these last days spoken unto us by his Son, the brightness of his glory, and the express image of his person. -- Thou hast given him power over all flesh.
+ 
+The first man is of the earth, earthy: the second man is the Lord from heaven. As is the earthy, such are they also that are earthy: and as is the heavenly, such are they also that are heavenly.  
 
-**Isa 38:17; 1 John 4:9,10; Mic 7:18,19; Psa 30:2,3; Jon 2:7; Psa 40:1,2**
+**Rom 5:14; Heb 2:9; 2 Cor 5:14; Rom 5:19; 1 Cor 15:45; 1 Cor 15:46; Gen 1:26,27; Heb 1:1; John 17:2; 1 Cor 15:47,48**
 
-[Monday 17-January, 2022](https://t.me/daily_light)
+[Tuesday 18-January, 2022](https://t.me/daily_light)
