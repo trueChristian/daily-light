@@ -1,17 +1,15 @@
 **Evening**
 
-**Now we call the proud happy.**
+**In the multitude of my thoughts within me thy comforts delight my soul.When my heart is overwhelmed: lead me to the rock that is higher than I.**
  
-Thus saith the high and lofty One that inhabiteth eternity, whose name is Holy; I dwell in the high and holy place, with him that is of a contrite and humble spirit, to revive the spirit of the humble, and to revive the heart of the contrite ones.
+O Lord, I am oppressed; undertake for me. -- Cast thy burden upon the Lord, and he shall sustain thee. it:
  
-Better it is to be of an humble spirit with the lowly, than to divide the spoil with the proud. -- Blessed are the poor in spirit for their's is the kingdom of heaven.
+I am but a litile child: I know not how to go out or come in. -- If any of you lack wisdom, let him ask of God, ... and it shall be given him.
  
-These six things doth the Lord hate: yea, seven are an abomination unto him: a proud look, ... . -- Every one that is proud of heart is an abomination to the Lord.
+Who is sufficient for these things? -- I know that in me (that is, in my flesh,) dwelleth no good thing. -- My grace is sufficient for thee: for my strength is made perfect in weakness. Son, be of good cheer; thy sins be forgiven thee ... Daughter, be of good comfort; thy faith hath made thee whole.
  
-Search me, O God, and know my heart: try me, and know my thoughts: and see if there be any wicked way in me, and lead me in the way everlasting.
- 
-Grace be unto you, and peace, from God our Father, and the Lord Jesus Christ. I thank my God upon every remembrance of you. -- Blessed are the meek: for they shall inherit the earth.  
+My soul shall be satisfied as with marrow and fatness; ... when I remember thee upon my bed, and meditate on thee in the night watches.  
 
-**Mal 3:15; Isa 57:15; Prov 16:19; Matt 5:3; Prov 6:16,17; Prov 16:5; Psa 139:23,24; Phl 1:2,3; Matt 5:5**
+**Psa 94:19; Psa 61:2; Isa 38:14; Psa 55:22; 1 Kgs 3:7; Jas 1:5; 2 Cor 2:16; Rom 7:18; 2 Cor 12:9; Matt 9:2,22; Psa 63:5,6**
 
-[Friday 21-January, 2022](https://t.me/daily_light)
+[Saturday 22-January, 2022](https://t.me/daily_light)
