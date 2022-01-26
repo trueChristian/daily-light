@@ -1,13 +1,13 @@
 **Evening**
 
-**The spirit of adoption, whereby we cry, Abba, Father.**
+**The Lord Jesus Christ ... shall change our vile body, that it may be fashioned like unto his glorious body.**
  
-Jesus ... lifted up his eyes to heaven, and said, Father, ... Holy Father, ... O righteous Father. -- He said, Abba, Father. -- Because ye are sons, God hath sent forth the Spirit of his Son into your hearts, crying, Abba, Father. -- For through him we both have access by one Spirit unto the Father. Now therefore ye are no more strangers and foreigners, but fellowcitizens with the saints and of the household of God.
+Upon the likeness of the throne was the likeness as the appearance of a man above upon it. And I saw as the colour of amber, as the appearance of fire round about within it, from the appearance of his loins even upward, and from the appearance of his loins even downward, I saw as it were the appear-ance of fire, and it had brightness round about. This was the appearance of the likeness of the glory of the Lord.
  
-Doubtless thou art our father, ... thou, O Lord, art our father, our redeemer; thy name is from everlasting.
+We all, with open face, beholding as in a glass the glory of the Lord, are changed into the same image from glory to glory, even as by the Spirit of the Lord. -- It doth not yet appear what we shall be: but we know that, when he shall appear, we shall be like him; for we shall see him as he is.
  
-I will arise and go to my father, and will say unto him, Father, I have sinned against heaven, and before thee, and am no more worthy to be called thy son: make me as one of thy hired servants. And he arose, and came to his father.Be ye therefore followers of God, as dear children.  
+They shall hunger no more, neither thirst any more. -- They sing the song of Moses the servant of God, and the song of the Lamb.  
 
-**Rom 8:15; John 17:1,11,25; Mark 14:36; Gal 4:6; Eph 2:18,19; Isa 63:16; Luke 15:18; Eph 5:1**
+**Phl 3:20,21; Ezek 1:26; 2 Cor 3:18; 1 John 3:2; Rev 7:16; Rev 15:3**
 
-[Tuesday 25-January, 2022](https://t.me/daily_light)
+[Wednesday 26-January, 2022](https://t.me/daily_light)

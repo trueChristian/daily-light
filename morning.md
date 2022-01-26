@@ -1,11 +1,13 @@
 **Morning**
 
-**The righteousness of God which is by faith of Jesus Christ unto all and upon all them that believe.**
+**Let us go forth unto him without the camp, bearing his reproach. For here have we no continuing city, but we seek one to come.**
  
-He hath made him to be sin for us, who knew no sin; that we might be made the righteousness of God in him. -- Christ hath redeemed us from the curse of the law, being made a curse for us. -- Who of God is made unto us wisdom, and righteousness, and sanctification, and redemption. -- Not by works of righteousness which we have done, but according to his mercy he saved us, by the washing of regeneration, and renewing of the Holy Ghost; which he shed on us abundantly through Jesus Christ our Saviour.
+Beloved, think it not strange concerning the fiery trial which is to try you, as though some strange thing happened unto you: but rejoice, inasmuch as ye are partakers of Christ's sufferings; that, when his glory shall be revealed, ye may be glad also with exceeding joy. -- As ye are partakers of the sufferings, so shall ye be also of the consolation.
  
-I count all things but loss for the excellency of the knowledge of Christ Jesus my Lord: for whom I have suffered the loss of all things, and do count them but dung, that I may win Christ, and be found in him, not having mine own righteousness, which is of the law, but that which is through the faith of Christ, the righteousness which is of God by faith.  
+If ye be reproached for the name of Christ, happy are ye; for the Spirit of glory and of God resteth upon you: on their part he is evil spoken of, but on your part he is glorified.
+ 
+They departed from the presence of the council, rejoicing that they were counted worthy to suffer shame for his name. -- Choosing rather to suffer affliction with the people of God, than to enjoy the pleasures of sin for a season; esteeming the reproach of Christ greater riches than the treasures in Egypt: for he had respect unto the recompence of the reward.  
 
-**Rom 3:22; 2 Cor 5:21; Gal 3:13; 1 Cor 1:30; Tit 3:5,6; Phl 3:8,9**
+**Heb 13:13,14; 1 Pet 4:12,13; 2 Cor 1:7; 1 Pet 4:14; Acts 5:41; Heb 11:25,26**
 
-[Tuesday 25-January, 2022](https://t.me/daily_light)
+[Wednesday 26-January, 2022](https://t.me/daily_light)
