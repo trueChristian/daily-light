@@ -1,30 +1,30 @@
 # Morning
 
-**Let us go forth unto him without the camp, bearing his reproach. For here have we no continuing city, but we seek one to come.**
+**Ye know that he was manifested to take away our sins: and in him is no sin.**
  
-Beloved, think it not strange concerning the fiery trial which is to try you, as though some strange thing happened unto you: but rejoice, inasmuch as ye are partakers of Christ's sufferings; that, when his glory shall be revealed, ye may be glad also with exceeding joy. -- As ye are partakers of the sufferings, so shall ye be also of the consolation.
+God, ... hath in these last days spoken unto us by his Son, who being the brightness of his glory, and the express image of his person, and upholding all things by the word of his power, when he had by himself purged our sins, sat down on the right hand of the Majesty on high. -- He hath made him to be sin for us, who knew no sin; that we might be made the righteousness of God in him.
  
-If ye be reproached for the name of Christ, happy are ye; for the Spirit of glory and of God resteth upon you: on their part he is evil spoken of, but on your part he is glorified.
- 
-They departed from the presence of the council, rejoicing that they were counted worthy to suffer shame for his name. -- Choosing rather to suffer affliction with the people of God, than to enjoy the pleasures of sin for a season; esteeming the reproach of Christ greater riches than the treasures in Egypt: for he had respect unto the recompence of the reward.  
+Pass the time of your sojourning here in fear: forasmuch as ye know that ye were not redeemed with corruptible things, as silver and gold; ... but with the precious blood of Christ, as of a lamb without blemish and without spot: who verily was foreordained before the foundation of the world, but was manifest in these last times for you. -- The love of Christ constraineth us; because we thus judge, that if one died for all, then were all dead: and that he died for all, that they which live should not henceforth live unto themselves, but unto him which died for them, and rose again.  
 
-**Heb 13:13,14; 1 Pet 4:12,13; 2 Cor 1:7; 1 Pet 4:14; Acts 5:41; Heb 11:25,26**
+**1 John 3:5; Heb 1:13; 2 Cor 5:21; 1 Pet 1:17; 2 Cor 5:14,15**
 
 # Evening
 
-**The Lord Jesus Christ ... shall change our vile body, that it may be fashioned like unto his glorious body.**
+**I have set before you life and death, blessing and cursing: therefore choose life.**
  
-Upon the likeness of the throne was the likeness as the appearance of a man above upon it. And I saw as the colour of amber, as the appearance of fire round about within it, from the appearance of his loins even upward, and from the appearance of his loins even downward, I saw as it were the appear-ance of fire, and it had brightness round about. This was the appearance of the likeness of the glory of the Lord.
+For I have no pleasure in the death of him that dieth, saith the Lord GOD: wherefore turn yourselves, and live ye.
  
-We all, with open face, beholding as in a glass the glory of the Lord, are changed into the same image from glory to glory, even as by the Spirit of the Lord. -- It doth not yet appear what we shall be: but we know that, when he shall appear, we shall be like him; for we shall see him as he is.
+If I had not come and spoken unto them, they had not had sin but now they have no cloke for their sin. That servant, which knew his lord's will, and prepared not himself, neither did according to his will, shall be beaten with many stripes.
  
-They shall hunger no more, neither thirst any more. -- They sing the song of Moses the servant of God, and the song of the Lamb.  
+The wages of sin is death; but the gift of God is eternal life through Jesus Christ our Lord. -- He that believeth on the Son hath everlasting life: and he that believeth not the Son shall not see life but the wrath of God abideth on him. -- Know ye not, that to whom ye yield yourselves servants to obey, his servants ye are to whom ye obey; whether of sin unto death, or of obedience unto righteousness?
+ 
+If any man serve me, let him follow me; and where I am, there shall also my servant be: if any man serve me, him will my Father honour.  
 
-**Phl 3:20,21; Ezek 1:26; 2 Cor 3:18; 1 John 3:2; Rev 7:16; Rev 15:3**
+**Deut 30:19; Ezek 18:32; John 15:22; Luke 12:47; Rom 6:23; John 3:36; Rom 6:16; John 12:26**
 
 ---
 
-[Wednesday 26-January, 2022](https://t.me/s/daily_light)
+[Thursday 27-January, 2022](https://t.me/s/daily_light)
 
 > Jonathan Bagster, the son of Samuel Bagster, created the Daily Light for his own family's daily devotion in 1875
 
