@@ -1,15 +1,13 @@
 **Evening**
 
-**Awake, O north wind, and ... blow upon my garden, that the the spices thereof may flow out.**
+**I will praise thee, O Lord my God, with all my heart: and I will glorify thy name for evermore.**
  
-No chastening for the present seemeth to be joyous, but grievous: never-theless afterward it yieldeth the peaceable fruit of righteousness unto them which are exercised thereby. -- The fruit of the Spirit.
+Whoso offereth praise glorifieth me. -- It is a good thing to give thanks unto the LORD, and to sing praises unto thy name, O most High: to shew forth thy lovingkindness in the morning, and thy faithfulness every night.Let every thing that hath breath praise the Lord.
  
-He stayeth his rough wind in the day of the east wind.Like as a father pitieth his children, so the Lord pitieth them that fear him.
+I beseech you, ... brethren, by the mercies of God, that ye present your bodies a living sacrifice, holy, acceptable unto God, which is your reasonable ser-vice. -- Jesus ... that he might sanctify the people with his own blood, suffered without the gate. By him therefore let us offer the sacrifice of praise to God continually, that is, the fruit of our lips giving thanks to his name. -- Giving thanks always for all things unto God and the Father in the name of our Lord Jesus Christ.
  
-Though our outward man perish, yet the inward man is renewed day by day. For our light affliction, which is but for a moment, worketh for us a far more exceeding and eternal weight of glory; while we look not at the things which are seen, but at the things which are not seen.
- 
-Though [Jesus] were a Son, yet learned he obedience by the the things which he suffered. -- In all points tempted like as we are, yet without sin.  
+Worthy is the Lamb that was slain to receive power, and riches, and wisdom, and strength, and honour, and glory, and blessing.  
 
-**Song 4:16; Heb 12:11; Gal 5:22; Isa 27:8; Psa 103:13; 2 Cor 4:16; Heb 5:8; Heb 4:15**
+**Psa 86:12; Psa 50:23; Psa 92:1,2; Psa 150:6; Rom 12:1; Heb 13:12,15; Eph 5:20; Rev 5:12**
 
-[Friday 28-January, 2022](https://t.me/daily_light)
+[Saturday 29-January, 2022](https://t.me/daily_light)

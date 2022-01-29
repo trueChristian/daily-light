@@ -1,30 +1,30 @@
 # Morning
 
-**As thy days, so shall thy strength be.**
+**Thou God seest me.**
  
-When they shall lead you, and deliver you up, take no thought beforehand what ye shall speak, neither do ye premeditate: but whatsoever shall be given you in that hour, that speak ye: for it is not ye that speak, but the Holy Ghost. -- Take no thought for the morrow: for the morrow shall take thought for the things of itself. Sufficient unto the day is the evil thereof.The God of Israel is he that giveth strength and power unto his people. Blessed be God. -- He giveth power to the faint; and to them that have no might he increaseth strength.
+O Lord, thou hast searched me, and known me. Thou knowest my down-sitting and mine uprising, thou understandest my thought afar off. Thou compassest my path and my lying down, and art acquainted with all my ways. For there is not a word in my tongue, but, lo, O Lord, thou knowest it altogether ... Such knowledge is too wonderful for me: it is high, I cannot attain unto it.
  
-My grace is sufficient for thee: for my strength is made perfect in weakness. Most gladly therefore will I rather glory in my infirmities, that the power of Christ may rest upon me. Therefore I take pleasure in infirmities, in re-proaches, in necessities, in persecutions, in distresses for Christ's sake: for when I am weak, then am I strong. -- I can do all things through Christ which strengtheneth me. -- O my soul, thou hast trodden down strength.  
+The eyes of the Lord are in every place, beholding the evil and the good. -- The ways of man are before the eyes of the Lord, and he pondereth all his goings. -- God knoweth your hearts: for that which is highly esteemed among men is abomination in the sight of God. -- The eyes of the Lord run to and fro throughout the whole earth, to shew himself strong in the behalf of them whose heart is perfect toward him.
+ 
+Jesus ... knew all men, and needed not that any should testify of man; for he knew what was in man. -- Lord, thou knowest all things; thou knowest that I love thee.  
 
-**Deut 33:25; Matt 13:11; Matt 6:34; Psa 68:35; Isa 40:29; 2 Cor 12:9,10; Phl 4:13; Judg 5:21**
+**Gen 16:13; Psa 139:1-4,6; Prov 15:3; Prov 5:21; Luke 16:15; 2 Chr 16:9; John 2:24,25; John 21:17**
 
 # Evening
 
-**Awake, O north wind, and ... blow upon my garden, that the the spices thereof may flow out.**
+**I will praise thee, O Lord my God, with all my heart: and I will glorify thy name for evermore.**
  
-No chastening for the present seemeth to be joyous, but grievous: never-theless afterward it yieldeth the peaceable fruit of righteousness unto them which are exercised thereby. -- The fruit of the Spirit.
+Whoso offereth praise glorifieth me. -- It is a good thing to give thanks unto the LORD, and to sing praises unto thy name, O most High: to shew forth thy lovingkindness in the morning, and thy faithfulness every night.Let every thing that hath breath praise the Lord.
  
-He stayeth his rough wind in the day of the east wind.Like as a father pitieth his children, so the Lord pitieth them that fear him.
+I beseech you, ... brethren, by the mercies of God, that ye present your bodies a living sacrifice, holy, acceptable unto God, which is your reasonable ser-vice. -- Jesus ... that he might sanctify the people with his own blood, suffered without the gate. By him therefore let us offer the sacrifice of praise to God continually, that is, the fruit of our lips giving thanks to his name. -- Giving thanks always for all things unto God and the Father in the name of our Lord Jesus Christ.
  
-Though our outward man perish, yet the inward man is renewed day by day. For our light affliction, which is but for a moment, worketh for us a far more exceeding and eternal weight of glory; while we look not at the things which are seen, but at the things which are not seen.
- 
-Though [Jesus] were a Son, yet learned he obedience by the the things which he suffered. -- In all points tempted like as we are, yet without sin.  
+Worthy is the Lamb that was slain to receive power, and riches, and wisdom, and strength, and honour, and glory, and blessing.  
 
-**Song 4:16; Heb 12:11; Gal 5:22; Isa 27:8; Psa 103:13; 2 Cor 4:16; Heb 5:8; Heb 4:15**
+**Psa 86:12; Psa 50:23; Psa 92:1,2; Psa 150:6; Rom 12:1; Heb 13:12,15; Eph 5:20; Rev 5:12**
 
 ---
 
-[Friday 28-January, 2022](https://t.me/s/daily_light)
+[Saturday 29-January, 2022](https://t.me/s/daily_light)
 
 > Jonathan Bagster, the son of Samuel Bagster, created the Daily Light for his own family's daily devotion in 1875
 
