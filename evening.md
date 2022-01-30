@@ -1,13 +1,15 @@
 **Evening**
 
-**I will praise thee, O Lord my God, with all my heart: and I will glorify thy name for evermore.**
+**It is good for a man that he bear the yoke in his youth.**
  
-Whoso offereth praise glorifieth me. -- It is a good thing to give thanks unto the LORD, and to sing praises unto thy name, O most High: to shew forth thy lovingkindness in the morning, and thy faithfulness every night.Let every thing that hath breath praise the Lord.
+Train up a child in the way he should go: and when he is old, he will not depart from it.
  
-I beseech you, ... brethren, by the mercies of God, that ye present your bodies a living sacrifice, holy, acceptable unto God, which is your reasonable ser-vice. -- Jesus ... that he might sanctify the people with his own blood, suffered without the gate. By him therefore let us offer the sacrifice of praise to God continually, that is, the fruit of our lips giving thanks to his name. -- Giving thanks always for all things unto God and the Father in the name of our Lord Jesus Christ.
+We have had fathers of our flesh, which corrected us; and we gave them reverence: shall we not much rather be in subjection unto the Father of spirits, and live? For they verily for a few days chastened us after their own pleasure; but he for our profit, that we might be partakers of his holiness.
  
-Worthy is the Lamb that was slain to receive power, and riches, and wisdom, and strength, and honour, and glory, and blessing.  
+Before I was afflicted I went astray: but now have I kept thy word. It is good for me that I have been afflicted; that I might learn thy statutes.
+ 
+I know the thoughts that I think toward you, saith the Lord, thoughts of peace, and not of evil, to give you an expected end. -- Humble yourselves, therefore under the mighty hand of God, that he may exalt you in due time.  
 
-**Psa 86:12; Psa 50:23; Psa 92:1,2; Psa 150:6; Rom 12:1; Heb 13:12,15; Eph 5:20; Rev 5:12**
+**Lam 3:27; Prov 22:6; Heb 12:9,10; Psa 119:67,71; Jer 29:11; 1 Pet 5:6**
 
-[Saturday 29-January, 2022](https://t.me/daily_light)
+[Sunday 30-January, 2022](https://t.me/daily_light)
