@@ -1,13 +1,15 @@
 **Evening**
 
-**If a man sin against the Lord, who shall intreat for him?**
+**The Lord Our Righteousness.**
  
-If any man sin, we have an advocate with the Father, Jesus Christ the righteous: and he is the propitiation for our sins: and not for our's only, but also for the sins of the whole world. -- Whom God hath set forth to be a propitiation through faith in his blood, to declare his righteousness for the remission of sins that are past, through the forbearance of God; to declare, I say, at this time his righteousness: that he might be just, and the justifier of him which believeth in Jesus.
+We are all as an unclean thing, and all our righteousnesses are as filthy rags.
  
-He is gracious unto him, and saith, Deliver him from going down to the pit: I have found a ransom.
+I will go in the strength of the Lord God: I will make mention of thy righteousness, even of thine only. -- I will greatly rejoice in the Lord, my soul shall be joyful in my God; for he hath clothed me with the garments of salvation, he hath covered me with the robe of righteousness, as a bridegroom decketh himself with ornaments, and as a bride adorneth herself with her jewels.
  
-What shall we then say to these things? If God be for us, who can be against us? It is God that justifieth. Who is he that condemneth? It is Christ that died, yea, rather, that is risen again, who is even at the right hand of God, who also maketh intercession for us.  
+Bring forth the best robe, and put it on him. -- To her was granted that she should be arrayed in fine linen, clean and white: for the fine linen is the righteousness of saints.
+ 
+I count all things but loss for the excellency of the knowledge of Christ Jesus my Lord ... that I may win Christ, and be found in him, not having mine own righteousness, which is of the law, but that which is through the faith of Christ, the righteousness which is of God by faith.  
 
-**1 Sam 2:25; 1 John 2:1,2; Rom 3:25,26; Job 33:24; Rom 8:31,33,34**
+**Jer 23:6; Isa 64:6; Psa 71:16; Isa 61:10; Luke 15:22; Rev 19:8; Phl 3:8,9**
 
-[Monday 31-January, 2022](https://t.me/daily_light)
+[Tuesday 01-February, 2022](https://t.me/daily_light)
