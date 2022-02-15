@@ -1,30 +1,30 @@
 # Morning
 
-**Suffer it to be so now: for thus it becometh us to fulfill all righteousness.I delight to do thy will, O my God: yea, thy law is within my heart.**
+**Who can say, I have made my heart clean?**
  
-Think not that I am come to destroy the law, or the prophets: I am not come to destroy, but to fulfil. For verily I say unto you, Till heaven and earth pass, one jot or one tittle shall in no wise pass from the law, till all be fulfilled. -- The Lord is well pleased for his righteousness' sake; he will magnify the law, and make it honourable. -- Except your righteousness shall exceed the righteousness of the scribes and Pharisees ye shall in no case enter into the kingdom of heaven.
+The Lord looked down from heaven upon the children of men, to see if there were any that did understand, and seek God. They are all gone aside, they are all together become filthy: there is none that doeth good, no, not one. -- They that are in the flesh cannot please God.
  
-What the law could not do, in that it was weak through the flesh, God sending his own Son in the likeness of sinful flesh, and for sin, condemned sin in the flesh: that the righteousness of the law might be fulfilled in us, who walk not after the flesh, but after the Spirit. -- Christ is the end of the law for righteousness to every one that believeth.  
+To will is present with me; but how to perform that which is good I find not. For the good that I would I do not: but the evil which I would not, that I do. -- We are all as an unclean thing, and all our righteousnesses are as filthy rags: and we all do fade as a leaf: and our iniquities, like the wind, have taken us away.
+ 
+The scripture hath concluded all under sin, that the promise by faith of Jesus Christ might be given to them that believe. -- God was in Christ, reconciling the world unto himself, not imputing their trespasses unto them.If we say that we have no sin, we deceive ourselves, and the truth is not in us. If we confess our sins, he is faithful and just to forgive us our sins, and to cleanse us from all unrighteousness.  
 
-**Matt 3:15; Psa 40:8; Matt 5:17,18; Isa 42:21; Matt 5:20; Rom 8:3,4; Rom 10:4**
+**Prov 20:9; Psa 14:2,3; Rom 8:8; Rom 7:18,19; Isa 64:6; Gal 3:22; 2 Cor 5:19; 1 John 1:8,9**
 
 # Evening
 
-**I am thy part and thine inheritance.**
+**The floods lift up their waves.**
  
-Whom have I in heaven but thee! and there is none upon earth that I desire beside thee. My flesh and my heart faileth: but God is the strength of my heart, and my portion for ever. -- The LORD is the portion of mine in-eritance and of my cup: thou maintainest my lot. The lines are fallen unto me in pleasant places ; yea, I have a goodly heritage.
+The Lord on high is mightier than the noise of many waters, yea, than the mighty waves of the sea. -- O Lord God of hosts, who is a strong Lord like unto thee? or to thy faithfulness round about thee? thou rulest the raging of the sea: when the waves thereof arise, thou stillest them.
  
-The Lord is my portion, saith my soul; therefore will I hope in him.Thy testimonies have I taken as an heritage for ever: for they are the rejoicing of my heart.
+Fear ye not me? saith the Lord: will ye not tremble at my presence, which have placed the sand for the bound of the sea by a perpetual decree, that it cannot pass it? When thou passest through the waters, I will be with thee; and through the rivers, they shall not overflow thee.
  
-O God, thou art my God; early will I seek thee: my soul thirsteth for thee, my flesh longeth for thee in a dry and thirsty land, where no water is ... Because thou hast been my help, therefore in the shadow of thy wings will I rejoice.
- 
-My beloved is mine, and I am his.  
+Peter ... walked on the water, to go to Jesus. But when he saw the wind boisterous, he was afraid; and beginning to sink, he cried, saying, Lord, save me. And immediately Jesus stretched forth his hand, and caught him, and said unto him, O thou of little faith, wherefore didst thou doubt?What time I am afraid, I will trust in thee.  
 
-**Num 18:20; Psa 73:25,26; Psa 16:5,6; Lam 3:24; Psa 119:111; Psa 63:1,7; Song 2:16**
+**Psa 93:3; Psa 93:4; Psa 89:8,9; Jer 5:22; Isa 43:2; Matt 14:29; Psa 56:3**
 
 ---
 
-[Monday 14-February, 2022](https://t.me/s/daily_light)
+[Tuesday 15-February, 2022](https://t.me/s/daily_light)
 
 > Jonathan Bagster, the son of Samuel Bagster, created the Daily Light for his own family's daily devotion in 1875
 
