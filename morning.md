@@ -1,13 +1,13 @@
 **Morning**
 
-**The Lord giveth wisdom: out of his mouth cometh knowledge and understanding.**
+**He shall see of the travail of his soul and shall be satisfied.**
  
-Trust in the Lord with all thine heart; and lean not unto thine own under-standing. -- If any of you lack wisdom let him ask of God, that giveth to all men liberally and upbradeth not; and it shall be given him. -- The fool-ishness of God is wiser than men; and the weakness of God is stronger than men. -- God hath chosen the foolish things of the world to confound the wise. That no flesh should glory in his presence.
+Jesus ... said, It is finished: and he bowed his head, and gave up the ghost. -- He hath made him to be sin for us, who knew no sin; that we might be made the righteousness of God in him.
  
-The entrance of thy words giveth light; it giveth understanding unto the simple. -- Thy word have I hid in my heart, that I might not sin against thee.
+This people have I formed for myself; they shall shew forth my praise. -- To the intent that now unto the principalities and powers in heavenly places might be known by the church the manifold wisdom of God, according to the eternal purpose which be purposed in Christ Jesus our Lord. -- That in the ages to come he might shew the exceeding riches of his grace in his kindness toward us through Christ Jesus.
  
-All bare him witness, and wondered at the gracious words which proceeded out of his mouth. -- Never man spake like this man. -- Of him are ye in Christ Jesus, who of God is made unto us wisdom, and righteousness, and sanc-tification, and redemption.  
+After that ye believed, ye were sealed with that holy Spirit of promise, which is the earnest of our inheritance until the redemption of the purchased possession, unto the praise of his glory. -- Ye are a chosen generation, a royal priesthood, a holy nation, a peculiar people; that ye should shew forth the praises of him who hath called you out of darkness into his marvellous light.  
 
-**Prov 2:6; Prov 3:5; Jas 1:5; 1 Cor 1:25; 1 Cor 1:27,29; Psa 119:130; Psa 119:11; Luke 4:22; John 7:46; 1 Cor 1:30**
+**Isa 3:11; John 19:30; 2 Cor 5:21; Isa 43:21; Eph 3:10,11; Eph 2:7; Eph 1:13,14; 1 Pet 2:9**
 
-[Saturday 19-February, 2022](https://t.me/daily_light)
+[Sunday 20-February, 2022](https://t.me/daily_light)
