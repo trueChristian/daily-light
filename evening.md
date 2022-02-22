@@ -1,13 +1,15 @@
 **Evening**
 
-**Light is sown for the righteous, and gladness for the upright in heart.**
+**When thou liest down, thou shall not be afraid: yea, thou shalt lie down, and thy sleep shall be sweet.**
  
-They that sow in tears shall reap in joy. He that goeth forth and weepeth, bearing precious seed, shall doubtless come again with rejoicing, bringing his sheaves with him.
+There arose a great storm of wind, and the waves beat into the ship, so that it was now full. And he was in the hinder part of the ship, asleep on a pillow.
  
-That which thou sowest, thou sowest not that body that shall be.
+Be careful for nothing; but in every thing by prayer and supplication with thanksgiving let your requests be made known unto God. And the peace of God, which passeth all understanding, shall keep your hearts and minds through Christ Jesus.
  
-Blessed be the God and Father of our Lord Jesus Christ, which according to his abundant mercy hath begotten us again unto a lively hope by the resur-rection of Jesus Christ from the dead. Wherein ye greatly rejoice, though now for a season, if need be, ye are in heaviness through manifold temptations: that the trial of your faith, being much more precious than of gold that per-isheth, though it be tried with fire, might be found unto praise and honour and glory at the appearing of Jesus Christ.  
+I will both lay me down in peace, and sleep: for thou, Lord, only makest me dwell in safety. -- He giveth his beloved sleep.
+ 
+They stoned Stephen, calling upon God, and saying, Lord Jesus, receive my spirit. And he kneeled down, and cried with a loud voice, Lord, lay not this sin to their charge. And when he had said this, he fell asleep. -- Absent from the body, ... present with the Lord.  
 
-**Psa 97:11; Psa 126:5,6; 1 Cor 15:27; 1 Pet 1:3,6,7**
+**Prov 3:24; Mark 4:37,38; Phl 4:6,7; Psa 4:8; Psa 127:2; Acts 7:59,60; 2 Cor 5:8**
 
-[Monday 21-February, 2022](https://t.me/daily_light)
+[Tuesday 22-February, 2022](https://t.me/daily_light)
