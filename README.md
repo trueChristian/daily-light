@@ -1,34 +1,26 @@
 # Morning
 
-**Resist the devil, and he will flee from you.**
+**Let us search and try our ways, and turn again to the Lord.**
  
-When the enemy shall come in like a flood, the Spirit of the Lord shall lift up a standard against him. -- Get thee hence, Satan: for it is written, Thou shalt worship the Lord thy God, and him only shalt thou serve. Then the devil leaveth him, and, behold, angels came and ministered unto him.
+Examine me, O Lord, and prove me; try my reins and my heart. -- Behold, thou desirest truth in the inward parts: and in the hidden part thou shalt make me to know wisdom. -- I thought on my ways, and turned my feet unto thy testimonies. I made haste and delayed not to keep thy commandments. -- Let a man examine himself, and so let him eat of that bread, and drink of that cup.
  
-Be strong in the Lord, and in the power of his might. Put on the whole armour of God, that ye may he able to stand against the wiles of the devil. -- And have no fellowship with the unfruitful works of darkness, but rather reprove them. -- Lest Satan should get an advantage of us: for we are not ignorant of his devices. -- Be sober, be vigilant; because your adversary the devil, as a roaring lion, walketh about, seeking whom he may devour; whom resist stedfast in the faith, knowing that the same afflictions are accomplished in your brethren that are in the world. -- This is the victory that overcometh the world, even our faith.
- 
-Who shall lay anything to the charge of God's elect? It is God that justifieth.  
+If we confess our sins, he is faithful and just to forgive us our sins, and to cleanse us from all unrighteousness. -- We have an advocate with the Father, Jesus Christ the righteous: and he is the propitiation for our sins. -- Having therefore, brethren, boldness to enter into the holiest by the blood of Jesus, by a new and living way which he hath consecrated for us, through the veil, that is say, his flesh: and having a high priest over the house of God; let us draw near with a true heart, in full assurance of faith, having our hearts sprinkled from an evil conscience, and our bodies washed with pure water.  
 
-**Jas 4:7; Isa 59:19; Matt 4:10,11; Eph 6:10,11; Eph 5:11; 2 Cor 2:11; 1 Pet 5:8,9; 1 John 5:4; Rom 8:33**
+**Lam 3:40; Psa 26:2; Psa 51:6; Psa 119:59,60; 1 Cor 11:28; 1 John 1:9; 1 John 2:1; Heb 10:19‑22**
 
 # Evening
 
-**Oh that I knew where I might find him!**
+**There was a rainbow round about the throne, in sight like unto an emerald.**
  
-Who is among you that feareth the Lord, that obeyeth the voice of his ser-vant, that walketh in darkness, and hath no light? let him trust in the name of the Lord, and stay upon his God.
+This is the token of the covenant which I make between me and you and every living creature that is with you, for perpetual generations: I do set my bow in the cloud,... and I will look upon it, that I may remember the ever-lasting covenant between God and every living creature of all flesh that is upon the earth. -- An everlasting covenant, ordered in all things and sure. -- That by two immutable things, in which it was impossible for God to lie, we might have a strong consolation, who have fled for refuge to lay hold upon the hope set before us.
  
-Ye shall seek me, and find me, when ye shall search for me with all your heart. -- Seek, and ye shall find; knock, and it shall be opened unto you. For every one that asketh receiveth; and he that seeketh findeth; and to him that knocketh it shall be opened.
- 
-Truly our fellowship is with the Father, and with his Son Jesus Christ. -- Now in Christ Jesus ye who sometime were far off are made nigh by the blood of Christ. For through him we both have access by one Spirit unto the Father.
- 
-If we say that we have fellowship with him, and walk in darkness, we lie, and do not the truth.
- 
-Look, I am with you alway. -- I will never leave thee, nor forsake thee. -- The Comforter ... dwelleth with you, and shall be in you.  
+We declare unto you glad tidings, how that the promise which was made unto the fathers, God hath fulfilled the same unto their children, in that He hath raised up Jesus again.Jesus Christ the same yesterday, and today, and for ever.  
 
-**Job 23:3; Isa 50:10; Jer 29:13; Luke 11:9,10; 1 John 1:3; Eph 2:13,18; 1 John 1:6; Matt 28:20; Heb 13:5; John 14:16,17**
+**Rev 4:3; Gen 9:12,13,16; 2 Sam 23:5; Heb 6:18; Acts 13:32; Heb 13:8**
 
 ---
 
-[Friday 25-February, 2022](https://t.me/s/daily_light)
+[Saturday 26-February, 2022](https://t.me/s/daily_light)
 
 > Jonathan Bagster, the son of Samuel Bagster, created the Daily Light for his own family's daily devotion in 1875
 
