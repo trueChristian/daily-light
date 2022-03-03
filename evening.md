@@ -1,11 +1,13 @@
 **Evening**
 
-**There remaineth therefore a rest to the people of God.**
+**The prize of the high calling of God in Christ Jesus.**
  
-There the wicked cease from troubling; and there the weary be at rest. There the prisoners rest together; they hear not the voice of the oppressor.Blessed are the dead which die in the Lord from henceforth; they ... rest from their labours; and their works do follow them.
+Thou shalt have treasure in heaven: ... come and follow me. -- I am ... thy exceeding great reward.Well done, thou good and faithful servant: thou hast been faithful over a few things, I will make thee ruler over many things: enter thou into the joy of thy lord. -- They shall reign for ever and ever.
  
-Our friend Lazarus sleepeth ... Jesus spake of his death: but they thought that he had spoken of taking of rest in sleep.We that are in this tabernacle do groan, being burdened. -- Ourselves also, which have the firstfruits of the Spirit, even we ourselves groan within ourselves, waiting for the adoption, to wit, the redemption of our body. For we are saved by hope: but hope that is seen is not hope ... But if we hope for that we see not, then do we with patience wait for it.  
+Ye shall receive a crown of glory that fadeth not away. -- The crown of life. -- A crown of righteousness. -- An incorruptible crown.
+ 
+Father, I will that they also, whom thou hast given me, be with me where I am; that they may behold my glory, which thou has given me. -- So shall we ever be with the Lord.I reckon that the sufferings of this present time are not worthy to be compared with the glory which shall be revealed in us.  
 
-**Heb 4:9; Job 3:17,18; Rev 14:13; John 11:11,13; 2 Cor 5:4; Rom 8:23‑25**
+**Phl 3:14; Matt 19:21; Gen 15:1; Mark 25:21; Rev 22:5; 1 Pet 5:4; Jas 1:12; 2 Tim 4:8; 1 Cor 9:25; John 17:24; 1 Thes 4:17; Rom 8:18**
 
-[Wednesday 02-March, 2022](https://t.me/daily_light)
+[Thursday 03-March, 2022](https://t.me/daily_light)
