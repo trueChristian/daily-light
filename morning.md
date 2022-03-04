@@ -1,13 +1,11 @@
 **Morning**
 
-**Trust in the Lord with all thine heart; and lean not unto thine own understand-ing. In all thy ways acknowledge him, and he shall direct thy paths.**
+**Set your affection on things above, not on things on the earth.**
  
-Trust in him at all times; ye people, pour out your heart before him: God is a refuge for us.
+Love not the world, neither the things that are in the world. If any man love the world, the love of the Father is not in him. -- Lay not up for yourselves treasures upon earth, where moth and rust doth corrupt, and where thieves break through and steal: but lay up for yourselves treasures in heaven, where neither moth nor rust doth corrupt, and where thieves do not break through nor steal: for where your treasure is, there will your heart be also.
  
-I will instruct thee and teach thee in the way which thou shalt go: I will guide thee with mine eye. Be ye not as the horse, or as the mule, which have no understanding: whose mouth must be held in with bit and bridle, lest they come near unto thee. Many sorrows shall be to the wicked: but he that trusteth in the Lord, mercy shall compass him about. -- Thine ears shall hear a word behind thee, saying, This is the way, walk ye in it, when ye turn to the right hand, and when ye turn to the left.
- 
-If thy presence go not with me, carry us not up hence. For wherein shall it be known here that I and thy people have found grace in thy sight? is it not in that thou goest with us? so shall we be separated, I and thy people, from all the people that are upon the face of the earth.  
+We walk by faith, not by sight. -- We faint not; but though our outward man perish, yet the inward man is renewed day by day. For our light affliction which is but for a moment, worketh for us a far more exceeding and eternal weight of glory: while we look not at the things which are seen, but at the things which are not seen: for the things which are seen are temporal; but the things which are not seen are eternal. -- An inheritance incorruptible, and undefiled, and that fadeth not away, reserved in heaven for you.  
 
-**Prov 3:5,6; Psa 62:8; Psa 32:8‑10; Isa 30:21; Exo 33:15,16**
+**Col 3:2; 1 John 2:15; Matt 6:19‑21; 2 Cor 5:7; 2 Cor 4:16‑18; 1 Pet 1:4**
 
-[Thursday 03-March, 2022](https://t.me/daily_light)
+[Friday 04-March, 2022](https://t.me/daily_light)
