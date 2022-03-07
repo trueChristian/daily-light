@@ -1,11 +1,17 @@
 **Morning**
 
-**He preserveth the way of his saints.**
+**Thy Maker is thine husband; the Lord of hosts is his name.**
  
-The Lord your God ... went in the way before you, to search you out a place to pitch your tents in, in fire by night, to shew you by what way ye should go, and in a cloud by day. -- As an eagle stirreth up her nest, fluttereth over her young, spreadeth abroad her wings, taketh them, beareth them on her wings: so the Lord alone did lead him. -- The steps of a good man are ordered by the Lord: and he delighteth in his way. Though he fall, he shall not be utterly cast down: for the Lord upholdeth him with his hand. -- Many are the afflictions of the righteous: but the Lord delivereth him out of them all. -- For the Lord knoweth the way of the righteous; but the way of the ungodly shall perish. -- We know that all things work together for good to them that love God, to them who are the called according to his purpose. -- With us is the Lord our God to help us, and to fight our battles.
+This is a great mystery: but I speak concerning Christ and the church.
  
-The Lord thy God in the midst of thee is mighty; he will save, he will rejoice over thee with joy.  
+Thou shalt no more be termed Forsaken ... but thou shalt be called Heph-zibah, ... for the Lord delighteth in thee. And as the bridegroom rejoiceth over the bride, so shall thy God rejoice over thee. -- He hath sent me ... to comfort all that mourn; to appoint unto them that mourn in Zion, to give unto them beauty for ashes, the oil of joy for mourning, the garment of praise for the spirit of heaviness.
+ 
+I will greatly rejoice in the Lord, my soul shall be joyful in my God; for he hath clothed me with the garments of salvation, as a bridegroom decketh himself with ornaments, and as a bride adorneth herself with her jewels.
+ 
+I will betroth thee unto me for ever; yea, I will betroth thee unto me in right-eousness, and in judgment, and in lovingkindness and in mercies.
+ 
+Who shall separate us from the love of Christ?  
 
-**Prov 2:8; Deut 1:32,33; Deut 32:11,12; Psa 37:23,24; Psa 34:19; Psa 1:6; Rom 8:28; 2 Chr 32:8; Zeph 3:17**
+**Isa 54:5; Eph 5:32; Isa 62:4,5; Isa 61:1‑3; Isa 61:10; Hos 2:19; Rom 8:35**
 
-[Sunday 06-March, 2022](https://t.me/daily_light)
+[Monday 07-March, 2022](https://t.me/daily_light)
