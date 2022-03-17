@@ -1,13 +1,15 @@
 **Evening**
 
-**I will sing with the spirit, and I will sing with the understanding also.**
+**In all points tempted like as we are, yet without sin.**
  
-Be filled with the Spirit, speaking to yourselves in psalms and hymns and spiritual songs, singing and making melody in your heart to the Lord. -- Let the word of Christ dwell in you richly in all wisdom; teaching and ad-monishing one another in psalms and hymns and spiritual songs, singing with grace in your hearts to the Lord.
+When the woman saw that the tree was good for food (the lust of the flesh), and that it was pleasant to the eyes (the lust of the eyes), and a tree to be desired to make one wise (the pride of life), she took of the fruit thereof, and did eat, and gave also unto her husband with her; and he did eat.
  
-My mouth shall speak the praise of the Lord: and let all flesh bless his holy name for ever and ever.Praise ye the Lord: for it is good to sing praises unto our God; for it is pleasant; and praise is comely. Sing unto the Lord with thanksgiving; sing praise upon the harp unto our God.
+When the tempter came to [Jesus], he said, if thou be the Son of God, command that these stones be made bread (the lust of the flesh). But he answered, ... Man shall not live by bread alone, but by every word that proceedeth out of the mouth of God. The devil ... sheweth him all the kingdoms of the world, and the glory of them (the lust of the eyes, and the pride of life). Then saith Jesus unto him, Get thee hence, Satan.
  
-I heard a voice from heaven, as the voice of many waters, and as the voice of a great thunder; and I heard the voice of harpers harping with their harps.  
+In that he himself hath suffered being tempted, he is able to succour them that are tempted.
+ 
+Blessed is the man that endureth temptation.  
 
-**1 Cor 14:15; Eph 5:18,19; Col 3:16; Psa 145:21; Psa 147:1,7; Rev 14:2**
+**Heb 4:15; Gen 3:6; 1 John 2:16; Matt 4:3,4,8‑10; 1 John 2:16; Heb 2:18; Jas 1:12**
 
-[Wednesday 16-March, 2022](https://t.me/daily_light)
+[Thursday 17-March, 2022](https://t.me/daily_light)
