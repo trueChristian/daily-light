@@ -1,15 +1,13 @@
 **Morning**
 
-**God, having raised up his Son Jesus, sent him to bless you, in the turning away every one of you from his iniquities.**
+**The entrance of thy words giveth light.**
  
-Blessed be the God and Father of our Lord Jesus Christ, which according to his abundant mercies hath begotten us again unto a lively hope by the resurrection of Jesus Christ from the dead. -- Saved by his life.
+This ... is the message which we have heard of him, and declare unto you, that God is light, and in him is no darkness at all. -- God, who commanded the light to shine out of darkness, hath shined in our hearts, to give the light of the knowledge of the glory of God in the face of Jesus Christ. -- The Word was God. In him was life; and the life was the light of men. -- If we walk in the light, as he is in the light, we have fellowship one with another and the blood of Jesus Christ his Son cleanseth us from all sin.
  
-Our Saviour Jesus Christ ... who gave himself for us that he might redeem us from all iniquity, and purify unto himself a peculiar people, zealous of good works. -- As he which hath called you is holy, so be ye holy in all manner of conversation; because it is written, Be ye holy for I am holy.
+Thy word have I hid in mine heart, that I might not sin against thee. -- Ye are clean through the word which I have spoken unto you.
  
-The God and Father of our Lord Jesus Christ, ... hath blessed us with all spiritul blessings in heavenly places in Christ. -- In him dwelleth all the fulness of the Godhead bodily. And ye are complete in him. -- Of his fulness have all we received, and grace for grace.
- 
-He that spared not his own son, but delivered him up for us all, how shall he not with him also freely give us all things?  
+Ye were sometimes darkness, but now are ye light in the Lord: walk as children of light. -- Ye are a chosen generation, a royal priesthood, a holy nation, a peculiar people; that ye should shew forth the praises of him who hath called you out of darkness into his marvellous light.  
 
-**Acts 3:26; 1 Pet 1:3; Rom 5:10; Tit 2:13,14; 1 Pet 1:15,16; Eph 1:3; Col 2:9,10; John 1:16; Rom 8:32**
+**Psa 119:130; 1 John 1:5; 2 Cor 4:6; John 1:1,4; 1 John 1:7; Psa 119:11; John 15:3; Eph 5:8; 1 Pet 2:9**
 
-[Saturday 19-March, 2022](https://t.me/daily_light)
+[Sunday 20-March, 2022](https://t.me/daily_light)
