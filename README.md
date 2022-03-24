@@ -1,28 +1,32 @@
 # Morning
 
-**Holy, holy, holy, Lord God Almighty.**
+**Abraham believed in the Lord; and he counted it to him for righteousness.**
  
-Thou art holy, O thou that inhabitest the praises of Israel. -- Draw not nigh hither; put off thy shoes from off thy feet, for the place whereon thou standest is holy ground ... I am the God of thy father, the God of Abraham, the God ot Isaac, and the God of Jacob. And Moses hid his face; for he was afraid to look upon God. -- To whom then will ye liken me, or shall I be equal? saith the Holy One. -- I am the Lord thy God, the Holy One of Israel, thy Saviour. I, even I, am the Lord; and beside me there is no saviour.
+He staggered not at the promise of God through unbelief; but was strong in faith, giving glory to God; and being fully persuaded that, what he had promised, he was able also to perform. And therefore it was imputed to him for righteousness. Now it was not written for his sake alone, that it was imputed to him: but for us also, to whom it shall be imputed, if we believe on him that raised up Jesus our Lord from the dead.
  
-As he which hath called you is holy, so be ye holy in all manner of conver-sation; because it is written, Be ye holy; for I am holy. -- Know ye not that your body is the temple of the Holy Ghost which is in you, which ye have of God, and ye are not your own. -- Ye are the temple of the living God; as God hath said, I will dwell in them, and walk in them; and I will be their God, and they shall be my people. -- Can two walk together, except they be agreed?  
+The promise, that he should be the heir of the world, was not to Abraham, or to his seed, through the law, but through the righteousness of faith.
+ 
+The just shall live by faith. -- Let us hold fast the profession of our faith without wavering; (for he is faithful that promised). -- Our God is in the heavens; he hath done whatsoever he hath pleased. -- With God nothing shall be impossible. And blessed is she that believed: for there shall be a perform-ance of those things which were told her from the Lord.  
 
-**Rev 4:8; Psa 22:3; Exo 3:5,6; Isa 40:25; Isa 43:3,11; 1 Pet 1:15,16; 1 Cor 6:19; 2 Cor 6:16; Amos 3:3**
+**Gen 15:6; Rom 4:20‑24; Rom 4:13; Rom 1:17; Heb 10:23; Psa 115:3; Luke 1:37,45**
 
 # Evening
 
-**They constrained him, saying, Abide with us.**
+**God hath called you unto his kingdom and glory.**
  
-Behold, I stand at the door, and knock: if any man hear my voice, and open the door, I will come in to him, and will sup with him, and he with me. -- Tell me, O thou whom my soul loveth, where thou feedest, where thou makest thy flock to rest at noon: for why should I be as one that turneth aside by the flocks of thy companions? -- I found him whom my soul loveth: I held him, and would not let him go.
+My kingdom is not of this world: if my kingdom were of this world, then would my servants fight, ... but now is my kingdom not from hence. -- Expecting till his enemies be made his footstool.
  
-Let my beloved come into his garden. and eat his pleasant fruits. -- I am come into my garden. -- I said not unto the seed of Jacob, Seek ye me in vain.
+The kingdoms of this world are become the kingdoms of our Lord, and of his Christ; and he shall reign for ever and ever. -- Thou hast made us unto our God kings and priests: and we shall reign on the earth. -- I saw thrones, and they sat upon them, and judgment was given unto them; ... and they lived and reigned with Christ a thousand years. -- Then shall the righteous shine forth as the sun in the kingdom of their Father. -- Fear not, little flock; for it is your Father's good pleasure to give you the kingdom.
  
-Lo, I am with you alway, even unto the end of the world. -- I will never leave thee, nor forsake thee. -- Where two or three are gathered together in my name, there am I in the midst of them. -- The world seeth me no more; but, ye see me.  
+I appoint unto you a kingdom, as my Father hath appointed unto me; that ye may eat and drink at my table in my kingdom, and sit on thrones judging the twelve tribes of Israel.
+ 
+Thy kingdom come.  
 
-**Luke 24:29; Rev 3:20; Song 1:7; Song 1:4; Song 4:16; Song 5:1; Isa 45:19; Matt 28:20; Heb 13:5; Matt 18:20; John 14:19**
+**1 Thes 2:12; John 18:36; Heb 10:13; Rev 11:15; Rev 5:10; Rev 20:4; Matt 13:43; Luke 12:32; Luke 22:29,30; Matt 6:10**
 
 ---
 
-[Wednesday 23-March, 2022](https://t.me/s/daily_light)
+[Thursday 24-March, 2022](https://t.me/s/daily_light)
 
 > Jonathan Bagster, the son of Samuel Bagster, created the Daily Light for his own family's daily devotion in 1875
 
