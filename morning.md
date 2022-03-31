@@ -1,13 +1,11 @@
 **Morning**
 
-**Isaac went out to meditate in the field at the eventide.**
+**My God shall supply all your need according to his riches in glory by Christ Jesus.**
  
-Let the words of my mouth, and the meditation of my heart, be acceptable in thy sight, O Lord, my strength, and my redeemer.
+Seek ye first the kingdom of God, and his righteousness; and all ... things shall be added unto you. -- He that spared not his Son, but delivered him up for us all, how shall he not with him freely give us all things? -- All things are your's: whether Paul or Apollos, or Cephas, or the world, or life, or death, or things present, or things to come: all are your's: and ye are Christ's; and Christ is God's. -- As having nothing, and yet possessing all things.
  
-When I consider thy heavens, the work of thy fingers, the moon and the stars, which thou hast ordained; what is man, that thou art mindful of him? and the son of man, that thou visitest him? -- The works of the Lord are great, sought out of all them that have pleasure therein.
- 
-Blessed is the man that walketh not in the counsel of the ungodly, nor standeth in the way of sinners, nor sitteth in the seat of the scornful. But his delight is in the law of the Lord; and in his law doth he meditate day and night. -- This book of the law shall not depart out of thy mouth; but thou shalt meditate therein day and night. -- My soul shall be satisfied as with marrow and fatness; and my mouth shall praise thee with joyful lips: when I remem-ber thee upon my bed, and meditate on thee in the night watches.  
+The Lord is my shepherd; I shall not want. -- The Lord God is a sun and shield: the Lord will give grace and glory: no good thing will be withheld from them that walk uprightly. -- The living God, ... giveth us richly all things to enjoy. -- God is able to make all grace abound toward you; that ye, always having all sufficiency in all things, may abound to every good work.  
 
-**Gen 24:63; Psa 19:14; Psa 8:3,4; Psa 111:2; Psa 1:1,2; Josh 1:8; Psa 63:5,6**
+**Phil 4:19; Matt 6:33; Rom 8:32; 1 Cor 3:21‑23; 2 Cor 6:10; Psa 23:1; Psa 84:11; 1 Tim 6:17; 2 Cor 9:8**
 
-[Wednesday 30-March, 2022](https://t.me/daily_light)
+[Thursday 31-March, 2022](https://t.me/daily_light)
