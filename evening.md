@@ -1,17 +1,13 @@
 **Evening**
 
-**What communion hath light with darkness?**
+**Jehovah‑shalom: (The Lord send peace.)**
  
-Men loved darkness rather than light, because their deeds were evil. -- Ye are all the children of light, and the children of the day: we are not of the night, nor of darkness.
+Behold, a son shall be born to thee, who shall be a man of rest, and I will give him rest from all his enemies round about: for his name shall be Solomon, and I will give peace and quietness unto Israel in his days.
  
-Darkness hath blinded his eyes. -- Thy word is a lamp unto my feet, and a light unto my path.
+Behold, a greater than Solomon is here. -- Unto us a child is born, unto us a son is given; and the government shall be upon his shoulder, and his name shall be called Wonderful, Counsellor, the mighty God, the everlasting Father, the Prince of Peace. -- My people shall dwell in a peaceable habitation, and in sure dwellings, and in quiet resting places; when it shall hail, coming down on the forest ; and the city shall be low in a low place.
  
-The dark places of the earth are full of the habitations of cruelty. -- Love is of God; and every one that loveth is born of God, and knoweth God. He that loveth not knoweth not God; for God is love.
- 
-The way of the wicked is as darkness: they know not at what they stumble. The path of the just is as the shining light, that shineth more and more unto the perfect day.I am come a light into the world, that whosoever believeth on me should not abide in darkness
- 
-Ye were sometime darkness, but now are ye light in the Lord: walk as children of light.  
+He is our peace. -- This man shall be the peace when the Assyrian shall come into our land.These shall make war with the Lamb, and the Lamb shall overcome them: for he is Lord of lords, and King of kings.Peace I leave with you, my peace I give unto you.  
 
-**2 Cor 6:14; John 3:19; 1 Thes 5:5; 1 John 2:11; Psa 119:105; Psa 74:20; 1 John 4:7,8; Prov 4:19,18; John 12:46; Eph 5:8**
+**Judg 6:24; 1 Chr 22:9; Matt 12:42; Isa 9:6; Isa 32:18,19; Eph 2:14; Mic 5:5; Rev 17:14; John 14:27**
 
-[Thursday 31-March, 2022](https://t.me/daily_light)
+[Friday 01-April, 2022](https://t.me/daily_light)
