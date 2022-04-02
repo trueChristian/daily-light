@@ -1,13 +1,13 @@
 **Evening**
 
-**Jehovah‑shalom: (The Lord send peace.)**
+**When the Son of man cometh, shall he find faith on the earth?**
  
-Behold, a son shall be born to thee, who shall be a man of rest, and I will give him rest from all his enemies round about: for his name shall be Solomon, and I will give peace and quietness unto Israel in his days.
+He came unto his own, and his own received him not. -- The Spirit speaketh expressly, that in the latter times some shall from the faith.
  
-Behold, a greater than Solomon is here. -- Unto us a child is born, unto us a son is given; and the government shall be upon his shoulder, and his name shall be called Wonderful, Counsellor, the mighty God, the everlasting Father, the Prince of Peace. -- My people shall dwell in a peaceable habitation, and in sure dwellings, and in quiet resting places; when it shall hail, coming down on the forest ; and the city shall be low in a low place.
+Preach the word; be instant in season, out of season; reprove rebuke, exhort with all longsuffering and doctrine. For the time will come when they will not endure sound doctrine; but after their own lusts shall they heap to themselves teachers, having itching ears; and they shall turn away their ears from the truth and shall be turned unto fables.
  
-He is our peace. -- This man shall be the peace when the Assyrian shall come into our land.These shall make war with the Lamb, and the Lamb shall overcome them: for he is Lord of lords, and King of kings.Peace I leave with you, my peace I give unto you.  
+Of that day and that hour knoweth no man, no, not the angels which are in heaven, neither the Son, but the Father. Take ye heed, watch and pray: for ye know not when the time is. -- Blessed are those servants, whom the lord when he cometh shall find watching. -- Looking for that blessed hope, ... the glorious appearing of the great God, and our Saviour Jesus Christ,  
 
-**Judg 6:24; 1 Chr 22:9; Matt 12:42; Isa 9:6; Isa 32:18,19; Eph 2:14; Mic 5:5; Rev 17:14; John 14:27**
+**Luke 18:8; John 1:11; 1 Tim 4:1; 2 Tim 4:2-4; Mark 13:32,33; Luke 12:37; Tit 2:13**
 
-[Friday 01-April, 2022](https://t.me/daily_light)
+[Saturday 02-April, 2022](https://t.me/daily_light)
