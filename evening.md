@@ -1,13 +1,13 @@
 **Evening**
 
-**Lead me to the rock that is higher than I.**
+**Jesus the author and finisher of our faith.**
  
-Be careful for nothing; but in every thing by prayer and supplication with thanksgiving let your requests be made known unto God. And the peace of God, which passeth all understanding, shall keep your hearts and minds through Christ Jesus.
+I am Alpha and Omega, the beginning and the ending, saith the Lord, which is, and which was, and which is to come, the Almighty. -- Who hath wrought and done it, calling the generations from the beginning? I the Lord, the first, and with the last: I am he.
  
-When my spirit was overwhelmed within me, then thou knewest my path. -- He knoweth the way that I take: when he hath tried me, I shall come forth as gold. -- Lord, thou hast been our dwelling place in all generations. -- Thou hast been a strength to the poor, a strength to the needy in his distress, a refuge from the storm, a shadow from the heaven.
+Sanctified by God the Father, and preserved in Jesus Christ. -- The very God of peace sanctify you wholly: and I pray God your whole spirit and soul and body be preserved blameless unto the coming of our Lord Jesus Christ. Faithful is he that calleth you, who also will do it. -- He which hath begun a good work in you will perform it until the day of Jesus Christ. -- Are ye so foolish? having begun in the Spirit, are ye now made perfect by the flesh? -- The Lord will perfect that which concerneth me.
  
-Who is a rock save our God? -- They shall never perish, neither shall any man pluck them out of my hand. -- Uphold me according unto thy word, that I may live: and let me not be ashamed of my hope. -- Which hope we have as an anchor of the soul, both sure and stedfast, and which entereth into that within the veil.  
+It is God which worketh in you both to will and to do of his good pleasure.  
 
-**Psa 61:2; Phl 4:6,7; Psa 142:3; Job 23:10; Psa 90:1; Isa 25:4; Psa 18:31; John 10:28; Psa 119:116; Heb 6:19**
+**Heb 12:2; Rev 1:8; Isa 41:4; Jude 1:1; 1 Thes 5:23,24; Phl 1:6; Gal 3:3; Psa 138:8; Phl 2:13**
 
-[Monday 04-April, 2022](https://t.me/daily_light)
+[Tuesday 05-April, 2022](https://t.me/daily_light)

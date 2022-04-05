@@ -1,13 +1,13 @@
 **Morning**
 
-**Fear not; I am the first and the last.**
+**I will not let thee go, except thou bless me.**
  
-Ye are not come unto the mount that might be touched, and that burned with fire, nor unto blackness, and darkness, and tempest, but ye are come unto mount Sion, ... to God the Judge of all, and to the spirits of just men made perfect, and to Jesus the mediator of the new covenant. -- Jesus the author and finisher of our faith. -- We have not a high priest which cannot be touched with the feeling of our infirmities; but was in all points tempted like as we are, yet without sin. Let us therefore come boldly unto the throne of grace, that we may obtain mercy, and find grace to help in time of need.
+Let him take hold of my strength, that he may make peace with me; and he shall make peace with me.
  
-Thus saith the Lord the King of Israel, aud his redeemer the Lord of hosts; I am the first, and I am the last; and beside me there is no God. -- The mighty God, The everlasting Father, The Prince of Peace.
+O woman, great is thy faith; be it unto thee even as thou wilt. -- According to your faith be it unto you. -- Let him ask in faith, nothing wavering. For he that wavereth is like a wave of the sea driven with the wind and tossed. For let not that man think that he shall receive any thing of the Lord.
  
-Art thou not from everlasting, O Lord my God, mine Holy One? -- Who is God, save the Lord? and who is a rock, save our God?  
+They drew nigh unto the village, whither they went: and [Jesus] made as though he would have gone further. But they constrained him, saying, Abide with us: ... he vanished out of their sight. And they said one to another, Did not our heart burn within us, while he talked with us by the way, and while he opened to us the scriptures? -- I pray thee, if I have found grace in thy sight, shew me now thy way, that I may know thee, that I may find grace in thy sight. -- My presence shall go with thee, and I will give thee rest.  
 
-**Rev 1:17; Heb 12:18,22‑24; Heb 12:2; Heb 4:15,16; Isa 44:6; Isa 9:6; Hab 1:12; 2 Sam 22:32**
+**Gen 32:26; Isa 27:5; Matt 15:28; Matt 9:29; Jas 1:6,7; Luke 24:28,29,31,32; Exo 33:13; Exo 33:14**
 
-[Monday 04-April, 2022](https://t.me/daily_light)
+[Tuesday 05-April, 2022](https://t.me/daily_light)
