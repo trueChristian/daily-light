@@ -1,30 +1,34 @@
 # Morning
 
-**I will not let thee go, except thou bless me.**
+**He ever liveth to make intercession.**
  
-Let him take hold of my strength, that he may make peace with me; and he shall make peace with me.
+Who is he that condemneth? it is Christ that died ... who also maketh inter-cession for us. -- Christ is not entered into the holy places made with hands, which are the figures of the true; but into heaven itself, now to appear in the presence of God for us.
  
-O woman, great is thy faith; be it unto thee even as thou wilt. -- According to your faith be it unto you. -- Let him ask in faith, nothing wavering. For he that wavereth is like a wave of the sea driven with the wind and tossed. For let not that man think that he shall receive any thing of the Lord.
+If any man sin, we have an advocate with the Father, Jesus Christ the righteous. -- There is one God, and one mediator between God and men, the man Christ Jesus.
  
-They drew nigh unto the village, whither they went: and [Jesus] made as though he would have gone further. But they constrained him, saying, Abide with us: ... he vanished out of their sight. And they said one to another, Did not our heart burn within us, while he talked with us by the way, and while he opened to us the scriptures? -- I pray thee, if I have found grace in thy sight, shew me now thy way, that I may know thee, that I may find grace in thy sight. -- My presence shall go with thee, and I will give thee rest.  
+Seeing ... that we have a great high priest, that is passed into the heavens, Jesus the Son of God, let us hold fast our profession. For we have not an high priest which cannot be touched with the feeling of our infirmities; but was in all points tempted like as we are, yet without sin. Let us therefore come boldly unto the throne of grace, that we may obtain mercy, and find grace to help in time of need. -- Through him we ... have access by one Spirit unto the Father.  
 
-**Gen 32:26; Isa 27:5; Matt 15:28; Matt 9:29; Jas 1:6,7; Luke 24:28,29,31,32; Exo 33:13; Exo 33:14**
+**Heb 7:25; Rom 8:34; Heb 9:24; 1 John 2:1; 1 Tim 2:5; Heb 4:14‑16; Eph 2:18**
 
 # Evening
 
-**Jesus the author and finisher of our faith.**
+**They that know thy name will put their trust in thee.**
  
-I am Alpha and Omega, the beginning and the ending, saith the Lord, which is, and which was, and which is to come, the Almighty. -- Who hath wrought and done it, calling the generations from the beginning? I the Lord, the first, and with the last: I am he.
+This is his name whereby he shall be called, THE LORD OUR RIGHT-EOUSNESS. -- I will go in the strength of the Lord God: I will make mention of thy righteousness, even of thine only.
  
-Sanctified by God the Father, and preserved in Jesus Christ. -- The very God of peace sanctify you wholly: and I pray God your whole spirit and soul and body be preserved blameless unto the coming of our Lord Jesus Christ. Faithful is he that calleth you, who also will do it. -- He which hath begun a good work in you will perform it until the day of Jesus Christ. -- Are ye so foolish? having begun in the Spirit, are ye now made perfect by the flesh? -- The Lord will perfect that which concerneth me.
+His name shall be called Wonderful, Counsellor. -- O Lord, I know that the way of man is not in himself: it is not in man that walketh to direct his steps.
  
-It is God which worketh in you both to will and to do of his good pleasure.  
+The mighty God, The everlasting Father. -- I know whom I have believed, and am persuaded that he is able to keep that which I have committed unto him against that day.
+ 
+The Prince of Peace. -- He is our peace. -- Being justified by faith, we have peace with God through our Lord Jesus Christ.
+ 
+The name of the Lord is a strong tower: the righteous runneth into it, and is safe. -- Woe to them that go down to Egypt for help. -- As birds flying, so will the Lord of hosts defend Jerusalem; defending also he will deliver it; and passing over he will preserve it.  
 
-**Heb 12:2; Rev 1:8; Isa 41:4; Jude 1:1; 1 Thes 5:23,24; Phl 1:6; Gal 3:3; Psa 138:8; Phl 2:13**
+**Psa 9:10; Jer 23:6; Psa 71:16; Isa 9:6; Jer 10:23; Isa 9:6; 2 Tim 1:12; Isa 9:6; Eph 2:14; Rom 5:1; Prov 18:10; Isa 31:1; Isa 31:5**
 
 ---
 
-[Tuesday 05-April, 2022](https://t.me/s/daily_light)
+[Wednesday 06-April, 2022](https://t.me/s/daily_light)
 
 > Jonathan Bagster, the son of Samuel Bagster, created the Daily Light for his own family's daily devotion in 1875
 
