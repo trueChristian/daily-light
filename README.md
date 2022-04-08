@@ -1,32 +1,32 @@
 # Morning
 
-**As sorrowful, yet always rejoicing; as poor, yet making many rich; as having nothing, and yet possessing all things.**
+**In everything ye are enriched by him.**
  
-We ... rejoice in hope of the glory of God. And not only so, but we glory in tribulations also. -- I am filled with comfort, I am exceeding joyful in all our tribulation. -- Believing, ye rejoice with joy unspeakable and full of glory.
+When we were yet without strength, in due time Christ died for the ungodly. -- He that spared not his own Son, but delivered him up for us all, how shall be not with him also freely give us all things?
  
-In a great trial of affliction the abundance of their joy and their deep poverty abounded unto the riches of their liberality. -- Unto me, who am less than the least of all saints, is this grace given, that I should preach among the Gentiles the unsearchable riches of Christ; and to make all men see what is the fellowship of the mystery, which from the beginning of the world hath been hid in God, who created all things by Jesus Christ.
+In him dwelleth all the fulness of the Godhead bodily. And ye are complete in him, which is the head of all principality and power.
  
-Hath not God chosen the poor of this world rich in faith, and heirs of the kingdom which he hath promised to them that love him? -- God is able to make all grace abound toward you; that ye, always having all sufficiency in all things, may abound to every good work.  
+Abide in me, and I in you. As the branch cannot bear fruit of itself, except it abide in the vine; no more can ye, except ye abide in me. I am the vine ye are the branches: he that abideth in me and I in him, the same bringeth forth much fruit: for without me ye can do nothing. -- To will is present with me; but how to perform that which is good I find not. -- Unto every one of us is given grace according to the measure of the gift of Christ.
+ 
+If ye abide in me, and my words abide in you, ye shall ask what ye will, and it shall be done unto you. -- Let the word of Christ dwell in you richly in all wisdom.  
 
-**2 Cor 6:10; Rom 5:2,3; 2 Cor 7:4; 1 Pet 1:8; 2 Cor 8:2; Eph 3:8,9; Jas 2:5; 2 Cor 9:8**
+**1 Cor 1:5; Rom 5:6; Rom 8:32; Col 2:9,10; John 15:4,5; Rom 7:18; Eph 4:7; John 15:7; Col 3:16**
 
 # Evening
 
-**The Lord strengthen him upon the bed of languishing: thou wilt make all his bed in his sickness.**
+**They shall see his face.**
  
-In all their affliction he was afflicted, and the angel of his presence saved them: in his love and in his pity he redeemed them; and he bare them, and carried them. -- He whom thou lovest is sick. -- My grace is sufficient for thee: for my strength is made perfect in weakness.
+I beseech thee shew me thy glory. And he said, Thou canst not see my face: for there shall no man see me, and live. -- No man hath seen God at any time; the only begotten Son, which is in the bosom of the Father, he hath declared him.
  
-Most gladly therefore will I rather glory in my infirmities, that the power of Christ may rest upon me. -- I can do all things through Christ which strengtheneth me.
+Every eye shall see him, and they also which pierced him: and all kindreds of the earth shall wail because of him. -- I shall see him, but not now: I shall behold him, but not nigh.
  
-We faint not; ... though our outward man perish, yet the inward man is renewed day by day.
- 
-In him we live, and move, and have our being. -- He giveth power to the faint; and to them that have no might he increaseth strength. Even the youths shall faint and be weary, and the young men shall utterly fall: but they that wait upon the Lord shall renew their strength. -- The eternal God is thy refuge, and underneath are the everlasting arms.  
+I know that my Redeemer liveth, and that he shall stand at the latter day upon the earth: and though after my skin worms destroy this body, yet in my flesh shall I see God. -- I will behold thy face in righteousness: I shall be satisfied, when I awake, with thy likeness. -- We shall be like him; for we shall see him as he is. -- The Lord himself shall descend from heaven ... the dead in Christ shall rise first: then we which are alive and remain shall be caught up together with them in the clouds, to meet the Lord in the air: and so shall we ever be with the Lord.  
 
-**Psa 41:3; Isa 63:9; John 11:3; 2 Cor 12:9; Phl 4:13; 2 Cor 4:16; Acts 17:28; Isa 40:29‑31; Deut 33:27**
+**Rev 22:4; Exo 33:18,20; John 1:18; Rev 1:7; Num 24:17; Job 19:25,26; Psa 17:15; 1 John 3:2; 1 Thes 4:16,17**
 
 ---
 
-[Thursday 07-April, 2022](https://t.me/s/daily_light)
+[Friday 08-April, 2022](https://t.me/s/daily_light)
 
 > Jonathan Bagster, the son of Samuel Bagster, created the Daily Light for his own family's daily devotion in 1875
 
