@@ -1,32 +1,30 @@
 # Morning
 
-**In the multitude of words there wanteth not sin: but he that refraineth his lips is wise.**
+**What the law could not do, in that it was weak through the flesh, God sending his own Son in the likeness of sinful flesh, and for sin, condemned sin in the flesh.**
  
-My beloved brethren, let every man be swift to hear, slow to speak, slow to wrath. -- He that is slow to anger is better than the mighty: and he that ruleth his spirit than he that taketh a city. -- If any man offend not in word, the same is a perfect man, and able to bridle the whole body. -- By thy words thou shalt be justified and by thy words thou shalt be condemned. -- Set a watch, Lord, before my mouth; keep the door of my lips.
+The law having a shadow of good things to come, and not the very image of the things, can never with those sacrifices which they offered year by year continually make the comers thereunto perfect. For then would they not have ceased to be offered? -- By him all that believe are justified from all things, from which ye could not be justified by the law of Moses.
  
-Christ ... suffered for us, leaving us an example, that ye should follow his steps: who did no sin, neither was guile found in his mouth: who when he was reviled, reviled not again; when he suffered, he threatened not; but com-mitted himself to him that judgeth righteously. -- Consider him that endured such contradiction of sinners against himself, lest ye be wearied and faint in your minds.
- 
-In their mouth was found no guile: for they are without fault before the throne of God.  
+Forasmuch ... as the children are partakers of flesh and blood, he also himself likewise took part of the same; that through death he might destroy him that had the power of death, that is the devil; and deliver them who through fear of death were all their lifetime subject to bondage. For verily he took not on him the nature of angels; but he took on him the seed of Abraham. Wherefore in all things it behoved him to be made like unto his brethren.  
 
-**Prov 10:19; Jas 1:19; Prov 16:32; Jas 3:2; Matt 12:37; Psa 141:3; 1 Pet 2:21‑23; Heb 12:3; Rev 14:5**
+**Rom 8:3; Heb 10:1,2; Acts 13:39; Heb 2:14‑17**
 
 # Evening
 
-**Teach me thy way, O Lord.**
+**All have sinned, and come short of the glory of God.**
  
-I will instruct thee and teach thee in the way which thou shalt go: I will guide thee with mine eye. -- Good and upright is the Lord: therefore will he teach sinners in the way. The meek will he guide in judgment: and the meek will he teach his way.
+There is none righteous, no, not one: there is none that doeth good, no, not one. -- There is not a just man upon earth, that doeth good, and sinneth not. -- How can he be clean that is born of a woman?
  
-I am the door: by me if any man enter in, he shall be saved, and shall go in and out, and find pasture.
+Let us therefore fear, lest a promise being left us of entering into his rest, any of you should seem to come short of it.I acknowledge my transgressions: and my sin is ever before me. Behold, I was shapen in iniquity; and in sin did my mother conceive me.
  
-Jesus saith unto him, I am the way, the truth, and the life: no man cometh unto the Father, but by me. -- Having ... boldness to enter into the holiest by the blood of Jesus, by a new and living way, which he hath consecrated for us, through the veil, that is to say, his flesh; and having an high priest over the house of God; let us draw near with a true heart in full assurance of faith.
+The Lord ... hath put away thy sin; thou shalt not die. -- Whom he justified, them he also glorified. -- We all, with open face beholding as in a glass the glory of the Lord, are changed into the same image from glory to glory, even as by the Spirit of the Lord. -- If ye continue in the faith grounded and settled, and be not moved away from the hope of the gospel.
  
-Then shall we know, if we follow on to know the Lord. -- All the paths of the Lord are mercy and truth unto such as keep his covenant and his testimonies.  
+Walk worthy of God, who hath called you unto his kingdom and glory.  
 
-**Psa 27:11; Psa 32:8; Psa 25:8,9; John 10:9; John 14:6; Heb 10:19‑22; Hos 6:3; Psa 25:10**
+**Rom 3:23; Rom 3:10,12; Eccl 7:20; Job 25:4; Heb 4:1; Psa 51:3,5; 2 Sam 12:13; Rom 8:30; 2 Cor 3:18; Col 1:23; 1 Thes 2:12**
 
 ---
 
-[Monday 11-April, 2022](https://t.me/s/daily_light)
+[Tuesday 12-April, 2022](https://t.me/s/daily_light)
 
 > Jonathan Bagster, the son of Samuel Bagster, created the Daily Light for his own family's daily devotion in 1875
 
