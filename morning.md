@@ -1,11 +1,13 @@
 **Morning**
 
-**What the law could not do, in that it was weak through the flesh, God sending his own Son in the likeness of sinful flesh, and for sin, condemned sin in the flesh.**
+**Honour the Lord with thy substance, and with the firstfruits of all thine increase.**
  
-The law having a shadow of good things to come, and not the very image of the things, can never with those sacrifices which they offered year by year continually make the comers thereunto perfect. For then would they not have ceased to be offered? -- By him all that believe are justified from all things, from which ye could not be justified by the law of Moses.
+He which soweth sparingly shall reap also sparingly; and he which soweth bountifully shall reap also bountifully. -- Upon the first day of the week let every one of you lay by him in store, as God hath prospered him.
  
-Forasmuch ... as the children are partakers of flesh and blood, he also himself likewise took part of the same; that through death he might destroy him that had the power of death, that is the devil; and deliver them who through fear of death were all their lifetime subject to bondage. For verily he took not on him the nature of angels; but he took on him the seed of Abraham. Wherefore in all things it behoved him to be made like unto his brethren.  
+God is not unrighteous to forget your work and labour of love, which ye have shewed toward his name, in that ye have ministered to the saints and do minister.
+ 
+I beseech you ... brethren, by the mercies of God, that ye present your bodies a living sacrifice, holy, acceptable unto God, which is your reasonable ser-vice. -- The love of Christ constraineth us; because we thus judge, that if one died for all, then were all dead: and that he died for all, that they which live should not henceforth live unto themselves. but unto him which died for them, and rose again. -- Whether therefore ye eat, or drink, or whatsoever ye do, do all to the glory of God.  
 
-**Rom 8:3; Heb 10:1,2; Acts 13:39; Heb 2:14‑17**
+**Prov 3:9; 2 Cor 9:6; 1 Cor 16:2; Heb 6:10; Rom 12:l; 2 Cor 5:14,15; 1 Cor 10:31**
 
-[Tuesday 12-April, 2022](https://t.me/daily_light)
+[Wednesday 13-April, 2022](https://t.me/daily_light)
