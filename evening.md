@@ -1,17 +1,15 @@
 **Evening**
 
-**Restore unto me the joy of thy salvation.**
+**Seekest thou great things for thyself? seek them not.**
  
-I have seen his ways, and will heal him: I will lead him also, and restore comforts unto him and to his mourners.
+Take my yoke upon you, and learn of me; for I am meek and lowly in heart: and ye shall find rest unto your souls. -- Let this mind be in you, which was also in Christ Jesus; who, being in the form of God, thought it not robbery to be equal with God: but made himself of no reputation, and took upon him the form of a servant, and was made in the likeness of men: and being found in fashion as a man, he humbled himself, and became obedient unto death, even the death of the cross.
  
-Come now, and let us reason together, saith the Lord: though your sins be as scarlet, they shall be as white as snow; though they be red like crimson, they shall be as wool. -- Return, ye backsliding children, and I will heal your backslidings. Behold, we come unto thee; for thou art the Lord our God. -- I will hear what God the Lord will speak: for he will speak peace unto his people, and to his saints: but let them not turn again to folly.
+He that taketh not his cross, and followeth after me, is not worthy of me. -- Christ ... suffered for us, leaving us an example, that ye should follow his steps.
  
-Bless the Lord, O my soul, and forget not all his benefits: who forgiveth all thine iniquities; who healeth all thy diseases. -- He restoreth my soul. -- O Lord, I will praise thee: though thou wast angry with me, thine anger is turned away, and thou comfortedst me.
+Godliness with contentment is great gain. For we brought nothing into this world, and it is certain we can carry nothing out. And having food and raiment let us be therewith content.
  
-Hold thou me up, and I shall be safe.
- 
-I, even I, am he that blotteth out thy transgressions for mine own sake, and will not remember thy sins.  
+I have learned, in whatsoever state I am, therewith to be content.  
 
-**Psa 51:12; Isa 57:18; Isa 1:18; Jer 3:22; Psa 85:8; Psa 103:2,3; Psa 23:3; Isa 12:1; Psa 119:117; Isa 43:25**
+**Jer 45:5; Matt 11:29; Phl 2:5‑8; Matt 10:38; 1 Pet 2:21; 1 Tim 6:6‑8; Phl 4:11**
 
-[Thursday 14-April, 2022](https://t.me/daily_light)
+[Friday 15-April, 2022](https://t.me/daily_light)
