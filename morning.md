@@ -1,11 +1,15 @@
 **Morning**
 
-**There shall cleave nought of the cursed thing to thine hand.**
+**Stand fast in the Lord.**
  
-Come out from among them, and be ye separate, saith the Lord, and touch not the unclean thing. -- Dearly beloved, I beseech you as strangers and pilgrims, abstain from fleshly lusts, which war against the soul. -- Hating even the garment spotted by the flesh.
+My foot hath held his steps, his way have I kept, and not declined.
  
-Beloved, now are we the sons of God ... And it doth not yet appear what we shall be: but we know that, when he shall appear, we shall be like him: for we shall see him as he is. And every man that hath this hope in him purifieth himself, even as he is pure. -- The grace of God that bringeth salvation hath appeared to all men, teaching us that, denying ungodliness and worldly lusts, we should live soberly, righteously, and godly, in this present world; looking for that blessed hope, and the glorious appearing of the great God and our Saviour Jesus Christ: who gave himself for us, that he might redeem us from all iniquity, and purify unto himself a peculiar people, zealous of good works.  
+The Lord loveth judgment, and forsaketh not his saints; they are preserved for ever. -- The Lord shall preserve thee from all evil: he shall preserve thy soul.
+ 
+The just shall live by faith: but if any man draw back, my soul shall have no pleasure in him. But we are not of them who draw back into perdition; but of them that believe to the saving of the soul. -- If they had been of us, they would no doubt have continued with us: but they went out, that they might be made manifest that they were not all of us.
+ 
+If ye continue in my word then are ye my disciples indeed. -- He that shall endure unto the end, the same shall be saved. -- Watch ye, stand fast in the faith, quit you like men, be strong. -- Hold that fast which thou hast, that no man take thy crown. -- He that overcometh, the same shall be clothed in white raiment; and I will not blot out his name out of the book of life.  
 
-**Deut 13:1,7; 2 Cor 6:17; 1 Pet 2:11; Jude 23; 1 John 3:2,3; Tit 2:11‑14**
+**Phl 4:1; Job 23:11; Psa 37:28; Psa 121:7; Heb 10:38; John 2:19; John 8:31; Matt 24:13; 1 Cor 16:13; Rev 3:11; Rev 3:5**
 
-[Wednesday 20-April, 2022](https://t.me/daily_light)
+[Thursday 21-April, 2022](https://t.me/daily_light)
