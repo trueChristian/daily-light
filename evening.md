@@ -1,13 +1,17 @@
 **Evening**
 
-**Great is thy mercy toward me: and thou hast delivered my soul from the lowest hell.**
+**All we like sheep have gone astray.**
  
-Fear him which is able to destroy both soul and body in hell.
+If we say that we have no sin, we deceive ourselves, and the truth is not in us. -- There is none righteous, no, not one: there is none that understandeth. They are all gone out of the way, they are together become unprofitable.
  
-Fear not: for I have redeemed thee, I have called thee by thy name; thou art mine. I, even I, am the Lord; and beside me there is no saviour. I, even I, am he that blotteth out thy transgressions for mine own sake, and will not remember thy sins, -- They that trust in their wealth, and boast themselves in the multitude of their riches; none of them can by any means redeem his brother, nor give to God a ransom for him: for the redemption of their soul is precious. -- I have found a ransom. -- God, who is rich in mercy, for his great love wherewith he loved us, even when we were dead in sins, hath quickened us together with Christ.
+Ye were as sheep going astray; but are now returned unto the Shepherd and Bishop of your souls. -- I have gone astray like a lost sheep; seek thy servant; for I do not forget thy commandments.
  
-Neither is there salvation in any other: for there is none other name under heaven given among men, whereby we must be saved.  
+He restoreth my soul: he leadeth me in the paths of righteous for his name's sake.
+ 
+My sheep hear my voice, and I know them, and they follow me: and I give unto them eternal life; and they shall never perish, either shall any man pluck them out of my hand.
+ 
+What man of you, having an hundred sheep, if he lose one of them, doth not leave the ninety and nine in the wilderness, and go after that which is lost, until he find it?  
 
-**Psa 86:13; Matt 10:28; Isa 43:1,11,25; Psa 49:6‑8; Job 33:24; Eph 2:4,5; Acts 4:12**
+**Isa 53:6; 1 John 1:8; Rom 3:10‑12; 1 Pet 2:25; Psa 119:176; Psa 23:3; John 10:27,28; Luke 15:4**
 
-[Friday 22-April, 2022](https://t.me/daily_light)
+[Saturday 23-April, 2022](https://t.me/daily_light)
