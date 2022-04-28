@@ -1,11 +1,13 @@
 **Morning**
 
-**Brethren, the time is short.**
+**Behold the Lamb of God.**
  
-Man that is born of a woman is of few days, and full of trouble. He cometh forth like a flower, and is cut down: he fleeth also as a shadow, and continueth not. -- The world passeth away, and the lust thereof: but he that doeth the will of God abideth for ever. -- As in Adam all die, even so in Christ shall all be made alive. Death is swallowed up in victory. -- Whether we live, we live unto the Lord; and whether we die, we die unto the Lord: whether we live therefore, or die, we are the Lord’s. -- To live is Christ, and to die is gain.
+It is not possible that the blood of bulls and of goats should take away sins. Wherefore when he cometh into the world, he saith, Sacrifice and offering thou wouldest not, but a body hast thou prepared me: in burnt offerings and sacrifices for sin thou hast had no pleasure. Then said I, Lo, I come (in the volume of the book it is written of me) to do thy will, O God. -- He was oppressed, and he was afflicted, yet he opened not his mouth; he is brought as a lamb to the slaughter, and as a sheep before her shearers is dumb, so he openeth not his mouth.
  
-Cast not away ... your confidence, which hath great recompence of reward. For ye have need of patience, that, after ye have done the will of God, ye might receive the promise. For yet a little while, and he that shall come will come, and will not tarry. -- The night is far spent, the day is at hand: let us therefore cast off the works of darkness, and let us put on the armour of light. -- The end of all things is at hand: be ye therefore sober, and watch unto prayer.  
+Ye were not redeemed with corruptible things, as silver and gold, ... but with the precious blood of Christ, as of a lamb without blemish and without spot: ... manifest in these last times for you who by him do believe in God ... that your faith and hope might be in God.
+ 
+Worthy is the Lamb that was slain to receive power, and riches and wisdom, and strength, and honour, and glory, and blessing.  
 
-**1 Cor 7:29; Job 14:1,2; 1 John 2:17; 1 Cor 15:22,54; Rom 14:8; Phl 1:21; Heb 10:35‑37; Rom 13:12; 1 Pet 4:7**
+**John 1:29; Heb 10:4‑7; Isa 53:7; 1 Pet 1:18‑21; Rev 5:12**
 
-[Wednesday 27-April, 2022](https://t.me/daily_light)
+[Thursday 28-April, 2022](https://t.me/daily_light)
