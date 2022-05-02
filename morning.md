@@ -1,17 +1,13 @@
 **Morning**
 
-**The fruit of the Spirit is peace.**
+**Surely the Lord is in this place; and I knew it not.**
  
-To be spiritually minded is life and peace.
+Where two or three are gathered together in my name, there am I in the midst of them. -- Lo, I am with you alway, even unto the end of the world. -- My presence shall go with thee, and I will give thee rest.
  
-God hath called us to peace. -- Peace I leave with you, my peace I give unto you: not as the world giveth, give I unto you. Let not your heart be troubled, neither let it be afraid. -- The God of hope fill you with all joy and peace in believing, that ye may abound in hope, through the power of the Holy Ghost.
+Whither shall I go from thy spirit? or whither shall I flee from thy presence? If I ascend up into heaven, thou art there: if I make my bed in hell, behold, thou art there. -- Am I a God at hand, saith the Lord, and not a God afar off? Can any hide himself in secret places that I shall not see him? saith the Lord, Do not I fill heaven and earth? saith the Lord.
  
-I know whom I have believed, and am persuaded that he is able to keep that which I have committed unto him against that day. -- Thou wilt keep him in perfect peace, whose mind is stayed on thee: because he trusteth in thee.
- 
-The work of righteousness shall be peace; and the effect of righteousness quietness and assurance for ever. And my people shall dwell in a peaceable habitation, and in sure dwellings, and in quiet resting places. -- Whoso hearkeneth unto me shall dwell safely, and shall be quiet from fear of evil.
- 
-Great peace have they which love thy law.  
+Behold, the heaven and heaven of heavens cannot contain thee, how much less this house that I have builded? -- Thus saith the high and lofty One that inhabiteth eternity, whose name is Holy: I dwell in the high and holy place, with him also that is of a contrite and humble spirit, to revive the spirit of the humble, and to revive the heart of the contrite ones. -- Ye are the temple of living God.  
 
-**Gal 5:22; Rom 8:6; 1 Cor 7:15; John 14:27; Rom 15:13; 2 Tim 1:12; Isa 26:3; Isa 32:17,18; Prov 1:33; Psa 119:165**
+**Gen 28:16; Matt 18:20; Matt 28:20; Exo 33:14; Psa 139:7,8; Jer 23:23,24; 1 Kgs 8:27; Isa 57:15; 2 Cor 6:16**
 
-[Sunday 01-May, 2022](https://t.me/daily_light)
+[Monday 02-May, 2022](https://t.me/daily_light)
