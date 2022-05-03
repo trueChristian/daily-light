@@ -1,32 +1,34 @@
 # Morning
 
-**Surely the Lord is in this place; and I knew it not.**
+**Be ye perfect, even as your Father which is in heaven is perfect**.
  
-Where two or three are gathered together in my name, there am I in the midst of them. -- Lo, I am with you alway, even unto the end of the world. -- My presence shall go with thee, and I will give thee rest.
+I am the Almighty God; walk before me, and be thou perfect. -- Ye shall be holy unto me: for I the Lord am holy, and have severed you from other people, that ye should he mine.
  
-Whither shall I go from thy spirit? or whither shall I flee from thy presence? If I ascend up into heaven, thou art there: if I make my bed in hell, behold, thou art there. -- Am I a God at hand, saith the Lord, and not a God afar off? Can any hide himself in secret places that I shall not see him? saith the Lord, Do not I fill heaven and earth? saith the Lord.
+Ye are bought with a price: therefore glorify God in your body, and in your spirit, which are God's
  
-Behold, the heaven and heaven of heavens cannot contain thee, how much less this house that I have builded? -- Thus saith the high and lofty One that inhabiteth eternity, whose name is Holy: I dwell in the high and holy place, with him also that is of a contrite and humble spirit, to revive the spirit of the humble, and to revive the heart of the contrite ones. -- Ye are the temple of living God.  
+Ye are complete in him, which is the head of all principality and power. -- Who gave himself for us, that he might redeem us from all iniquity. -- Be diligent that ye may be found of him in peace, without spot, and blameless.
+ 
+Blessed are the undefiled in the way, who walk in the law of the Lord. -- Whoso looketh into the perfect law of liberty, and continueth therein, he being not a forgetful hearer, but a doer of the work, this man shall be blessed in his deed. -- Search me, O God, and know my heart: try me, and know my thoughts: and see if there be any wicked way in me, and lead me in the way everlasting.  
 
-**Gen 28:16; Matt 18:20; Matt 28:20; Exo 33:14; Psa 139:7,8; Jer 23:23,24; 1 Kgs 8:27; Isa 57:15; 2 Cor 6:16**
+**Matt 5:48; Gen 17:1; Lev 20:26; 1 Cor 6:20; Col 2:10; Tit 2:14; 2 Pet 3:14; Psa 119:1; Jas 1:25; Psa 139:23,24**
 
 # Evening
 
-**Keep yourselves from idols.**
+**Perfecting holiness in the fear of God.**
  
-My son, give me thine heart. -- Set your affection on things above, not on things on the earth.
+Dearly beloved, let us cleanse ourselves from all filthiness of the flesh and spirit.
  
-Son of man, these men have set up their idols in their heart and put the stumblingblock of their iniquity before their face: should I be enquired of at all by them? -- Mortify ... your members which are upon the earth; fornication, uncleanness, inordinate affection, evil concupiscence, and covetousness, which is idolatry. -- They that will be rich fall into temptation and a snare. For the love of money is the root of all evil: which while some coveted after, they have erred from the faith, and pierced themselves through with many sorrows. But thou, O man of God, flee these things.
+Behold, thou desirest truth in the inward parts: and in the hidden part thou shalt make me to know wisdom. -- Teaching us that denying ungodliness and wordly lusts, we should live soberly, righteously, and godly, in this present world. -- Let your light so shine before men, that they may see your good works, and glorify your Father which is in heaven. -- Not as though I had already attained, either were already perfect.
  
-If riches increase, set not your heart upon them. -- My fruit is better than gold, yea, than fine gold; and my revenue than choice silver.
+Every man that hath this hope in him purifieth himself, even as he is pure.
  
-Where your treasure is, there will your heart be also. -- The Lord looketh on the heart.  
+Now he that hath wrought us for the selfsame thing is God, who also hath given unto us the earnest of the Spirit. -- For the perfecting of the saints, for the work of the ministry, for the edifying of the body of Christ: till we all come in the unity of the faith, and of the knowledege of the Son of God, unto a perfect man, unto the measure of the stature of the fulness of Christ.  
 
-**1 John 5:21; Prov 23:26; Gal 3:2; Ezek 14:3; Gal 3:5; 1 Tim 6:9-11; Psa 62:10; Prov 8:19; Matt 6:21; 1 Sam 16:7**
+**2 Cor 7:1; 2 Cor 7:1; Psa 51:6; Tit 2:12; Matt 5:16; Phl 3:12; 1 John 3:3; 2 Cor 5:5; Eph 4:12,13**
 
 ---
 
-[Monday 02-May, 2022](https://t.me/s/daily_light)
+[Tuesday 03-May, 2022](https://t.me/s/daily_light)
 
 > Jonathan Bagster, the son of Samuel Bagster, created the Daily Light for his own family's daily devotion in 1875
 
