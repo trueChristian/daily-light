@@ -1,15 +1,15 @@
 **Evening**
 
-**Perfecting holiness in the fear of God.**
+**I have glorified thee on the earth.**
  
-Dearly beloved, let us cleanse ourselves from all filthiness of the flesh and spirit.
+My meat is to do the will of him that sent me, and to finish his work. -- I must work the works of him that sent me, while it is day: the night cometh, when no man can work.
  
-Behold, thou desirest truth in the inward parts: and in the hidden part thou shalt make me to know wisdom. -- Teaching us that denying ungodliness and wordly lusts, we should live soberly, righteously, and godly, in this present world. -- Let your light so shine before men, that they may see your good works, and glorify your Father which is in heaven. -- Not as though I had already attained, either were already perfect.
+Wist ye not that I must be about my Father’s business? And they understood not the saying which he spake unto them. -- This sickness is not unto death, but for the glory of God, that the Son of God might be glorified thereby. Said I not unto thee, that if thou wouldest believe, thou shouldest see the glory of God?
  
-Every man that hath this hope in him purifieth himself, even as he is pure.
+Jesus increased in wisdom and stature, and in favour with God and man. -- Thou art my beloved Son; in thee I am well -- All bare him witness, and wondered at the gracious words, which proceeded out of his mouth.
  
-Now he that hath wrought us for the selfsame thing is God, who also hath given unto us the earnest of the Spirit. -- For the perfecting of the saints, for the work of the ministry, for the edifying of the body of Christ: till we all come in the unity of the faith, and of the knowledege of the Son of God, unto a perfect man, unto the measure of the stature of the fulness of Christ.  
+Thou art worthy ... for thou wast slain, and hast redeemed us to God by thy blood, out of every kindred, and tongue, and peopIe, and nation; and hast made us unto our God kings and priests: and we shall reign on the earth.  
 
-**2 Cor 7:1; 2 Cor 7:1; Psa 51:6; Tit 2:12; Matt 5:16; Phl 3:12; 1 John 3:3; 2 Cor 5:5; Eph 4:12,13**
+**John 17:4; John 4:34; John 9:4; Luke 2:49,50; John 11:4,40; Luke 2:52; Luke 3:22; Luke 4:22; Rev 5:9,10**
 
-[Tuesday 03-May, 2022](https://t.me/daily_light)
+[Wednesday 04-May, 2022](https://t.me/daily_light)
