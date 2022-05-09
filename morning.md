@@ -1,13 +1,15 @@
 **Morning**
 
-**It pleased the Lord to bruise him; he hath put him to grief.**
+**Faith is the substance of things hoped for, the evidence of things not seen.**
  
-Now is my soul troubled; and what shall I say? Father, save me from this hour: but for this cause came I unto this hour. Father, glorify thy name. Then came there a voice from heaven, saying, I have both glorified it, and will glorify it again. -- Father, if thou be willing, remove this cup from me: never-theless not my will, but thine, be done. And there appeared an angel unto him from heaven, strengthening him.
+If in this life only we have hope in Christ, we are of all men most miserable.
  
-Being found in fashion as a man, he humbled himself, and became obedient unto death, even the death of the cross. -- Therefore doth my Father love me, because I lay down my life, that I might take it again. -- For I came down from heaven, not to do mine will, but the will of him that sent me. -- The cup which my father hath given me, shall I not drink it?
+Eye hath not seen, nor ear heard, neither have entered into the heart of man, the things which God hath prepared for them that love him. But God hath revealed them unto us by his Spirit. -- After that ye believed ye were sealed with that holy Spirit of promise, which is the earnest of our inheritance until the redemption of the purchased possession.
  
-The Father hath not left me alone; for I do always those things that please him. -- My beloved Son, in whom I am well pleased, -- Mine elect, in whom my soul delighteth.  
+Jesus saith unto him, Thomas, because thou hast seen me, thou hast believed; blessed are they that have not seen, and yet have believed. -- Whom having not seen, ye love; in whom, though now ye see him not, yet believing, ye rejoice with joy unspeakable and full of glory: receiving the end of your faith, even the salvation of your souls.
+ 
+We walk by faith, not by sight. -- Cast not away therefore your confidence, which hath great recompence of reward.  
 
-**Isa 53:10; John 12:27,28; Luke 22:42,43; Phl 2:8; John 10:17; John 6:38; John 18:11; John 8:29; Matt 3:17; Isa 42:1**
+**Heb 11:1; 1 Cor 15:19; 1 Cor 2:9,10; Eph 1:13,14; John 20:29; 1 Pet 1:8,9; 2 Cor 5:7; Heb 10:35**
 
-[Sunday 08-May, 2022](https://t.me/daily_light)
+[Monday 09-May, 2022](https://t.me/daily_light)
