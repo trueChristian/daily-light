@@ -1,28 +1,28 @@
 # Morning
 
-**Awake to righteousness, and sin not.**
+**Beloved, let us love one another: for love is of God; and everyone that loveth is born of God, and knoweth God.**
  
-Ye are all the children of light, and the children of the day. Therefore let us not sleep, as do others; but let us watch and be sober.
+The love of God is shed abroad in our hearts by the Holy Ghost, which is given unto us. -- Ye have not received the spirit of bondage again to fear; but ye have received the Spirit of adoption, whereby we cry, Abba, Father. The Spirit itself beareth witness with our spirit, that we are the children of God. -- He that believeth on the Son of God hath the witness in himself.
  
-It is high time to awake out of sleep: for now is our salvation nearer than when we believed. The night is far spent, the day is at hand: let us therefore cast off the works of darkness, and let us put on the armour of light. -- Wherefore take unto you the whole armour of God, that ye may be able to withstand in the evil day, and having done all, to stand. -- Cast away from you all your transgressions, whereby ye have transgressed: and make you a new heart and a new spirit. -- Lay apart all filthiness and superfluity of naughtiness, and receive with meekness the engrafted word, which is able to save your souls. -- Little children, abide in him that, when he shall appear, we may have confidence, and not be ashamed before him at his coming. If ye know that he is righteous, ye know that every one that doeth righteousness is born of him.  
+In this was manifested the love of God toward us, because that God sent his only begotten Son into the world, that we might live through him. -- In whom we have redemption through his blood, the forgiveness of sins, according to the riches of his grace. -- That in the ages to come he might shew the ex-ceeding riches of his grace in his kindness toward us through Christ Jesus.
+ 
+Beloved, if God so loved us, we ought also to love one another.  
 
-**1 Cor 15:34; 1 Thes 5:5,6; Rom 13:11,12; Eph 6:13; Ezek 18:31; Jas 1:21; 1 John 2:28,29**
+**1 John 4:7; Rom 5:5; Rom 8:15,16; 1 John 5:10; 1 John 4:9; Eph 1:7; Eph 2:7; 1 John 4:11**
 
 # Evening
 
-**My sheep hear my voice.**
+**Reproach hath broken my heart.**
  
-Behold, I stand at the door, and knock: If any man hear my voice, and open the door, 1 will come in to him, and will sup with him, and he with me.
+Is not this the carpenter's son? -- Can there any good thing come out of Nazareth? -- Say we not well that thou are a Samaritan, and hast a devil? -- He casteth out devils through the prince of the devils. -- We know that this man is a sinner. -- He deceiveth the people. -- This man blasphemeth. -- Behold a man gluttonous and a winebibber, a friend of publicans and sinners.
  
-I sleep, but my heart waketh: it is the voice of my beloved that knocketh, saying, Open to me, my sister, my love, my dove, my undefiled. I opened to my beloved; but my beloved had withdrawn himself, and was gone: my soul failed when he spake: I sought him, but I could not find him; I called him, but he gave me no answer.
- 
-Speak; for thy servant heareth. -- When Jesus came to the place, he looked up, and saw him, and said unto him, Zacchaeus, make haste and come down; for to day I must abide at thy house. And he made haste, and came down, and received him joyfully. -- I will hear what God the Lord will speak: for he will speak peace unto his people, and to his saints: but let them not turn again to folly.  
+It is enough for the disciple that he be as his master, and the servant as his lord. -- This is thankworthy, if a man for conscience toward God endure grief, suffering wrongfully. For even hereunto were ye called: because Christ also suffered for us, leaving us an example, that we should follow his steps. Who did no sin, neither was guile found in his mouth: who when he was reviled, reviled not again; when he suffered, he threatened not; but committed himself to him that judgeth righteously. -- If ye be reproached for the name of Christ, happy are ye.  
 
-**John 10:27; Rev 3:20; Song 5:2,6; 1 Sam 3:10; Luke 19:5,6; Psa 85:8**
+**Psa 69:20; Matt 13:55; John 1:46; John 8:48; Matt 9:34; John 9:24; John 7:12; Matt 9:3; Matt 11:19; Matt 10:25; 1 Pet 2:19-23; 1 Pet 4:14**
 
 ---
 
-[Wednesday 11-May, 2022](https://t.me/s/daily_light)
+[Thursday 12-May, 2022](https://t.me/s/daily_light)
 
 > Jonathan Bagster, the son of Samuel Bagster, created the Daily Light for his own family's daily devotion in 1875
 

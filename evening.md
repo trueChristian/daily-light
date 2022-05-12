@@ -1,13 +1,11 @@
 **Evening**
 
-**My sheep hear my voice.**
+**Reproach hath broken my heart.**
  
-Behold, I stand at the door, and knock: If any man hear my voice, and open the door, 1 will come in to him, and will sup with him, and he with me.
+Is not this the carpenter's son? -- Can there any good thing come out of Nazareth? -- Say we not well that thou are a Samaritan, and hast a devil? -- He casteth out devils through the prince of the devils. -- We know that this man is a sinner. -- He deceiveth the people. -- This man blasphemeth. -- Behold a man gluttonous and a winebibber, a friend of publicans and sinners.
  
-I sleep, but my heart waketh: it is the voice of my beloved that knocketh, saying, Open to me, my sister, my love, my dove, my undefiled. I opened to my beloved; but my beloved had withdrawn himself, and was gone: my soul failed when he spake: I sought him, but I could not find him; I called him, but he gave me no answer.
- 
-Speak; for thy servant heareth. -- When Jesus came to the place, he looked up, and saw him, and said unto him, Zacchaeus, make haste and come down; for to day I must abide at thy house. And he made haste, and came down, and received him joyfully. -- I will hear what God the Lord will speak: for he will speak peace unto his people, and to his saints: but let them not turn again to folly.  
+It is enough for the disciple that he be as his master, and the servant as his lord. -- This is thankworthy, if a man for conscience toward God endure grief, suffering wrongfully. For even hereunto were ye called: because Christ also suffered for us, leaving us an example, that we should follow his steps. Who did no sin, neither was guile found in his mouth: who when he was reviled, reviled not again; when he suffered, he threatened not; but committed himself to him that judgeth righteously. -- If ye be reproached for the name of Christ, happy are ye.  
 
-**John 10:27; Rev 3:20; Song 5:2,6; 1 Sam 3:10; Luke 19:5,6; Psa 85:8**
+**Psa 69:20; Matt 13:55; John 1:46; John 8:48; Matt 9:34; John 9:24; John 7:12; Matt 9:3; Matt 11:19; Matt 10:25; 1 Pet 2:19-23; 1 Pet 4:14**
 
-[Wednesday 11-May, 2022](https://t.me/daily_light)
+[Thursday 12-May, 2022](https://t.me/daily_light)
