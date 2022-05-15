@@ -1,13 +1,15 @@
 **Evening**
 
-**They overcame ... by the blood of the Lamb.**
+**Raised up together in Christ Jesus.**
  
-Who shall lay anything to the charge of God's elect? It is God that justifieth. Who is he that condemneth? It is Christ that died. -- It is the blood that maketh an atonement for the soul. -- I am the LORD. The blood shall be to you for a token upon the houses where ye are: and when I see the blood, I will pass over you.
+Fear not; ... I am he that liveth. -- Father, I will that they also, whom thou hast given me, be with me where I am.
  
-There is ... no condemnation to them which are in Christ Jesus.
+We are members of his body, of his flesh, and of his bones. -- He is the head of the body, the church: who is the beginning, the firstborn from the dead. -- Ye are complete in him, which is the head.
  
-What are these which are arrayed in white robes? and whence came they? These are they which came out of great tribulation, and have washed their robes, and made them white in the blood of the Lamb.Unto him that loved us, and washed us from our sins in his own blood, and hath made us kings and priests unto God and his Father; to him be glory and dominion for ever and ever. Amen.  
+Forasmuch ... as the children are partakers of flesh and blood, he also himself likewise took part of the same; that through death he might destroy him that had the power of death, that is, the devil: and deliver them who through fear of death were all their lifetime subject to bondage.
+ 
+This corruptible must put on incorruption, and this mortal must put on immortality. So when this corruptible shall have put on incorruption, and this mortal shall have put on immortality, then shall be brought to pass the saying that is written, Death is swallowed up in victory.  
 
-**Rev 12:11; Rom 8:33,34; Lev 17:11; Exo 12:12,13; Rom 8:1; Rev 7:13,14; Rev 1:5,6**
+**Eph 2:6; Rev 1:17,18; John 17:24; Eph 5:30; Col 1:18; Col 2:10; Heb 2:14,15; 1 Cor 15:53,54**
 
-[Saturday 14-May, 2022](https://t.me/daily_light)
+[Sunday 15-May, 2022](https://t.me/daily_light)
