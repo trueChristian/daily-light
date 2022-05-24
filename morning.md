@@ -1,13 +1,13 @@
 **Morning**
 
-**Thou shalt put the two stones upon the shoulders of the ephod for stones of memorial unto the children of Israel: and Aaron shall bear their names before the Lord.**
+**Grieve not the holy Spirit of God, whereby ye are sealed unto the day of redemp-tion.**
  
-Jesus ... because he continueth ever, hath an unchangeable priesthood. Wherefore he is able also to save them to the uttermost that come unto God by him, seeing he ever liveth to make intercession for them. -- Him that is able to keep you from falling, and to present you faultless before the presence of his glory.
+The love of the Spirit. -- The Comforter, which is the Holy Ghost. -- In all their affliction he was afflicted, and the angel of his presence saved them: in his love and in his pity he redeemed them; and he bare them, and carried them all the days of old. But they rebelled, and vexed his holy Spirit: therefore he turned to be their enemy, and he fought against them.
  
-Seeing ... that we have a great high priest, that is passed into the heavens, Jesus the Son of God, let us hold fast our profession. For we have not a high priest which cannot be touched with the feeling of our infirmities; but was in all points tempted like as we are, yet without sin. Let us therefore come boldly unto the throne of grace.
+Hereby know we that we dwell in him, and he in us, because he hath given us of his Spirit. -- After that ye believed, ye were sealed with that holy Spirit of promise, which is the earnest of the inheritance until the redemption of the purchased possession. -- This I say then, Walk in the Spirit, and ye shall not fulfil the lusts of the flesh. For the flesh lusteth against the spirit, and the spirit against the flesh: and these are contrary the one to the other: so that ye cannot do the things that ye would.
  
-The beloved of the Lord shall dwell in safety by him: and the Lord shall cover him all the day long, and he shall dwell between his shoulders.  
+The Spirit helpeth our infirmities.  
 
-**Exo 28:12; Heb 7:24,25; Jude 24; Heb 4:14‑16; Deut 33:12**
+**Eph 4:30; Rom 15:30; John 14:26; Isa 63:9,10; 1 John 4:13; Eph 1:13,14; Gal 5:16,17; Rom 8:26**
 
-[Monday 23-May, 2022](https://t.me/daily_light)
+[Tuesday 24-May, 2022](https://t.me/daily_light)
