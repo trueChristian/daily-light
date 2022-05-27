@@ -1,28 +1,24 @@
 # Morning
 
-**Our Lord Jesus, that great shepherd of the sheep.**
+**The Lord is good, a strong hold in the day of trouble; and he knoweth them that trust in him.**
  
-The chief Shepherd. -- I am the good shepherd, and know my sheep, and am known of mine. My sheep hear my voice, and I know them, and they follow me: and I give unto them eternal life; and they shall never perish, neither shall any man pluck them out of my hand.
- 
-The Lord is my shepherd; I shall not want. He maketh me to lie down in green pastures: he leadeth me beside the still waters. He restoreth my soul: he leadeth me in the paths of righteousness for his name's sake.
- 
-All we like sheep have gone astray; we have turned every one to his own way; and the LORD hath laid on him the iniquity us all. -- I am the good shepherd: the good shepherd giveth his life for the sheep. -- I will seek that which was lost, and bring again that which was driven away, and will bind up that which was broken, and will strengthen that which was sick. -- Ye were as sheep going astray; but are now returned unto the Shepherd and Bishop of your souls.  
+Praise the Lord of hosts: for the Lord is good; for his mercy endureth for ever. -- God is our refuge and strength, a very present help in trouble. -- I will say of the Lord, He is my refuge and my fortress: my God; in him will I trust. -- Who is like unto thee, O people saved by the Lord, the shield of thy help, and who is the sword of thy excellency! -- As for God, his way is perfect; the word of the Lord is tried: he is a buckler to all them that trust in him. For who is God, save the Lord? and who is a rock, save our God?If any man love God, the same is known of him. -- The foundation of God standeth sure, having this seal, The Lord knoweth them that are his. And, Let every one that nameth the name of Christ depart from iniquity. -- The Lord knoweth the way of the righteous: but the way of the ungodly shall perish. -- Thou hast found grace in my sight, and I know thee by name.  
 
-**Heb 13:20; 1 Pet 5:4; John 10:14,27, 28; Psa 23:1‑3; Isa 53:6; John 10:11; Ezek 34:16; 1 Pet 2:25**
+**Nah 1:7; Jer 33:11; Psa 46:1; Psa 91:2; Deut 33:29; 2 Sam 22:31,32; 1 Cor 8:3; 2 Tim 2:19; Psa 1:6; Exo 33:17**
 
 # Evening
 
-**The city had no need of the sun, neither of the moon, to shine in it: for the glory of God did lighten it, and the Lamb is the light thereof.**
+**I would have you without carefulness.**
  
-I saw in the way a light from heaven, above the brightness of the sun, shining round about me. And I said, Who art thou, Lord? And he said, I am Jesus whom thou persecutest. -- Jesus taketh Peter, James, and John his brother, and bringeth them up into an high mountain apart, and was transfigured before them: and his face did shine as the sun, and his raiment was white as the light. -- The sun shall be no more thy light by day; neither for brightness shall the moon give light unto thee: but the Lord shall be unto thee an everlasting light, and thy God thy glory. Thy sun shall no more go down; neither shall thy moon withdraw itself: for the Lord shall be thine ever-lasting light, and the days of thy mourning shall be ended.
+He careth for you. -- The eyes of the Lord run to and fro throughout the whole earth, to shew himself strong in the behalf of them whose heart is perfect toward him.
  
-The God of all grace, ... hath called us unto his eternal glory by Christ Jesus.  
+O taste and see that the Lord is good: blessed is the man that trusteth in him. The young lions do lack, and suffer hunger: but they that seek the Lord shall not want any good thing. -- Therefore I say unto you, Take no thought for your life, what ye shall eat, or what ye shall drink; nor yet for your body, what ye shall put on. Is not the life more than meat, and the body than raiment? Behold the fowls of the air: for they sow not, neither do they reap, nor gather into barns; yet your heavenly Father feedeth them Are ye not much better than they? -- Be careful for nothing; but in every thing by prayer and supplication with thanksgiving let your requests be made known unto God. And the peace of God, which passeth all understanding, shall keep your hearts and minds through Christ Jesus.  
 
-**Rev 21:23; Acts 26:13,15; Matt 17:1,2; Isa 60:19,20; 1 Pet 5:10**
+**1 Cor 7:32; 1 Pet 5:7; 2 Chr 16:9; Psa 34:8,10; Matt 6:25,26; Phl 4:6,7**
 
 ---
 
-[Thursday 26-May, 2022](https://t.me/s/daily_light)
+[Friday 27-May, 2022](https://t.me/s/daily_light)
 
 > Jonathan Bagster, the son of Samuel Bagster, created the Daily Light for his own family's daily devotion in 1875
 
