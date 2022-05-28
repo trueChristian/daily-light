@@ -1,11 +1,17 @@
 **Evening**
 
-**I would have you without carefulness.**
+**So run, that ye may obtain.**
  
-He careth for you. -- The eyes of the Lord run to and fro throughout the whole earth, to shew himself strong in the behalf of them whose heart is perfect toward him.
+The slothful man saith, There is a lion without. -- Let us lay aside every weight, and the sin which doth so easily beset us, and let us run with patience the race that is set before us, looking unto Jesus the author and finisher of our faith.
  
-O taste and see that the Lord is good: blessed is the man that trusteth in him. The young lions do lack, and suffer hunger: but they that seek the Lord shall not want any good thing. -- Therefore I say unto you, Take no thought for your life, what ye shall eat, or what ye shall drink; nor yet for your body, what ye shall put on. Is not the life more than meat, and the body than raiment? Behold the fowls of the air: for they sow not, neither do they reap, nor gather into barns; yet your heavenly Father feedeth them Are ye not much better than they? -- Be careful for nothing; but in every thing by prayer and supplication with thanksgiving let your requests be made known unto God. And the peace of God, which passeth all understanding, shall keep your hearts and minds through Christ Jesus.  
+Let us cleanse ourselves from all filthiness of the flesh and spirit, perfecting holiness in the fear of God.
+ 
+I press toward the mark. -- I ... so run, not as uncertainly; I keep under my body, and bring it into subjection: lest that by any means, ... I myself should be a castaway.
+ 
+The fashion of this world passeth away.
+ 
+Nevertheless we, according to his promise, look for new heavens and a new earth, wherein dwelleth righteousness. Wherefore, beloved, seeing that ye look for such things, be diligent. -- Gird up the loins of your mind, be sober, and hope to the end for the grace that is to be brought unto you at the revelation of Jesus Christ.  
 
-**1 Cor 7:32; 1 Pet 5:7; 2 Chr 16:9; Psa 34:8,10; Matt 6:25,26; Phl 4:6,7**
+**1 Cor 9:24; Prov 22:13; Heb 12:1,2; 2 Cor 7:1; Phl 3:14; 1 Cor 9:26,27; 1 Cor 7:31; 2 Pet 3:13,14; 1 Pet 1:13**
 
-[Friday 27-May, 2022](https://t.me/daily_light)
+[Saturday 28-May, 2022](https://t.me/daily_light)
