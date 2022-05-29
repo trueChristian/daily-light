@@ -1,11 +1,13 @@
 **Morning**
 
-**We look for the Saviour.**
+**The life of the flesh is in the blood: and I have given it to you upon the altar to make an atonement for your souls: for it is the blood that maketh an atonement for the soul.**
  
-The grace of God that bringeth salvation hath appeared to men, teaching us that, denying ungodliness and worldly lusts, should live soberly, righteously, and godly, in this present world, looking for that blessed hope, and the glorious appearing of the great God and our Saviour Jesus Christ; who gave himself us, that he might redeem us from all iniquity, and purify unto himself a peculiar people, zealous of good works. -- We, according to his promise, look for new heavens and a new earth, wherein dwelleth righteousness. Wherefore, beloved, seeing that ye look for such things, be diligent that ye may be found of him in peace, without spot, and blameless.
+Behold the Lamb of God, which taketh away the sin of the world. -- The blood of the Lamb. -- The precious blood of Christ, as of a lamb without blemish and without spot. -- Without shedding of blood is no remission. -- The blood of Jesus Christ his Son cleanseth us from all sin.
  
-Christ was once offered to bear the sins of many; and unto them that look for him shall he appear the second time without sin unto salvation. -- And it shall be said in that day, Lo, this is our God; we have waited for him, and he will save us: this is the LORD; we have waited for him, we will be glad and rejoice in his salvation.  
+By his own blood he entered in once into the holy place, having obtained eternal redemption for us. -- Having therefore, brethren, boldness to enter into the holiest by the blood of Jesus, by a new and living way, which he hath consecrated for us, through the veil, that is to say, his flesh; let us draw near with a true heart in full assurance of faith.
+ 
+Ye are bought with a price: therefore glorify God in your body, and in your spirit, which are God's.  
 
-**Phl 3:20; Tit 2:11‑14; 2 Pet 3:13,14; Heb 9:28; Isa 25:9**
+**Lev 17:11; John 1:29; Rev 7:14; 1 Pet 1:19; Heb 9:22; 1 John 1:7; Heb 9:12; Heb 10:19,20,22; 1 Cor 6:20**
 
-[Saturday 28-May, 2022](https://t.me/daily_light)
+[Sunday 29-May, 2022](https://t.me/daily_light)
