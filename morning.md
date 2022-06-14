@@ -1,13 +1,11 @@
 **Morning**
 
-**Abide in me, and I in you.**
+**As the sufferings of Christ abound in us, so our consolation also aboundeth by Christ.**
  
-I am crucified with Christ; nevertheless I live; yet not I, but Christ liveth in me: and the life which I now live in the flesh I live by the faith of the Son of God, who loved me, and gave himself for me.
+The fellowship of his sufferings. -- Rejoice, inasmuch as ye are partakers of Christ's sufferings; that, when his glory shall be revealed, ye may be glad also with exceeding joy. -- For if we be dead with him, we shall also live with him. -- If children, then heirs; heirs of God, and joint‑heirs with Christ; if so be that we suffer with him, that we may be also glorified together.
  
-I know that in me (that is, in my flesh,) dwelleth no good thing: for to will is present with me; but how to perform that which is good I find not. O wretched man that I am! who shall deliver me from the body of this death? I thank God through Jesus Christ our Lord. -- If Christ be in you, the body is dead because of sin, but the Spirit is life because of righteousness. -- If ye continue in the faith grounded and settled, and be not moved away from the hope of the gospel, which ye have heard.
- 
-Little children, abide in him; that, when he shall appear, we may have confidence, and not be ashamed before him at his coming. -- He that saith he abideth in him ought himself also so to walk, even as he walked.  
+God, willing more abundantly to shew unto the heirs of promise the im-mutability of his counsel, confirmed it by an oath: that by two immutable things, in which it was impossible for God to lie, we might have a strong consolation, who have fled for refuge to lay hold upon the hope set before us. -- Our Lord Jesus Christ Himself, and God, even our Father, which hath loved us, and hath given us everlasting consolation and good hope through grace, comfort your hearts, and stablish you in every good word and work.  
 
-**John 15:4; Gal 2:20; Rom 7:18,24,25; Rom 8:10; Col 1:23; 1 John 2:28; 1 John 2:6**
+**2 Cor 1:5; Phl 3:10; 1 Pet 4:13; 2 Tim 2:11; Rom 8:17; Heb 6:17,18; 2 Thes 2:16,17**
 
-[Monday 13-June, 2022](https://t.me/daily_light)
+[Tuesday 14-June, 2022](https://t.me/daily_light)
