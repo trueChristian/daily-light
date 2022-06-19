@@ -1,13 +1,11 @@
 **Morning**
 
-**Thou shalt put the mercy seat above upon the ark, and there I will meet with thee.**
+**Holiness, without which no man shall see the Lord.**
  
-The way into the holiest of all was not yet made manifest. -- Jesus, when he had cried again with a loud voice, yielded up the ghost. And, behold, the veil of the temple was rent in twain from the top to the bottom.
+Except a man be born again, he cannot see the kingdom of God. -- There shall in no wise enter into it any thing that defileth. -- There is no spot in thee.
  
-Having ... brethren, boldness to enter into the holiest by the blood of Jesus, by a new and living way, which he hath consecrated for us, through the veil, that is to say, his flesh; ... let us draw near with a true heart in full assurance of faith, having our hearts sprinkled from an evil conscience, and our bodies washed with pure water. -- Let us therefore come boldly unto the throne of grace, that we may obtain mercy, and find grace to help in time of need.
- 
-Christ Jesus: whom God hath set forth to be a propitiation [mercy seat] through faith in his blood, to declare his righteousness for the remission of sins that are past, through the forbearance of God. -- Through him we have access by one Spirit unto the Father.  
+Ye shall be holy: for I the Lord your God am holy. -- As obedient children, not fashioning yourselves according to the former lusts in your ignorance: but as he which hath called you is holy, so be ye holy in all manner of conversation; because it is written, Be ye holy; for I am holy. And if ye call on the Father, who without respect of persons judgeth according to every man's work, pass the time of your sojourning here in fear. -- Put off concerning the former conversation the old man, which is corrupt according to the deceitful lusts; and be renewed in the spirit of your mind, and ... put on the new man, which after God is created in righteousness and true holiness. -- He hath chosen us in him before the foundation of the world, that we should he holy and without blame before him in love.  
 
-**Exo 25:21,22; Heb 9:8; Matt 27:50,51; Heb 10:19,20,22; Heb 4:16; Rom 3:24,25; Eph 2:18**
+**Heb 2:14; John 3:3; Rev 21:27; Song 4:7; Lev 19:2; 1 Pet 1:14-17; Eph 4:22-24; Eph 1:4**
 
-[Saturday 18-June, 2022](https://t.me/daily_light)
+[Sunday 19-June, 2022](https://t.me/daily_light)
