@@ -1,15 +1,11 @@
 **Evening**
 
-**The Spirit speaketh expressly, that in the latter times some shall depart from the faith, giving heed to seducing spirits.**
+**Remember not the sins of my youth, nor my transgressions.**
  
-Take heed therefore how ye hear. -- Let the word of Christ dwell in you richly in all wisdom. -- Above all, taking the shield of faith, wherewith ye shall be able to quench all the fiery darts of the wicked.
+I have blotted out, as a thick cloud, thy transgressions, and, as a cloud, thy sins. -- I, even I, am he that blotteth out thy transgressions for mine own sake, and will not remember thy sins. -- Come now, and let us reason together, saith the Lord: though your sins be as scarlet, they shall be as white as snow; though they be red like crimson, they shall be as wool. -- I will forgive their iniquity, and I will remember their sin no more. -- Thou wilt cast all their sins into the depths of the sea.
  
-Great peace have they which love thy law: and nothing shall offend them. How sweet are thy words unto my taste! yea, sweeter than honey to my mouth! Through thy precepts I get understanding: therefore I hate every false way.
- 
-Thy word is a lamp unto my feet, and a light unto my path. -- I have more understanding than all my teachers: for thy testimonies are my meditation.
- 
-Satan himself is transformed into an angel ot light. -- But though we, or an angel from heaven, preach any other gospel unto you than that which we have preached unto you, let him be accursed.  
+Thou hast in love to my soul delivered it from the pit of corruption: for thou hast cast all my sins behind thy back. -- Who is a God like unto thee, that pardoneth iniquity? ... he retaineth not his anger for ever, because he delighteth in mercy. -- Unto him that loved us, and washed us from our sins in his own blood, to him be glory and dominion for ever and ever. Amen.  
 
-**1 Tim 4:1; Luke 8:18; Col 3:16; Eph 6:16; Psa 119:165,103,104; Psa 119:105; Psa 119:99; 2 Cor 11:14; Gal 1:8**
+**Psa 25:7; Isa 44:22; Isa 43:25; Isa 1:18; Jer 31:34; Mic 7:19; Isa 38:17; Mic 7:18; Rev 1:5**
 
-[Tuesday 28-June, 2022](https://t.me/daily_light)
+[Wednesday 29-June, 2022](https://t.me/daily_light)
