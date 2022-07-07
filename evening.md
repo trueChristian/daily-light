@@ -1,13 +1,15 @@
 **Evening**
 
-**Thy lovingkindness is before mine eyes.**
+**The Son of man came to give his life a ransom for many.**
  
-The Lord is gracious, and full of compassion; slow to anger, and of great mercy. -- Your Father which is in heaven: ... maketh his sun to rise on the evil and on the good, and sendeth rain on the just and on the unjust.
+If the blood of bulls and of goats, and the ashes of an heifer sprinkling the unclean, sanctifieth to the purifying of the flesh: how much more shall the blood of Christ, who through the eternal Spirit offered himself without spot to God, purge your conscience from dead works to serve the living God?
  
-Be ye ... followers of God, as dear children; and walk in love, as Christ also hath loved us, and hath given himself for us an offering and a sacrifice to God for a sweet‑smelling savour. -- Be ye kind to one another, tender-hearted, forgiving one another, even as God for Christ's sake hath forgiven you. -- Seeing ye have purified your souls in obeying the truth through the Spirit unto unfeigned love of the brethren, see that ye love one another with a pure heart fervently. -- The love of Christ constraineth us.
+He is brought as a lamb to the slaughter. -- I lay down my life for the sheep. No man taketh it from me, but I lay it down of myself. I have power to lay it down, and I have power to take it again.
  
-Love ye your enemies, and do good, and lend, hoping for nothing again; and your reward shall be great, and ye shall be the children of the Highest: for he is kind unto the unthankful and to the evil. Be ye therefore merciful, as your Father also is merciful.  
+The life of the flesh is in the blood: and I have given it to you upon the altar, to make an atonement for your souls: for it is the blood that maketh an atonement for the soul. -- Without shedding of blood is no remission.
+ 
+While we were yet sinners, Christ died for us. Much more then, being now justified by his blood, we shall be saved from wrath through him.  
 
-**Psa 26:3; Psa 145:8; Matt 5:45; Eph 5:1,2; Eph 4:32; 1 Pet 1:22; 2 Cor 5:14; Luke 6:35,36**
+**Matt 20:28; Heb 9:13,14; Isa 53:7; John 10:15,18; Lev 17:11; Heb 9:22; Rom 5:8,9**
 
-[Wednesday 06-July, 2022](https://t.me/daily_light)
+[Thursday 07-July, 2022](https://t.me/daily_light)
