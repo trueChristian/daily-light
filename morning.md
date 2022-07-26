@@ -1,13 +1,13 @@
 **Morning**
 
-**We know that we have passed from death unto life.**
+**By faith Abraham, ... called to go out into a place which he should after receive for an inheritance, obeyed.**
  
-He that heareth my word and believeth on him that sent me hath everlasting life, and shall not come into condemnation; but is passed from death unto life. -- He that hath the Son hath life, and he that hath not the Son of God hath not life.
+He shall choose our inheritance for us. -- He led him about, he instructed him, he kept him as the apple of his eye. As an eagle stirreth up her nest, fluttereth over her young, spreadeth abroad her wings, taketh them, beareth them on her wings: so the Lord alone did lead him, and there was no strange god with him.
  
-He which stablisheth us with you in Christ and hath anointed us, is God; who hath also sealed us, and given the earnest of the Spirit in our hearts. -- Hereby we know that we are of the truth and shall assure our hearts before him. Beloved, if our heart condemn us not, then have we confidence toward God. -- We know that we are of God, and the whole world lieth in wickedness.
+I am the Lord thy God which teacheth thee to profit, which leadeth thee by the way that thou shouldest go. -- Who teacheth like Him?
  
-You hath he quickened, who were dead in trespasses and sin. -- Quickened ... together with Christ. -- Who hath delivered us from the power of darkness, and hath translated us into the kingdom his dear Son.  
+We walk by faith, not by sight. -- Here have we no continuing city, but we seek one to come. -- Dearly beloved, I beseech you as strangers and pil-grims, abstain from fleshly lusts, which war against the soul. -- Arise ye and depart; for this is not your rest: because it is polluted, it shall destroy you, even with a sore destruction.  
 
-**1 John 3:14; John 5:24; 1 John 5:12; 2 Cor 1:21,22; 1 John 3:19,21; 1 John 5:19; Eph 2:1; Eph 2:5; Col 1:13**
+**Heb 11:8; Psa 47:4; Deut 32:10‑12; Isa 48:17; Job 36:22; 2 Cor 5:7; Heb 13:14; 1 Pet 2:11; Mic 2:10**
 
-[Monday 25-July, 2022](https://t.me/daily_light)
+[Tuesday 26-July, 2022](https://t.me/daily_light)
