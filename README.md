@@ -1,34 +1,32 @@
 # Morning
 
-**By faith Abraham, ... called to go out into a place which he should after receive for an inheritance, obeyed.**
+**Christ, who is the image of God.**
  
-He shall choose our inheritance for us. -- He led him about, he instructed him, he kept him as the apple of his eye. As an eagle stirreth up her nest, fluttereth over her young, spreadeth abroad her wings, taketh them, beareth them on her wings: so the Lord alone did lead him, and there was no strange god with him.
+The glory of the Lord shall be revealed, and all flesh shall see it together. -- No man hath seen God at any time; the only begotten Son, which is in the bosom of the Father, he hath declared him. And the Word was made flesh, and dwelt among us, (and we beheld his glory, the glory as of the only begotten of the Father,) full of grace and truth. -- He that hath seen me hath seen the Father. -- The brightness of his glory, and the express image of his person. -- God was manifest in the flesh.
  
-I am the Lord thy God which teacheth thee to profit, which leadeth thee by the way that thou shouldest go. -- Who teacheth like Him?
+In whom we have redemption through his blood, even the forgiveness of sins: who is the image of the invisible God, the first‑born of every creature. -- Whom he did foreknow, he also did predestinate to be conformed to the image of his Son, that he might be the firstborn among many brethren.
  
-We walk by faith, not by sight. -- Here have we no continuing city, but we seek one to come. -- Dearly beloved, I beseech you as strangers and pil-grims, abstain from fleshly lusts, which war against the soul. -- Arise ye and depart; for this is not your rest: because it is polluted, it shall destroy you, even with a sore destruction.  
+As we have borne the image of the earthy, we shall also bear the image of the heavenly.  
 
-**Heb 11:8; Psa 47:4; Deut 32:10‑12; Isa 48:17; Job 36:22; 2 Cor 5:7; Heb 13:14; 1 Pet 2:11; Mic 2:10**
+**2 Cor 4:4; Isa 40:5; John 1:18,14; John 14:9; Heb 1:3; 1 Tim 3:16; Col 1:14,15; Rom 8:29; 1 Cor 15:49**
 
 # Evening
 
-**Give thanks at the remembrance of his holiness.**
+**Thou hast girded me with strength unto the battle.**
  
-The heavens are not clean in his sight. How much more abominable and filthy is man, which drinketh iniquity like water? -- Yea, the stars are not pure in his sight. How much less man, that is a worm?
+When I am weak, then am I strong.
  
-Who is like unto thee, O Lord, among the gods? who is like thee, glorious in holiness? -- Holy, holy, holy, is the Lord of hosts.
+Asa cried unto the Lord his God, and said, Lord, it is nothing with thee to help, whether with many, or with them that have no power: help us, O Lord our God; for we rest on thee, and in thy name we go against this multitude. O Lord, thou art our God; let not man prevail against thee. -- Jehoshaphat cried out, and the Lord helped him.
  
-As he which hath called you is holy, so be ye holy in all manner of conversation; because it is written, Be ye holy; for I am holy. -- Partakers of his holiness.
+It is better to trust in the Lord than to put confidence in man. It is better to trust in the Lord than to put confidence in princes. -- There is no king saved by the multitude of an host: a mighty man is not delivered by much strength. An horse is a vain thing for safety: neither shall he deliver any by his great strength.
  
-The temple of God is holy, which temple ye are. -- What manner of persons ought ye to be in all holy conversation and godliness, ... without spot, and blameless?
- 
-Let no corrupt communication proceed out of your mouth, but that which is good to the use of edifying. And grieve not the holy Spirit of God, whereby ye are sealed unto the day of redemption.  
+We wrestle not against flesh and blood, but against principalities, against powers, against the rulers of the darkness of this world, against spiritual wickedness in high places. Wherefore take unto you the whole armour of God.  
 
-**Psa 97:12; Job 15:15,16; Job 25:5,6; Exo 15:11; Isa 6:3; 1 Pet 1:15,16; Heb 12:10; 1 Cor 3:17; 2 Pet 3:11,14; Eph 4:29,30**
+**Psa 18:39; 2 Cor 12:10; 2 Chr 14:11; 2 Chr 18:31; Psa 118:8,9; Psa 33:16,17; Eph 6:12,13**
 
 ---
 
-[Tuesday 26-July, 2022](https://t.me/s/daily_light)
+[Wednesday 27-July, 2022](https://t.me/s/daily_light)
 
 > Jonathan Bagster, the son of Samuel Bagster, created the Daily Light for his own family's daily devotion in 1875
 
