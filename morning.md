@@ -1,13 +1,11 @@
 **Morning**
 
-**His mercy is on them that fear Him.**
+**It is finished: and he bowed his head, and gave up the ghost.**
  
-Oh how great is thy goodness, which thou hast laid up for them that fear thee; which thou hast wrought for them that trust in thee before the sons of men! Thou shalt hide them in the secret of thy presence from the pride of man: thou shalt keep them secretly in a pavilion from the strife of tongues.
+Jesus the author and finisher of our faith. -- I have glorified thee on the earth: I have finished the work which thou gavest me to do. -- We are sanctified through the offering of the body of Jesus Christ once for all. And every priest standeth daily ministering an offering oftentimes the same sacrifices, which can never take away sins: but this man, after he had offered one sacrifice for sins for ever, sat down on the right hand of God; from henceforth expecting till his enemies be made his footstool. For by one offering he hath perfected for ever them that are sanctified. -- Blotting out the handwriting of ordinances that was against us, which was contrary to us, and took it out of the way, nailing it to his cross.
  
-If ye call on the Father, who without respect of persons judgeth according to every man's work, pass the time of your sojourning here in fear. -- The Lord is nigh unto all them that call upon him in truth. He will fulfil the desire of them that fear him: he also will hear their cry, and will save them.
- 
-Because thine heart was tender, and thou hast humbled thyself before the Lord, ... and hast rent thy clothes, and wept before me; I also have heard thee, saith the Lord. -- To this man will I look, even to him that is poor and of a contrite spirit, and trembleth at my word. -- The Lord is nigh unto them that are of a broken heart; and saveth such as be of a contrite spirit.  
+I lay down my life, that I might take it again. No man taketh it from me, but I lay it down of myself. I have power to lay it down, and I have power to take it again. -- Greater love hath no man than this, that a man lay down his life for his friends.  
 
-**Luke 1:50; Psa 31:19,20; 1 Pet 1:17; Psa 145:18,19; 2 Kgs 22:19; Isa 66:2; Psa 34:18**
+**John 19:30; Heb 12:2; John 17:4; Heb 10:10-14; Col 2:14; John 10:17,18; John 15:13**
 
-[Wednesday 03-August, 2022](https://t.me/daily_light)
+[Thursday 04-August, 2022](https://t.me/daily_light)
