@@ -1,30 +1,32 @@
 # Morning
 
-**Walk in newness of life.**
+**Whom the Lord loveth he correcteth.**
  
-As ye have yielded your members servants to uncleanness and to iniquity unto iniquity; even so now yield your members servants to righteousness unto holiness. -- I beseech you, ... brethren, by the mercies of God, that ye present your bodies a living sacrifice, holy, acceptable unto God, which is your reasonable service. And be not conformed to this world: but be ye transformed by the renewing of your mind.
+See now that I, even I, am he, and there is no god with me: I kill, and I make alive; I wound, and I heal: neither is there any that can deliver out of my hand. -- I know the thoughts that I think toward you, saith the Lord, thoughts of peace, and not of evil, to give you an expected end. -- My thoughts are not your thoughts, neither are your ways my ways, saith the Lord.
  
-If any man be in Christ he is a new creature: old things are passed away; behold, all things are become new. -- In Christ Jesus neither circumcision availeth anything, nor uncircumcision, but a new creature. And as many as walk according to this rule, peace be on them, and mercy. -- This I say therefore, and testify in the Lord, that ye henceforth walk not as other Gentiles walk, in the vanity of their mind. -- Ye have not so learned Christ; if so be that ye have heard him, and have been taught by him, as the truth is in Jesus. Put on the new man, which after God is created in righteousness and true holiness.  
+I will allure her, and bring her into the wilderness, and speak comfortably unto her. -- As a man chasteneth his son, so the Lord thy God chasteneth thee. -- Now no chastening for the present, seemeth to be joyous, but grievous: nevertheless afterward it yieldeth the peaceable fruit of righteousness unto them which are exercised thereby. -- Humble yourselves therefore under the mighty hand of God, that he may exalt you in due time.
+ 
+I know, O Lord, that thy judgments are right, and that thou in faithfulness hast afflicted me.  
 
-**Rom 6:4; Rom 6:19; Rom 12:1,2; 2 Cor 5:17; Gal 6:15,16; Eph 4:17; Eph 4:20,21,24**
+**Prov 3:12; Deut 32:39; Jer 29:11; Isa 55:8; Hos 2:14; Deut 8:5; Heb 12:11; 1 Pet 5:6; Psa 119:75**
 
 # Evening
 
-**Thy will be done.**
+**The earth is the Lord's, and the fulness thereof.**
  
-O Lord, I know that the way of man is not in himself: it is not in man that walketh to direct his steps. -- Not as I will, but as thou wilt. -- Surely I have behaved and quieted myself, as a child that is weaned of his mother: my soul is even as a weaned child.
+She did not know that I gave her corn, and wine, and oil, and multiplied her silver and gold. Therefore will I return, and take away my corn in the time thereof, and my wine in the season thereof, and I will recover my wool and my flax.
  
-We know not what we should pray for as we ought: but the Spirit itself maketh intercession for us with groanings which cannot be uttered. And he that searcheth the hearts knoweth what is the mind of the Spirit, because he maketh intercession for the saints according to the will of God.
+All things come of thee, and of thine own have we given thee. For we are strangers before thee, and sojourners, as were all our fathers: our days on the earth are as a shadow, and there is none abiding. O Lord our God, all this store ... cometh of thine hand, and is all thine own. -- Of him, and through him, and to him, are all things: to whom be glory for ever. Amen.
  
-Ye know not what ye ask. -- He gave them their request; but sent leanness into their soul. -- These things were our examples, to the intent we should not lust after evil things, as they also lusted.
+The living God ... giveth us richly all things to enjoy. -- Every creature of God is good, and nothing to be refused, if it be received with thanksgiving: for it is sanctified by the word of God and prayer.
  
-I would have you without carefulness. -- Thou wilt keep him in perfect peace, whose mind is stayed on thee: because he trusteth in thee.  
+My God shall supply all your need according to his riches in glory by Christ Jesus.  
 
-**Matt 26:42; Jer 10:23; Matt 26:39; Psa 131:2; Rom 8:26,27; Matt 20:22; Psa 106:15; 1 Cor 10:6; 1 Cor 7:32; Isa 26:3**
+**Psa 24:1; Hos 2:8,9; 1 Chr 29:14‑16; Rom 11:36; 1 Tim 6:17; 1 Tim 4:4,5; Phl 4:19**
 
 ---
 
-[Friday 05-August, 2022](https://t.me/s/daily_light)
+[Saturday 06-August, 2022](https://t.me/s/daily_light)
 
 > Jonathan Bagster, the son of Samuel Bagster, created the Daily Light for his own family's daily devotion in 1875
 
