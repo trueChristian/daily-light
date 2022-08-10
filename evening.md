@@ -1,17 +1,13 @@
 **Evening**
 
-**Broken cisterns, that can hold no water.**
+**Whoso putteth his trust in the Lord shall be safe. (Or, set on high)**
  
-Eve ... bare Cain, and said, I have gotten a man from the Lord.
+The Lord is exalted; for he dwelleth on high. -- The Lord is high above all nations, and his glory above the heavens. He raiseth up the poor out of the dust, and lifteth the needy out of the dunghill; that he may set him with princes.
  
-Go to, let us build us a city and a tower, whose top may reach unto heaven. The Lord scattered them. -- Lot chose him all the plain of Jordan; it was well watered every where, even as the garden of the Lord. But the men of Sodom were wicked and sinners before the Lord exceedingly.
+God, who is rich in mercy, for his great love wherewith He loved us, even when we were dead in sins, hath quickened us together with Christ, (by grace ye are saved;) and hath raised us up together and made us sit together in heavenly places in Christ Jesus.
  
-I gave my heart to know wisdom, and to know madness and folly: I perceived that this also is vexation of spirit. For in much wisdom is much grief: and he that increaseth knowledge increaseth sorrow. -- I made me great works; I builded me houses; I planted me vineyards: I gathered me also silver and gold. Then I looked on all, and, behold, all was vanity and vexation of spirit.
- 
-If any man thirst, let him come unto me, and drink. -- He satisfieth the longing soul, and filleth the hungry soul with goodness.
- 
-Set your affection on things above, not on things on the earth.  
+He that spared not his own Son, but delivered him up for us all, how shall he not with him also freely give us all things? For I am persuaded, that neither death, nor life, nor angels, nor principalities, nor powers, nor things present, nor things to come, nor height, nor depth, nor any other creature, shall be able to separate us from the love of God, which is in Christ Jesus our Lord.  
 
-**Jer 2:13; Gen 4:1; Gen 11:4,8; Gen 13:11,10,13; Eccl 1:17,18; Eccl 2:4,8,11; John 7:37; Psa 107:9; Col 3:2**
+**Prov 29:25; Isa 33:5; Psa 113:4,7,8; Eph 2:4‑6; Rom 8:32,38,39**
 
-[Tuesday 09-August, 2022](https://t.me/daily_light)
+[Wednesday 10-August, 2022](https://t.me/daily_light)
