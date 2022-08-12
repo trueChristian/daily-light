@@ -1,13 +1,15 @@
 **Evening**
 
-**Where is the way that light dwelleth?**
+**God hath chosen the weak things of the world to confound the things which are mighty.**
  
-God is light, and in him is no darkness at all. -- As long as I am in the world, I am the light of the world.
+When the children of Israel cried unto the LORD, the LORD raised them up a deliverer, Ehud, ... a man lefthanded. After him was Shamgar, ... which slew of the Philistines six hundred men with an ox goad: and he also delivered Israel.
  
-If we say that we have fellowship with him, and walk in darkness, we lie, and do not the truth: but if we walk in the light, as he is in the light, we have fellowship one with another, and the blood of Jesus Christ his Son cleanseth us from all sin. -- The Father ... hath made us meet to be partakers of the inheritance of the saints in light, who hath delivered us from the power of darkness, and hath translated us into the kingdom of his dear Son; in whom we have redemption through his blood, even the forgiveness of sins.
+The LORD looked upon [Gideon], and said, Go in this thy might: ... have not I sent thee? And he said unto him, O my Lord, wherewith shall I save Israel? behold my family is poor in Manasseh, and I am the least in my father's house.
  
-Ye are all the children of light, and the children of the day: we are not of the night, nor of darkness. -- Ye are the light of the world. A city that is set on an hill cannot be hid. Let your light so shine before men, that they may see your good works, and glorify your Father which is in heaven.  
+The LORD said unto Gideon, The people that are with thee are too many for me, ... lest Israel vaunt themselves against me, saying, Mine own hand hath saved me.
+ 
+Not by might, nor by power, but by my Spirit, saith the LORD of hosts. -- My brethren, be strong in the Lord, and in the power of his might.  
 
-**Job 38:19; 1 John 1:5; John 9:5; 1 John 1:6,7; Col 1:12‑14; 1 Thes 5:5; Matt 5:14,16**
+**1 Cor 1:27; Judg 3:15,31; Judg 7:2; Zech 4:6; Eph 6:10**
 
-[Thursday 11-August, 2022](https://t.me/daily_light)
+[Friday 12-August, 2022](https://t.me/daily_light)
