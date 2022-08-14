@@ -1,15 +1,13 @@
 **Evening**
 
-**Base things of the world hath God chosen.**
+**He hath made with me an everlasting covenant, ordered in all things, and sure.**
  
-Be not deceived: neither fornicators, nor idolators, nor adulterers, nor effeminate, nor abusers of themselves with mankind, nor thieves, nor covetous, nor drunkards, nor revilers, nor extortioners, shall inherit the kingdom of God. And such were some of you: but ye are washed, but ye are sanctified, but ye are justified in the name of the Lord Jesus, and by the Spirit of our God.
+I know whom I have believed, and am persuaded that he able to keep that which I have committed unto him against that day.
  
-You hath he quickened, who were dead in trespasses and sins; wherein in time past ye walked according to the course of this world; among whom also we all had our conversation in times past in the lusts of our flesh, fulfilling the desires of the flesh and of the mind.
+Blessed be the God and Father of our Lord Jesus Christ, who hath blessed us with all spiritual blessings in heavenly places Christ: according as he hath chosen us in him before the foundation of the world, that we should be holy and without blame before him in love: having predestinated us unto the adoption of children by Jesus Christ to himself, according to the good pleasure of his will.
  
-According to his mercy he saved us, by the washing of regeneration, and renewing of the Holy Ghost; which he shed on us abundantly through Jesus Christ our Saviour.
- 
-My thoughts are not your thoughts, neither are your ways my ways, saith the LORD.  
+We know that all things work together for good to them that love God, to them who are the called according to his purpose. For whom he did foreknow, he also did predestinate to be conformed to the image of his Son. Moreover whom be did predestinate, them he also called: and whom he called, them he also justified: and whom he justified, them he also glorified.  
 
-**1 Cor 1:28; 1 Cor 6:9-11; Eph 2:1-3; Tit 3:5,6; Isa 55:8**
+**2 Sam 23:5; 2 Tim 1:12; Eph 1:3-5; Rom 8:28-30**
 
-[Saturday 13-August, 2022](https://t.me/daily_light)
+[Sunday 14-August, 2022](https://t.me/daily_light)
