@@ -1,11 +1,11 @@
 **Morning**
 
-**Thy word is a lamp unto my feet, and a light unto my path.**
+**The accuser of our brethren is cast down, which accused them before our God day and night.**
  
-By the word of thy lips I have kept me from the paths of the destroyer. Hold up my goings in thy paths, that my footsteps slip not. -- When thou goest, it shall lead thee; when thou sleepest, it shall keep thee; and when thou awakest, it shall talk with thee. For the commandment is a lamp; and the law is light. -- Thine ears shall hear a word behind thee, saying, This is the way, walk ye in it, when ye turn to the right hand, and when ye turn to the left.
+They overcame him by the blood of the Lamb, and by the word of their testimony. -- Who shall lay any thing to the charge of God's elect? It is God that justifieth. Who is he that condemneth? It is Christ that died, yea, rather, that is risen again, who is even at the right hand of God, who also maketh intercession for us.
  
-I am the light of the world: he that followeth me shall not walk in darkness, but shall have the light of life. -- We have also a sure word of prophecy; whereunto ye do well that ye take heed, as unto a light that shineth in a dark place. -- Now we see through a glass, darkly; but then face to face: now I know in part; but then shall I know even as also I am known. -- They need no candle, neither light of the sun; for the Lord God giveth them light: and they shall reign for ever and ever.  
+Having spoiled principalities and powers, he made a shew of them openly. -- That through death he might destroy him that had the power of death, that is, the devil; and deliver them who through fear of death were all their lifetime subject to bondage. -- In all these things we are more than conquerors, through him that loved us. -- Put on the whole armour of God, that ye may be able to stand against the wiles of the devil. And take the sword of the Spirit, which is the word of God. -- Thanks be to God, which giveth us the victory through our Lord Jesus Christ.  
 
-**Psa 119:105; Psa 17:4,5; Prov 6:22,23; Isa 30:21; John 8:12; 2 Pet 1:19; 1 Cor 13:12; Rev 22:5**
+**Rev 12:10; Rev 12:11; Rom 8:33,34; Col 2:15; Heb 2:14,15; Rom 8:37; Eph 6:11,17; 1 Cor 15:57**
 
-[Saturday 27-August, 2022](https://t.me/daily_light)
+[Sunday 28-August, 2022](https://t.me/daily_light)
