@@ -1,15 +1,17 @@
 **Morning**
 
-**Neither shall there be leaven seen with thee in all thy quarters.**
+**Sit still, my daughter.**
  
-The fear of the LORD is to hate evil. -- Abhor that which is evil. -- Abstain from all appearance of evil. -- Looking diligently lest any man fail of the grace of God; lest any root of bitterness springing up trouble you, and thereby many be defiled.
+Take heed, and be quiet; fear not, neither be fainthearted. -- Be still, and know that I am God. -- Said I not unto thee, that, if thou wouldest believe, thou shouldest see the glory of God? -- The loftiness of man shall be bowed down, and the haughtiness of men shall be made low: and the Lord alone shall be exalted in that day.
  
-If I regard iniquity in my heart, the Lord will not hear me.
+Mary ... sat at Jesus' feet, and heard his word. -- Mary hath chosen that good part, which shall not be taken away from her. -- In returning and rest shall ye be saved; in quietness and in confidence shall be your strength. -- Commune with your own heart upon your bed, and be still.
  
-Know ye not that a little leaven leaveneth the whole lump? Purge out therefore the old leaven, that ye may be a new lump, as ye are unleavened. For even Christ our passover is sacrificed for us: therefore let us keep the feast, not with old leaven, neither with the leaven of malice and wickedness; but with the unleavened bread of sincerity and truth. -- Let a man examine himself, and so let him eat of that bread, and drink of that cup.
+Rest in the LORD, and wait patiently for him: fret not thyself because of him who prospereth in his way, because of the man who bringeth wicked devices to pass.
  
-Let every one that nameth the name of Christ depart from iniquity. -- Such an high priest became us, who is holy, harmless, undefiled, separate from sinners. -- In him is no sin.  
+He shall not be afraid of evil tidings: his heart is fixed, trusting in the LORD. His heart is established.
+ 
+He that believeth shall not make haste.  
 
-**Exo 13:7; Prov 8:13; Rom 12:9; 1 Thes 5:22; Heb 12:15; Psa 66:18; 1 Cor 5:6-8; 1 Cor 11:28; 2 Tim 2:19; Heb 7:26; 1 John 3:5**
+**Ruth 3:18; Isa 7:8; Psa 46:10; John 11:40; Isa 2:17; Luke 10:39; Luke 10:42; Isa 30:15; Psa 4:4; Psa 37:7; Psa 112:7,8; Isa 28:16**
 
-[Saturday 03-September, 2022](https://t.me/daily_light)
+[Sunday 04-September, 2022](https://t.me/daily_light)
