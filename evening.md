@@ -1,15 +1,15 @@
 **Evening**
 
-**They that wait upon the Lord shall renew their strength. (Or, change strength.)**
+**Man goeth forth unto his work and to his labour until the evening.**
  
-When I am weak, then am I strong. -- God shall be my strength. -- He said unto me, My grace is sufficient for thee: for my strength is made perfect in weakness. Most gladly therefore will I rather glory in my infirmities, that the power of Christ may rest upon me. -- Let him take hold of my strength.
+In the sweat of thy face shalt thou eat bread, till thou return unto the ground. -- We commanded you, that if any would not work, neither should he eat. -- Study to be quiet, and to do your own business, and to work with your own hands.
  
-Cast thy burden upon the LORD, and he shall sustain thee. -- The arms of his hands were made strong by the hands of the mighty God of Jacob.
+Whatsoever thy hand findeth to do, do it with thy might; for there is no work, nor device, nor knowledge, nor wisdom, in the grave, whither thou goest. -- The night cometh when no man can work.
  
-I will not let thee go, except thou bless me.
+Let us not be weary in well doing: for in due season we shall reap, if we faint not. -- Always abounding in the work of the Lord forasmuch as ye know that your labour is not in vain in the Lord.
  
-Thou comest to me with a sword, and with a spear, and with a shield: but I come to thee in the name of the LORD of hosts, the God of the armies of Israel, whom thou hast defied. -- Plead my cause, O LORD, with them that strive with me: fight against them that fight against me. Take hold of shield and buckler, and stand up for mine help.  
+There remaineth ... a rest to the people of God. -- Unto us, which have borne the burden and heat of the day. -- This is the rest wherewith ye may cause the weary to rest; and this is the refreshing.  
 
-**Isa 40:31; 2 Cor 12:10; Isa 49:5; 2 Cor 12:9; Isa 27:5; Psa 55:22; Gen 49:24; Gen 32:26; 1 Sam 17:45; Psa 35:1,2**
+**Psa 104:23; Gen 3:19; 2 Thes 3:10; 1 Thes 4:11; Eccl 9:10; John 9:4; Gal 6:9; 1 Cor 15:58; Heb 4:9; Matt 20:12; Isa 28:12**
 
-[Saturday 10-September, 2022](https://t.me/daily_light)
+[Sunday 11-September, 2022](https://t.me/daily_light)

@@ -1,13 +1,15 @@
 **Morning**
 
-**I will give them one heart, and one way, that they may fear me forever, for the good of them, and of their children after them.**
+**Be not conformed to this world: but be ye transformed by the renewing of your mind.**
  
-A new heart ... will I give you and a new spirit will I put within you. -- Good and upright is the LORD: therefore will he teach sinners in the way. The meek will he guide in judgment: and the meek will he teach his way. All the paths of the LORD are mercy and truth unto such as keep his covenant and his testimonies.
+Thou shalt not follow a multitude to do evil.
  
-That they all may be one; as thou, Father, art in me, and I in thee, that they also may be one in us: that the world may believe that thou hast sent me.
+Know ye not that the friendship of the world is enmity with God? whosoever therefore will be a friend of the world is the enemy of God.
  
-I ... beseech you that ye walk worthy of the vocation wherewith ye are called, with all lowliness and meekness, ... endeavouring to keep the unity of the Spirit in the bond of peace. There is one body, and one Spirit, even as ye are called in one hope of your calling; one Lord, one faith, one baptism, one God and Father of all, who is above all, and through all, and in you all.  
+What fellowship hath righteousness with unrighteousness? and what com-munion hath light with darkness? And what concord hath Christ with Belial? or what part hath he that believeth with an infidel? And what agreement hath the temple of God with idols? -- Love not the world, neither the things that are in the world. If any man love the world, the love of the Father is not in him. The world passeth away, and the lust thereof, but he that doeth the will of God abideth for ever.
+ 
+In time past ye walked according to the course of this world, according to the prince of the power of the air, the spirit that now worketh in the children of disobedience. -- Ye have not so learned Christ; if so be that ye have heard him, ... as the truth is in Jesus.  
 
-**Jer 32:39; Ezek 36:26; Psa 25:8-10; John 17:21; Eph 4:1-6**
+**Rom 12:2; Exo 23:2; Jas 4:4; 2 Cor 6:14-16; 1 John 2:15,17; Eph 2:2; Eph 4:20,21**
 
-[Saturday 10-September, 2022](https://t.me/daily_light)
+[Sunday 11-September, 2022](https://t.me/daily_light)
