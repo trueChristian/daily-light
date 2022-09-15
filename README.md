@@ -1,34 +1,32 @@
 # Morning
 
-**I, even I, am he that comforteth you.**
+**Sin shall not have dominion over you: for ye are not under the law, but under grace.**
  
-Blessed be God, even the Father of our Lord Jesus Christ, the father of mercies, and the God of all comfort; who comforteth us in all our tribulation, that we may be able to comfort them which are in any trouble, by the comfort wherewith we ourselves are comforted of God. -- Like as a father pitieth his children, so the LORD pitieth them that fear him. For he knoweth our frame; he remembereth that we are dust. -- As one whom his mother comforteth, so will I comfort you. -- Casting all your care upon him, for he careth for you.
+What then? shall we sin, because we are not under the law, but under grace? God forbid. -- My brethren, ye ... are become dead to the law by the body of Christ; that ye should be married to another, even to him who is raised from the dead, that we should bring forth fruit unto God. -- Being not without law to God, but under the law to Christ. -- The sting of death is sin; and the strength of sin is the law. But thanks be to God, which giveth us the victory through our Lord Jesus Christ.
  
-Thou, O Lord, art a God full of compassion, and gracious, longsuffering, and plenteous in mercy and truth.
+The law of the Spirit of life in Christ Jesus hath made me free from the law of sin and death. -- Whosoever committeth sin is the servant of sin. -- If the Son ... shall make you free, ye shall be free indeed.
  
-Another Comforter ... even the Spirit of truth. -- The Spirit ... helpeth our infirmities.
- 
-God shall wipe away all tears from their eyes; and there shall be no more death, neither sorrow, nor crying, neither shall there be any more pain: for the former things are passed away.  
+Stand fast therefore in the liberty wherewith Christ hath made us free, and be not entangled again with the yoke of bondage.  
 
-**Isa 51:12; 2 Cor 1:3,4; Psa 103:3,14; Isa 66:13; 1 Pet 5:7; Psa 86:15; John 14:16,17; Rom 8:26; Rev 21:4**
+**Rom 6:14; Rom 6:15; Rom 7:4; 1 Cor 9:21; 1 Cor 15:56,57; Rom 8:2; John 8:34; John 8:36; Gal 5:1**
 
 # Evening
 
-**Ye were called unto the fellowship of his Son**.
+**A double minded man is unstable in all his ways.**
  
-He received from God the Father honour and glory, when there came such a voice to him from the excellent glory, This is my beloved Son, in whom I am well pleased. -- Behold, what manner of love the Father hath bestowed upon us, that we should be called the sons of God.
+No man, having put his hand to the plough and looking back, is fit for the kingdom of God.
  
-Be ye ... followers of God, as dear children. -- If children, then heirs; heirs of God, and joint heirs with Christ.
+He that cometh to God must believe that he is, and that he is a rewarder of them that diligently seek him. -- Let him ask in faith, nothing wavering. For he that wavereth is like a wave of the sea driven with the wind and tossed. For let not that man think that he shall receive anything of the Lord. -- What things soever ye desire, when ye pray, believe that ye receive them, and ye shall have them.
  
-The brightness of his glory, and the express image of his person. -- Let your light so shine before men, that they may see your good works, and glorify your Father which is in heaven.
+Be no more children, tossed to and fro, and carried about with every wind of doctrine, by the sleight of men, and cunning craftiness, whereby they lie in wait to deceive: but speaking the truth in love, ... grow up into him in all things which is the head, even Christ.
  
-Jesus the author and finisher of our faith; who for the joy that was set before him endured the cross, despising the shame. -- These things I speak in the world, that they might have my joy fulfilled in themselves. -- As the sufferings of Christ abound in us, so our consolation also aboundeth by Christ.  
+Abide in me. -- Be ye steadfast, unmoveable, always abounding in the work of the Lord, forasmuch as ye know that your labour is not in vain in the Lord.  
 
-**1 Cor 1:9; 2 Pet 1:17; 1 John 3:1; Eph 5:1; Rom 8:17; Heb 1:3; Matt 5:16; Heb 12:2; John 17:13; 2 Cor 1:5**
+**Jas 1:8; Luke 9:62; Heb 11:6; Jas 1:6,7; Mark 11:24; Eph 4:14,15; John 15:4; 1 Cor 15:58**
 
 ---
 
-[Wednesday 14-September, 2022](https://t.me/s/daily_light)
+[Thursday 15-September, 2022](https://t.me/s/daily_light)
 
 > Jonathan Bagster, the son of Samuel Bagster, created the Daily Light for his own family's daily devotion in 1875
 
