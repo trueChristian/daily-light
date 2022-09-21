@@ -1,17 +1,13 @@
 **Morning**
 
-**Happy is the man that findeth wisdom, and the man that getteth understanding. **
+**We know that all things work together for good to them that love God.**
  
-Whoso findeth me findeth life, and shall obtain favour of the LORD.
+Surely the wrath of man shall praise thee: the remainder of wrath shalt thou restrain. -- Ye thought evil against me: but God meant it unto good.
  
-Thus saith the LORD, Let not the wise man glory in his wisdom, neither let the mighty man glory in his might: ... but let him that glorieth glory in this, that he understandeth and knoweth me, that I am the LORD. -- The fear of the LORD is the beginning of wisdom.
+All things are your's; whether ... the world, or life, or death, or things present, or things to come; all are your's; and ye are Christ's; and Christ is God's. -- All things are for your sakes, that the abundant grace might through the thanksgiving of many redound to the glory of God. For which cause we faint not; but though our outward man perish, yet the inward man is renewed day by day. For our light affliction, which is but for a moment, worketh for us a far more exceeding and eternal weight of glory.
  
-What things were gain to me, those I counted loss for Christ. Yea doubtless, and I count all things but loss for the excellency of the knowledge of Christ Jesus my Lord: for whom I have suffered the loss of all things, and do count them but dung, that I may win Christ. -- In whom are hid all the treasures of wisdom and knowledge. -- Counsel is mine, and sound wisdom: I am understanding; I have strength.
- 
-Christ Jesus, ... is made unto us wisdom, and righteousness, and sanctifi-cation, and redemption.
- 
-He that winneth souls is wise.  
+My brethren, count it all joy when ye fall into divers temptations; knowing this, that the trying of your faith worketh patience. But let patience have her perfect work, that ye may be perfect and entire, wanting nothing.  
 
-**Prov 3:13; Prov 8:35; Jer 9:23,24; Prov 9:10; Phl 3:7,8; Col 2:3; Prov 8:14; 1 Cor 1:30; Prov 1:30**
+**Rom 8:28; Psa 76:10; Gen 50:20; 1 Cor 3:21-23; 2 Cor 4:15-17; Jas 1:2-4**
 
-[Tuesday 20-September, 2022](https://t.me/daily_light)
+[Wednesday 21-September, 2022](https://t.me/daily_light)
