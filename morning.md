@@ -2,12 +2,12 @@
 
 **It is good for me to draw near to God.**
  
-LORD,  I have loved the habitation of thy house, and the place where thine  honour dwelleth. -- A day in thy courts is better than a thousand. I had  rather be a door keeper in the house of my God, than to dwell in the  tents of wickedness. -- Blessed is the man whom thou choosest, and  causest to approach unto thee, that he may dwell in thy courts: we shall  be satisfied with the goodness of thy house, even of thy holy temple.
+LORD,  I have loved the habitation of thy house, and the place where thine  honour dwelleth. - A day in thy courts is better than a thousand. I had  rather be a door keeper in the house of my God, than to dwell in the  tents of wickedness. - Blessed is the man whom thou choosest, and  causest to approach unto thee, that he may dwell in thy courts: we shall  be satisfied with the goodness of thy house, even of thy holy temple.
  
-The  LORD is good unto them that wait for him, to the soul that seeketh him.  -- Therefore will the LORD wait that he may be gracious unto you, and  therefore will he be exalted that he may have mercy upon you: for the  LORD is a God of judgment: blessed are all they that wait for him.
+The  LORD is good unto them that wait for him, to the soul that seeketh him.  - Therefore will the LORD wait that he may be gracious unto you, and  therefore will he be exalted that he may have mercy upon you: for the  LORD is a God of judgment: blessed are all they that wait for him.
  
 Having  therefore, brethren, boldness to enter into the holiest by the blood of  Jesus, by a new and living way, which he hath consecrated for us: ...  let us draw near with a true heart in full assurance of faith, having  our hearts sprinkled from an evil conscience.  
 
 **Psa 73:28; Psa 26:8; Psa 84:10; Psa 65:4; Lam 3:25; Isa 30:18; Heb 10:19,20,22**
 
-[Saturday 24-September, 2022](https://t.me/daily_light)
+[Sunday 25-September, 2022](https://t.me/daily_light)
