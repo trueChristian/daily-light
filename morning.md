@@ -1,13 +1,11 @@
 **Morning**
 
-**They shall put my name upon the childen of Isael; and I will bless them.**
+**Hereby perceive we the love of God, because he laid down his life for us.**
  
-O LORD our God, other lords beside thee have had dominion over us: but by thee only will we make mention of thy name. -- We are thine: thou never barest rule over them; they were not called by thy name.
+The love of Christ, which passeth knowledge. -- Greater love hath no man than this, that a man lay down his life for his friends. Ye know the grace of our Lord Jesus Christ, that, though he was rich, yet for your sakes he became poor, that ye through his poverty might be rich. -- Beloved, if God so loved us, we ought also to love one another. -- Be ye kind one to another, tender-hearted, forgiving one another, even as God for Christ's sake hath forgiven you. -- Forbearing one another, and forgiving one another, if any man have a quarrel against any: even as Christ forgave you, so also do ye. -- For even the Son of man came not to be ministered unto, but to minister, and to give his life a ransom for many. -- Christ ... suffered for us, leaving us an example, that ye should follow his steps.
  
-All people of the earth shall see that thou art called by the name of the LORD; and they shall be afraid of thee. -- The LORD will not forsake his people for his great name's sake: because it hath pleased the LORD to make you his people.
- 
-O Lord, hear; O Lord, forgive; O Lord, hearken and do; defer not, for thine own sake, O my God: for thy city and thy people are called by thy name. -- Help us, O God of our salvation, for the glory of thy name: and deliver us, and purge away our sins, for thy name's sake. Wherefore should the heathen say, Where is their God? -- The name of the LORD is a strong tower; the righteous runneth into it, and is safe.  
+Ye also ought to wash one another’s feet. For I have given you an example, that ye should do as I have done to you. -- We ought to lay down our lives for the brethren.  
 
-**Num 6:27; Isa 26:13; Isa 63:19; Deut 28:10; 1 Sam 12:22; Dan 9:19; Psa 79:9,10; Prov 18:10**
+**1 John 3:16; Eph 3:19; John 15:13; 2 Cor 8:9; 1 John 4:11; Eph 4:32; Col 3:13; Mark 10:4,5; 1 Pet 2:21; John 13:14,15; 1 John 3:16**
 
-[Wednesday 28-September, 2022](https://t.me/daily_light)
+[Thursday 29-September, 2022](https://t.me/daily_light)
