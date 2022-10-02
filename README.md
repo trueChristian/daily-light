@@ -1,34 +1,26 @@
 # Morning
 
-**The fruit of the Spirit is temperance.**
+**The goat shall bear upon him all their iniquities unto a land not inhabited: and he shall let go the goat in the wilderness.**
  
-Every man that striveth for the mastery is temperate in all things. Now they do it to obtain a corruptible crown; but we an incorruptible. I therefore so run, not as uncertainly; so fight I, not as one that beateth the air: but I keep under my body, and bring it into subjection: lest that by any means, when I have preached to others, I myself should be a castaway.
+As far as the east is from the west, so far hath he removed our transgressions from us. -- In those days, and in that time, saith the LORD, the iniquity of Israel shall be sought for, and there shall be none; and the sins of Judah, and they shall not be found: for I will pardon them whom I reserve. -- Thou wilt cast all their sins into the depths of the sea. -- Who is a God like unto thee, that pardoneth iniquity?
  
-Be not drunk with wine, wherein is excess: but be filled with the Spirit.
- 
-If any man will come after me let him deny himself, and take up his cross, and follow me.
- 
-Let us not sleep, as do others: but let us watch and be sober. For they that sleep sleep in the night; and they that be drunken are drunken in the night. But let us, who are of the day, be sober. -- Denying ungodliness and worldly lusts, we should live soberly, righteously, and godly, in this present world: looking for that blessed hope, and the glorious appearing of the great God and our Saviour Jesus Christ.  
+All we like sheep have gone astray; we have turned every one to his own way; and the LORD hath laid on him the iniquity of us all. -- He shall bear their iniquities. Therefore will I divide him a portion with the great, and he shall divide the spoil with the strong, because he hath poured out his soul unto death; and he was numbered with the transgressors; and he bare the sin of many, and made intercession for the transgressors. -- The Lamb of God, which taketh away the sin of the world.  
 
-**Gal 5:22; 1 Cor 9:25-27; Eph 5:18; Matt 16:24; 1 Thes 5:6-8; Tit 2:12,13**
+**Lev 16:22; Psa 103:12; Jer 50:20; Mic 7:19; Mic 7:18; Isa 53:6; Isa 53:11,12; John 1:29**
 
 # Evening
 
-**Grow up into him in all things, which is the head, even Christ.**
+**Who maketh thee to differ from another? and what hast thou that thou didst not receive?**
  
-First the blade, then the ear, after that the full corn in the ear. -- Till we all come to the unity of the faith, and of the knowledge of the Son of God, unto a perfect man, unto the measure of the stature of the fulness of Christ.
+By the grace of God I am what I am. -- Of his own will begat he us with the word of truth. -- It is not of him that willeth, nor of him that runneth, but of God that sheweth mercy. -- Where is boasting then? It is excluded. -- Christ Jesus, ... is made unto us wisdom, and righteousness, and sanctification, and redemption: ... He that glorieth let him glory in the Lord.
  
-They measuring themselves by themselves, and comparing themselves among themselves, are not wise. But he that glorieth, let him glory in the Lord. For not he that commendeth himself is approved, but whom the Lord commendeth.
- 
-The body is of Christ. Let no man beguile you of your reward in a voluntary humility and worshipping of angels, intruding into those things which he hath not seen, vainly puffed up by his fleshly mind, and not holding the Head from which all the body by joints and bands, having nourishment ministered and knit together, increaseth with the increase of God.
- 
-Grow in grace, and in the knowledge of our Lord and Saviour Jesus Christ.  
+You hath he quickened, who were dead in trespasses and sins; wherein in time past ye walked according to the course of this world, according to the prince of the power of the air, the spirit that now worketh in the children of disobedience: among whom also we all had our conversation in times past in the lusts of our flesh, fulfilling the desires of the flesh and of the mind; and were by nature the children of wrath, even as others. -- Ye are washed, ... ye are sanctified, ... ye are justified in the name of the Lord Jesus, and by the Spirit of our God.  
 
-**Eph 4:15; Matt 4:28; Eph 4:13; 2 Cor 10:12,17,18; Col 2:17-19; 2 Pet 3:18**
+**1 Cor 4:7; 1 Cor 15:10; Jas 1:18; Rom 9:16; Rom 3:27; 1 Cor 1:30,31; Eph 2:1-3; 1 Cor 6:11**
 
 ---
 
-[Saturday 01-October, 2022](https://t.me/s/daily_light)
+[Sunday 02-October, 2022](https://t.me/s/daily_light)
 
 > Jonathan Bagster, the son of Samuel Bagster, created the Daily Light for his own family's daily devotion in 1875
 
