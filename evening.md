@@ -1,15 +1,15 @@
 **Evening**
 
-**What is the thing that the Lord hath said unto thee?**
+**O Lord God, ... with thy blessing let the house of thy servant be blessed for ever.**
  
-He hath shewed thee, O man, what is good; and what doth the LORD require of thee, but to do justly, and to love mercy, and to walk humbly with thy God? -- To keep the commandments of the LORD, and his statutes, which I command thee this day for thy good.
+Thou blessest, O LORD, and it shall be blessed for ever. -- The blessing of the LORD, it maketh rich, and he addeth no sorrow with it.
  
-As many as are of the works of the law are under the curse: for it is written, Cursed is every one that continueth not in all things which are written in the book of the law to do them. But that no man is justified by the law in the sight of God, it is evident: for The just shall live by faith. Wherefore then serveth the law? It was added because of transgressions, till the seed should come to whom the promise was made.
+Remember the words of the Lord Jesus, how he said, It is more blessed to give than to receive. -- When thou makest a feast call the poor, the maimed, the lame, the blind: and thou shalt be blessed; for they cannot recompense thee: for thou shalt be recompensed at the resurrection of the just. -- Come, ye blessed of my Father, inherit the kingdom prepared for you from the foundation of the world: for I was an hungred, and ye gave me meat: I was thirsty, and ye gave me drink: I was a stranger, and took me in: naked, and ye clothed me: I was sick, and ye visited me: I was in prison, and ye came unto me.
  
-God, who at sundry times and in divers manners spake in time past unto the fathers by the prophets, hath in these last days spoken unto us by his Son.
+Blessed is he that considereth the poor: the LORD will deliver him in time of trouble.
  
-Speak, LORD; for thy servant heareth.  
+The LORD God is a sun and shield.  
 
-**1 Sam 3:17; Mic 6:8; Deut 10:13; Gal 3:10,11,19; Heb 1:1,2; 1 Sam 3:9**
+**2 Sam 7:29; 1 Chr 17:27; Prov 10:22; Acts 20:35; Luke 14:13,14; Matt 25:34-36; Psa 41:1; Psa 84:11**
 
-[Thursday 06-October, 2022](https://t.me/daily_light)
+[Friday 07-October, 2022](https://t.me/daily_light)
