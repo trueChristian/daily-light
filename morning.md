@@ -1,19 +1,13 @@
 **Morning**
 
-**The meek will he teach his way.**
+**I will not fear what man shall do unto me.**
  
-Blessed are the meek.
+Who shall separate us from the love of Christ? shall tribulation, or distress, or persecution, or famine, or nakedness, or peril, or sword? Nay, in all these things we are more than conquerors through him that loved us.
  
-I returned, and saw under the sun, that the race is not to the swift, nor the battle to the strong, neither yet bread to the wise, nor yet riches to men of understanding, nor yet favour to men of skill. -- A man's heart deviseth his way: but the LORD directeth his steps.
+Be not afraid of them that kill the body, and after that have no more that they can do. But I will forewarn you whom ye shall fear: Fear him, which after he hath killed hath power to cast into hell: yea, I say unto you, Fear him.
  
-Unto thee lift I up mine eyes, O Thou that dwellest in the heavens. Behold, as the eyes of servants look unto the hand of their masters, and as the eyes of a maiden unto the hand of her mistress; so our eyes wait upon the LORD our God. -- Cause me to know the way wherein I should walk; for I lift up my soul unto thee.
- 
-O our God, wilt thou not judge them? for we have no might against this great company that cometh against us; neither know we what to do: but our eyes are upon thee.
- 
-If any of you lack wisdom, let him ask of God, that giveth to all men liberally, and upbraideth not; and it shall be given him.
- 
-When he, the Spirit of truth, is come, he will guide you into all truth.  
+Blessed are they which are persecuted for righteousness' sake: for their's is the kingdom of heaven. Blessed are ye, when men shall revile you and persecute you, and shall say all manner of evil against you falsely, for my sake. Rejoice, and be exceeding glad: for great is your reward in heaven. -- None of these things move me, neither count I my life dear unto myself, so that I might finish my course with joy. -- I will speak of thy testimonies ... before kings, and will not be ashamed.  
 
-**Psa 25:9; Matt 5:5; Eccl 9:11; Prov 16:9; Psa 123:1,2; Psa 143:8; 2 Chr 20:12; Jas 1:5; John 16:13**
+**Heb 13:6; Rom 8:35,37; Luke 12:4,5; Matt 5:10-12; Acts 20:24; Psa 119:46**
 
-[Friday 07-October, 2022](https://t.me/daily_light)
+[Saturday 08-October, 2022](https://t.me/daily_light)
