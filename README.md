@@ -1,30 +1,34 @@
 # Morning
 
-**Thou art a God ready to pardon, gracious and merciful.**
+**The whole family in heaven and earth.**
  
-The Lord is not slack concerning his promise, as some men count slackness; but is longsuffering to us ward, not willing that any should perish, but that all should come to repentance. -- The longsuffering of our Lord is salvation.
+One God and Father of all, who is above all, and through all, and in you all. -- Ye are all the children of God by faith in Christ Jesus. -- That in the dispensation of the fulness of times, he might gather together in one all things in Christ, both which are in heaven, and which are on earth; even in him.
  
-For this cause I obtained mercy, that in me first Jesus Christ might shew forth all longsuffering for a pattern to them which should hereafter believe on him to life everlasting. -- Whatsoever things were written aforetime were written for our learning, that we through patience and comfort of the scriptures might have hope.
+He is not ashamed to call them brethren. -- Behold my mother and my brethren! Whosoever shall do the will of my Father which is in heaven, the same is my brother, and sister, and mother. -- Go to my brethren, and say unto them, I ascend unto my Father, and your Father.
  
-Despisest thou the riches of his goodness and forbearance and longsuffering; not knowing that the goodness of God leadeth thee to repentance? -- Rend your heart, and not your garments, and turn unto the LORD your God: for he is gracious and merciful, slow to anger, and of great kindness, and repenteth him of the evil.  
+I saw under the altar the souls of them that were slain for the word of God, and for the testimony which they held: ... and white robes were given unto every one of them; and it was said unto them, that they should rest for a little season, until their fellow servants also and their brethren, that should be killed as they were, should be fulfilled. -- That they without us should not be made perfect.  
 
-**Neh 9:17; 2 Pet 3:9; 2 Pet 3:15; 1 Tim 1:16; Rom 15:4; Rom 2:4; Joel 2:13**
+**Eph 3:15; Eph 4:6; Gal 3:26; Eph 1:10; Heb 2:11; Matt 12:49,50; John 20:17; Rev 6:9-11; Heb 11:40**
 
 # Evening
 
-**The words of the Lord are pure words.**
+**After this manner ... pray ye: Our Father which art in heaven.**
  
-Thy word is very pure: therefore thy servant loveth it. -- The statutes of the LORD are right, rejoicing the heart: the commandment of the LORD is pure, enlightening the eyes. -- Every word of God is pure: he is a shield unto them that put their trust in him. Add thou not unto his words, lest he reprove thee, and thou be found a liar.
+Jesus lifted up his eyes to heaven, and said, Father. -- My Father, and your Father.
  
-Thy word have I hid in mine heart, that I might not sin against thee. I will meditate in thy precepts, and have respect unto thy ways. -- Brethren, whatsoever things are true, whatsoever things are honest, whatsoever things are just, whatsoever things are pure, whatsoever things are lovely, whatsoever things are of good report, if there be any virtue, and if there be any praise, think on these things. -- As newborn babes, desire the sincere milk of the word that ye may grow thereby.
+Ye are all the children of God by faith in Christ Jesus. -- Ye have not received the spirit of bondage again to fear; but ye have received the Spirit of adoption, whereby we cry, Abba, Father. The Spirit itself beareth witness with our spirit, that we are the children of God.
  
-We are not as many, which corrupt the word of God: but as of sincerity, but as of God, in the sight of God speak we in Christ. -- Nor handling the word of God deceitfully.  
+Because ye are sons, God hath sent forth the Spirit of his Son into your hearts, crying, Abba, Father. Wherefore thou art no more a servant, but a son.
+ 
+Verily, verily, I say unto you, Whatsoever ye shall ask the Father in my name, he will give it you. Hitherto have ye asked nothing in my name: ask, and ye shall receive, that your joy may be full.
+ 
+I will receive you, and will be a Father unto you, and ye shall be my sons and daughters, saith the Lord Almighty.  
 
-**Psa 12:6; Psa 119:140; Psa 19:8; Prov 30:5,6; Psa 119:11,15; Phl 4:8; 1 Pet 2:2; 2 Cor 2:17; 2 Cor 4:2**
+**Matt 6:9; John 17:1; John 20:17; Gal 3:26; Rom 8:15,16; Gal 4:6,7; John 16:23,24; 2 Cor 6:17,18**
 
 ---
 
-[Sunday 09-October, 2022](https://t.me/s/daily_light)
+[Monday 10-October, 2022](https://t.me/s/daily_light)
 
 > Jonathan Bagster, the son of Samuel Bagster, created the Daily Light for his own family's daily devotion in 1875
 

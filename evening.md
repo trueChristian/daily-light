@@ -1,13 +1,17 @@
 **Evening**
 
-**The words of the Lord are pure words.**
+**After this manner ... pray ye: Our Father which art in heaven.**
  
-Thy word is very pure: therefore thy servant loveth it. -- The statutes of the LORD are right, rejoicing the heart: the commandment of the LORD is pure, enlightening the eyes. -- Every word of God is pure: he is a shield unto them that put their trust in him. Add thou not unto his words, lest he reprove thee, and thou be found a liar.
+Jesus lifted up his eyes to heaven, and said, Father. -- My Father, and your Father.
  
-Thy word have I hid in mine heart, that I might not sin against thee. I will meditate in thy precepts, and have respect unto thy ways. -- Brethren, whatsoever things are true, whatsoever things are honest, whatsoever things are just, whatsoever things are pure, whatsoever things are lovely, whatsoever things are of good report, if there be any virtue, and if there be any praise, think on these things. -- As newborn babes, desire the sincere milk of the word that ye may grow thereby.
+Ye are all the children of God by faith in Christ Jesus. -- Ye have not received the spirit of bondage again to fear; but ye have received the Spirit of adoption, whereby we cry, Abba, Father. The Spirit itself beareth witness with our spirit, that we are the children of God.
  
-We are not as many, which corrupt the word of God: but as of sincerity, but as of God, in the sight of God speak we in Christ. -- Nor handling the word of God deceitfully.  
+Because ye are sons, God hath sent forth the Spirit of his Son into your hearts, crying, Abba, Father. Wherefore thou art no more a servant, but a son.
+ 
+Verily, verily, I say unto you, Whatsoever ye shall ask the Father in my name, he will give it you. Hitherto have ye asked nothing in my name: ask, and ye shall receive, that your joy may be full.
+ 
+I will receive you, and will be a Father unto you, and ye shall be my sons and daughters, saith the Lord Almighty.  
 
-**Psa 12:6; Psa 119:140; Psa 19:8; Prov 30:5,6; Psa 119:11,15; Phl 4:8; 1 Pet 2:2; 2 Cor 2:17; 2 Cor 4:2**
+**Matt 6:9; John 17:1; John 20:17; Gal 3:26; Rom 8:15,16; Gal 4:6,7; John 16:23,24; 2 Cor 6:17,18**
 
-[Sunday 09-October, 2022](https://t.me/daily_light)
+[Monday 10-October, 2022](https://t.me/daily_light)

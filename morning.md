@@ -1,13 +1,13 @@
 **Morning**
 
-**Thou art a God ready to pardon, gracious and merciful.**
+**The whole family in heaven and earth.**
  
-The Lord is not slack concerning his promise, as some men count slackness; but is longsuffering to us ward, not willing that any should perish, but that all should come to repentance. -- The longsuffering of our Lord is salvation.
+One God and Father of all, who is above all, and through all, and in you all. -- Ye are all the children of God by faith in Christ Jesus. -- That in the dispensation of the fulness of times, he might gather together in one all things in Christ, both which are in heaven, and which are on earth; even in him.
  
-For this cause I obtained mercy, that in me first Jesus Christ might shew forth all longsuffering for a pattern to them which should hereafter believe on him to life everlasting. -- Whatsoever things were written aforetime were written for our learning, that we through patience and comfort of the scriptures might have hope.
+He is not ashamed to call them brethren. -- Behold my mother and my brethren! Whosoever shall do the will of my Father which is in heaven, the same is my brother, and sister, and mother. -- Go to my brethren, and say unto them, I ascend unto my Father, and your Father.
  
-Despisest thou the riches of his goodness and forbearance and longsuffering; not knowing that the goodness of God leadeth thee to repentance? -- Rend your heart, and not your garments, and turn unto the LORD your God: for he is gracious and merciful, slow to anger, and of great kindness, and repenteth him of the evil.  
+I saw under the altar the souls of them that were slain for the word of God, and for the testimony which they held: ... and white robes were given unto every one of them; and it was said unto them, that they should rest for a little season, until their fellow servants also and their brethren, that should be killed as they were, should be fulfilled. -- That they without us should not be made perfect.  
 
-**Neh 9:17; 2 Pet 3:9; 2 Pet 3:15; 1 Tim 1:16; Rom 15:4; Rom 2:4; Joel 2:13**
+**Eph 3:15; Eph 4:6; Gal 3:26; Eph 1:10; Heb 2:11; Matt 12:49,50; John 20:17; Rev 6:9-11; Heb 11:40**
 
-[Sunday 09-October, 2022](https://t.me/daily_light)
+[Monday 10-October, 2022](https://t.me/daily_light)
