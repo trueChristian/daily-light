@@ -1,34 +1,32 @@
 # Morning
 
-**One of the soldiers with a spear pierced his side, and forthwith came there out blood and water.**
+**The Lord shall be thy confidence, and shall keep thy foot from being taken.**
  
-Behold the blood of the covenant, which the LORD hath made with you. -- The life of the flesh is in the blood: and I have given it to you upon the altar to make an atonement for your souls. -- It is not possible that the blood of bulls and of goats should take away sins.
+Surely the wrath of man shall praise thee: the remainder of wrath shalt thou restrain. -- The king's heart is in the hand of the LORD, as the rivers of water: he turneth it whithersoever he will. -- When a man's ways please the LORD, he maketh even his enemies to be at peace with him.
  
-Jesus said unto them, This is my blood of the new testament, which is shed for many. -- By his own blood he entered in once into the holy place, having obtained eternal redemption for us. -- Peace through the blood of his cross.
+I wait for the LORD, my soul doth wait, and in his word do I hope. My soul waiteth for the Lord more than they that wait for the morning: I say, more than they that watch for the morning. -- I sought the LORD, and he heard me, and delivered me from all my fears.
  
-Ye know that ye were not redeemed with corruptible things, as silver and gold, ... but with the precious blood of Christ, as of a lamb without blemish and without spot, ... manifest in these last times for you.
+The eternal God is thy refuge, and underneath are the everlasting arms: and he shall thrust out the enemy from before thee; and shall say, Destroy them. -- Blessed is the man that trustesth in the LORD, and whose hope the LORD is.
  
-Then will I sprinkle clean water upon you and ye shall be clean: ... from all your idols, will I cleanse you. -- Let us draw near with a true heart in full assurance of faith, having our hearts sprinkled from an evil conscience.  
+What shall we then say to these things? If God be for us, who can be against us?  
 
-**John 19:34; Exo 24:8; Lev 17:11; Heb 10:4; Mark 14:24; Heb 9:12; Col 1:20; 1 Pet 1:18-20; Ezek 36:25; Heb 10:22**
+**Prov 3:26; Psa 76:10; Prov 21:1; Prov 16:7; Psa 130:5,6; Psa 34:4; Deut 33:27; Jer 17:7; Rom 8:31**
 
 # Evening
 
-**Amen.**
+**Consolation in Christ, ... comfort of love, ... fellowship of the Spirit.**
  
-Amen: the LORD God ... say so too. -- He who blesseth himself in the earth shall bless himself in the God of truth (Heb. The Amen) and he that sweareth in the earth shall swear by the God of truth (The Amen).
+Man that is born of a woman is of few days, and full of trouble. He cometh forth like a flower, and is cut down; he fleeth also as a shadow, and con-tinueth not. -- My flesh and my heart faileth: but God is the strength of my heart, and my portion for ever.
  
-When God made promise to Abraham, because he could swear by no greater, he sware by himself. For men verily swear by the greater: and an oath for confirmation is to them an end of all strife. Wherein God, willing more abundantly to shew unto the heirs of promise the immutability of his counsel, confirmed it by an oath: that by two immutable things, in which it was impossible for God to lie, we might have a strong consolation, who have fled for refuge to lay hold upon the hope set before us.
+The Father ... shall give you another Comforter, that he may abide with you for ever: the Holy Ghost, whom the Father will send in my name. -- Blessed be God, even the Father of our Lord Jesus Christ, the Father of mercies, and the God of all comfort; who comforteth us in all our tribulation, that we may be able to comfort them which are in any trouble, by the comfort wherewith we ourselves are comforted of God.
  
-These things saith the Amen, the faithful and true witness. -- For all the promises of God in him are yea, and in him Amen, unto the glory of God by us.
- 
-Blessed be the LORD God, the God of Israel, who only doeth wondrous things. And blessed be his glorious name for ever. Amen, and Amen.  
+If we believe that Jesus died and rose again, even so them which sleep in Jesus will God bring with him. And so shall we ever be with the Lord. Wherefore comfort one another with these words.  
 
-**Matt 6:13; 1 Kgs 1:36; Isa 65:16; Heb 6:13,16-18; Rev 3:14; 2 Cor 1:20; Psa 72:18,19**
+**Phl 2:1; Job 14:1,2; Psa 73:26; John 14:16,26; 2 Cor 1:3,4; 1 Thes 4:14,17,18**
 
 ---
 
-[Tuesday 18-October, 2022](https://t.me/s/daily_light)
+[Wednesday 19-October, 2022](https://t.me/s/daily_light)
 
 > Jonathan Bagster, the son of Samuel Bagster, created the Daily Light for his own family's daily devotion in 1875
 

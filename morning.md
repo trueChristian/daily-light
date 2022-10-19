@@ -1,15 +1,15 @@
 **Morning**
 
-**One of the soldiers with a spear pierced his side, and forthwith came there out blood and water.**
+**The Lord shall be thy confidence, and shall keep thy foot from being taken.**
  
-Behold the blood of the covenant, which the LORD hath made with you. -- The life of the flesh is in the blood: and I have given it to you upon the altar to make an atonement for your souls. -- It is not possible that the blood of bulls and of goats should take away sins.
+Surely the wrath of man shall praise thee: the remainder of wrath shalt thou restrain. -- The king's heart is in the hand of the LORD, as the rivers of water: he turneth it whithersoever he will. -- When a man's ways please the LORD, he maketh even his enemies to be at peace with him.
  
-Jesus said unto them, This is my blood of the new testament, which is shed for many. -- By his own blood he entered in once into the holy place, having obtained eternal redemption for us. -- Peace through the blood of his cross.
+I wait for the LORD, my soul doth wait, and in his word do I hope. My soul waiteth for the Lord more than they that wait for the morning: I say, more than they that watch for the morning. -- I sought the LORD, and he heard me, and delivered me from all my fears.
  
-Ye know that ye were not redeemed with corruptible things, as silver and gold, ... but with the precious blood of Christ, as of a lamb without blemish and without spot, ... manifest in these last times for you.
+The eternal God is thy refuge, and underneath are the everlasting arms: and he shall thrust out the enemy from before thee; and shall say, Destroy them. -- Blessed is the man that trustesth in the LORD, and whose hope the LORD is.
  
-Then will I sprinkle clean water upon you and ye shall be clean: ... from all your idols, will I cleanse you. -- Let us draw near with a true heart in full assurance of faith, having our hearts sprinkled from an evil conscience.  
+What shall we then say to these things? If God be for us, who can be against us?  
 
-**John 19:34; Exo 24:8; Lev 17:11; Heb 10:4; Mark 14:24; Heb 9:12; Col 1:20; 1 Pet 1:18-20; Ezek 36:25; Heb 10:22**
+**Prov 3:26; Psa 76:10; Prov 21:1; Prov 16:7; Psa 130:5,6; Psa 34:4; Deut 33:27; Jer 17:7; Rom 8:31**
 
-[Tuesday 18-October, 2022](https://t.me/daily_light)
+[Wednesday 19-October, 2022](https://t.me/daily_light)
