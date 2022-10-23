@@ -1,15 +1,13 @@
 **Morning**
 
-**O God, my heart is fixed.**
+**A man's life consisteth not in the abundance of the things which he possesseth.**
  
-The Lord is my light and my salvation; whom shall I fear? the LORD is the strength of my life; of whom shall I be afraid?
+A little that a righteous man hath is better than the riches of many wicked. -- Better is little with the fear of the LORD than great treasure and trouble therewith. -- Godliness with contentment is great gain. Having food and raiment let us be therewith content.
  
-Thou wilt keep him in perfect peace, whose mind is stayed on thee: because he trusteth in thee. -- He shall not be afraid of evil tidings: his heart is fixed, trusting in the LORD. His heart is established, he shall not be afraid, until he see his desire upon his enemies.
+Give me neither poverty nor riches; feed me with food convenient for me: lest I be full, and deny thee, and say, Who is the LORD? or lest I be poor, and steal, and take the name of my God in vain. -- Give us this day our daily bread.
  
-What time I am afraid, I will trust in thee. -- In the time of trouble he shall hide me in his pavilion: in the secret of his tabernacle shall he hide me; he shall set me up upon a rock. And now shall mine head be lifted up above mine enemies round about me: therefore will I offer in his tabernacle sacrifices of joy: I will sing, yea, I will sing praises unto the LORD.
- 
-The God of all grace, who hath called us unto his eternal glory by Christ Jesus, after that ye have suffered awhile, make you perfect, stablish, strength-en, settle you. To him be glory and dominion for ever and ever.  
+Take no thought for your life, what ye shall eat, or what ye shall drink; nor yet for your body, what ye shall put on. Is not the life more than meat, and the body than raiment? -- When I sent you without purse, and scrip, and shoes, lacked ye any thing? And they said, Nothing. -- Let your conversation be without covetousness: and be content with such things as ye have: for he hath said, I will never leave thee, nor forsake thee.  
 
-**Psa 108:1; Psa 27:1; Isa 26:3; Psa 112:7,8; Psa 56:3; Psa 27:5,6; 1 Pet 5:10,11**
+**Luke 12:15; Psa 37:16; Prov 15:16; 1 Tim 6:6,8; Prov 30:8,9; Matt 6:11; Matt 6:25; Luke 22:35; Heb 13:5**
 
-[Saturday 22-October, 2022](https://t.me/daily_light)
+[Sunday 23-October, 2022](https://t.me/daily_light)
