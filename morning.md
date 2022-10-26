@@ -1,13 +1,13 @@
 **Morning**
 
-**Lo, I am with you alway, even unto the end of the world.**
+**The Lord reigneth.**
  
-If two of you shall agree on earth as touching any thing that they shall ask, it shall be done for them of my Father which is in heaven. For where two or three are gathered together in my name, there am I in the midst of them. -- He that hath my commandments, and keepeth them, he it is that loveth me: and he that loveth me shall be loved of my Father, and I will love him, and will manifest myself to him.
+Fear ye not me? saith the LORD: will ye not tremble at my presence, which have placed the sand for the bound of the sea by a perpetual decree, that it cannot pass it: and though the waves thereof toss themselves, yet can they not prevail; though they roar, yet can they not pass over it? -- Promotion cometh neither from the east, nor from the west, nor from the south. But God is the judge: he putteth down one, and setteth up another.
  
-Lord, how is it that thou wilt manifest thyself unto us, and not unto the world? ... If a man love me, he will keep my words: and my Father will love him, and we will come unto him, and make our abode with him.
+He changeth the times and the seasons: he removeth kings, and setteth up kings: he giveth wisdom unto the wise, and knowledge to them that know understanding. -- Ye shall hear of wars and rumours of wars: see that ye be not troubled.
  
-Unto him that is able to keep you from falling, and to present you faultless before the presence of his glory with exceeding joy, to the only wise God our Saviour, be glory and majesty, dominion and power, both now and ever. Amen.  
+If God be for us, who can be against us? -- Are not two sparrows sold for a farthing? and one of them shall not fall on the ground without your Father. The very hairs of your head are all numbered. Fear ye not therefore, ye are of more value than many sparrows.  
 
-**Matt 28:20; Mark 18:19,20; John 14:21; John 14:22,23; Jude 24,25**
+**Psa 99:1; Jer 5:22; Psa 75:6,7; Dan 2:21; Matt 24:6; Rom 8:31; Matt 10:29-31**
 
-[Tuesday 25-October, 2022](https://t.me/daily_light)
+[Wednesday 26-October, 2022](https://t.me/daily_light)
