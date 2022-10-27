@@ -1,13 +1,11 @@
 **Morning**
 
-**The Lord reigneth.**
+**Himself took our infirmities, and bare our sicknesses.**
  
-Fear ye not me? saith the LORD: will ye not tremble at my presence, which have placed the sand for the bound of the sea by a perpetual decree, that it cannot pass it: and though the waves thereof toss themselves, yet can they not prevail; though they roar, yet can they not pass over it? -- Promotion cometh neither from the east, nor from the west, nor from the south. But God is the judge: he putteth down one, and setteth up another.
+Then shall the priest command to take for him that is to be cleansed two birds alive and clean, and cedar wood, and scarlet, and hyssop: and the priest shall command that one of the birds be killed in an earthen vessel over running water: as for the living bird, he shall take it, and the cedar wood, and the scarlet, and the hyssop, and shall dip them and the living bird in the blood of the bird that was killed over the running water: and he shall sprinkle upon him that is to be cleansed from the leprosy seven times, and shall pronounce him clean, and shall let the living bird loose into the open field.
  
-He changeth the times and the seasons: he removeth kings, and setteth up kings: he giveth wisdom unto the wise, and knowledge to them that know understanding. -- Ye shall hear of wars and rumours of wars: see that ye be not troubled.
- 
-If God be for us, who can be against us? -- Are not two sparrows sold for a farthing? and one of them shall not fall on the ground without your Father. The very hairs of your head are all numbered. Fear ye not therefore, ye are of more value than many sparrows.  
+Behold a man full of leprosy: who seeing Jesus fell on his face, and besought him, saying, Lord, if thou wilt, thou canst make me clean. -- And Jesus, moved with compassion, put forth his hand, and touched him, and saith unto him, I will; be thou clean. And as soon as he had spoken, immediately the leprosy departed from him, and he was cleansed.  
 
-**Psa 99:1; Jer 5:22; Psa 75:6,7; Dan 2:21; Matt 24:6; Rom 8:31; Matt 10:29-31**
+**Matt 8:17; Lev 14:4-7; Luke 5:12; Mark 1:41,42**
 
-[Wednesday 26-October, 2022](https://t.me/daily_light)
+[Thursday 27-October, 2022](https://t.me/daily_light)
