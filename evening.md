@@ -1,13 +1,13 @@
 **Evening**
 
-**The Enemy.**
+**David encouraged himself in the Lord his God.**
  
-Be sober, be vigilant; because your adversary the devil, as a roaring lion, walketh about, seeking whom he may devour. -- Resist the devil, and he will flee from you.
+Lord, to whom shall we go? thou hast the words of eternal life. -- I know whom I have believed, and am persuaded that he is able to keep that which I have committed unto him against that day.
  
-Put on the whole armour of God, that ye may be able to stand against the wiles of the devil. For we wrestle not against flesh and blood, but against principalities, against powers, against the rulers of the darkness of this world, against spiritual wickedness in high places. Wherefore take unto you the whole armour of God, that ye may be able to withstand in the evil day, and having done all, to stand. Stand therefore having your loins girt about with truth, and having on the breastplate of righteousness; and your feet shod with the preparation of the gospel of peace; above all, taking the shield of faith, wherewith ye shall be able to quench all the fiery darts of the wicked.
+In my distress I called upon the LORD, and cried unto my God: he heard my voice out of his temple, and my cry came before him, even into his ears. They prevented me in the day of my calamity: but the LORD was my stay. He brought me forth also into a large place; he delivered me, because he delighted in me.
  
-Rejoice not against me, O mine enemy: when I fall, I shall arise; when I sit in darkness, the LORD shall be a light unto me.  
+I will bless the LORD at all times: his praise shall continually be in my mouth. My soul shall make her boast in the LORD: the humble shall hear thereof, and be glad. O magnify the LORD with me, and let us exalt his name together. I sought the LORD, and he heard me, and delivered me from all my fears. O taste and see that the LORD is good: blessed is the man that trusteth in him.  
 
-**Luke 10:19; 1 Pet 5:8; Jas 4:7; Eph 6:11-16; Mic 7:8**
+**1 Sam 30:6; John 6:68; 2 Tim 1:12; Psa 18:6,18,19; Psa 34:1-4,8**
 
-[Friday 28-October, 2022](https://t.me/daily_light)
+[Saturday 29-October, 2022](https://t.me/daily_light)
