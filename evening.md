@@ -1,17 +1,13 @@
 **Evening**
 
-**How wilt thou do in the swellings of Jordan?**
+**We are his workmanship.**
  
-For Jordan overfloweth all his banks all the time of harvest.
+They brought great stones, costly stones, and hewed stones, to lay the foundation of the house. -- The house, when it was in building, was built of stone made ready before it was brought thither: so that there was neither hammer nor axe nor any tool of iron heard in the house, while it was in building.
  
-The priests that bare the ark of the covenant of the LORD stood firm on dry ground in the midst of Jordan, and all the Israelites passed over on dry ground, until all the people were passed clean over Jordan.
+Ye also, as lively stones, are built up a spiritual house. -- Built upon the foundation of the apostles and prophets, Jesus Christ himself being the chief corner stone; in whom all the building fitly framed together groweth unto an holy temple in the Lord: in whom ye also are builded together for an habitation of God through the Spirit. -- Which in time past were not a people, but are now the people of God.
  
-We see Jesus, who was made a little lower than the angels, for the suffering of death, crowned with glory and honour; that he by the grace of God should taste death for every man.
- 
-Though I walk through the valley of the shadow of death, I will fear no evil: for thou art with me; thy rod and thy staff they comfort me. -- When thou passest through the waters, I will be with thee; and through the rivers, they shall not overflow thee.
- 
-Fear not; I am the first and the last: I am he that liveth, and was dead; and, behold, I am alive for evermore, Amen; and have the keys of hell and of death.  
+Ye are God's building. -- Therefore if any man be in Christ, he is a new creature: old things are passed away; behold, all things are become new. -- Now he that hath wrought us for the selfsame thing is God, who also hath given unto us the eamest of the Spirit.  
 
-**Jer 12:5; Josh 3:15; Josh 3:17; Heb 2:9; Psa 23:4; Isa 43:2; Rev 1:17,18**
+**Eph 2:10; 1 Kgs 5:17; 1 Kgs 6:7; 1 Pet 2:5; Eph 2:20-22; 1 Pet 2:10; 1 Cor 3:9; 2 Cor 5:17; 2 Cor 5:5**
 
-[Monday 14-November, 2022](https://t.me/daily_light)
+[Tuesday 15-November, 2022](https://t.me/daily_light)
