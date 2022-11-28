@@ -1,11 +1,11 @@
 **Morning**
 
-**The glory which thou gavest me I have given them.**
+**As the body without the spirit is dead, so faith without works is dead also.**
  
-I saw ... the Lord sitting upon a throne, high and lifted up, and his train filled the temple. Above it stood the seraphims. And one cried unto another, and said, Holy, holy, holy, is the LORD of hosts; the whole earth is full of his glory. -- These things said Esaias, when he saw his glory, and spake of him. -- Upon the likeness of the throne was the likeness ... of a man above upon it. As the appearance of the bow that is in the cloud in the day of rain, so was the appearance of the brightness round about. This was the appearance of the likeness of the glory of the LORD.
+Not every one that saith, ... Lord, Lord, shall enter into the kingdom of heaven; but he that doeth the will of my Father which is in heaven. -- Holiness, without which no man shall see the Lord. -- Add to your faith virtue; and to virtue knowledge; and to knowledge temperance; and to temperance patience; and to patience godliness; and to godliness brotherly kindness; and to brotherly kindness charity. For if these things be in you, and abound, they make you that ye shall neither be barren nor unfruitful in the knowledge of our Lord Jesus Christ. But he that lacketh these things is blind, and cannot see afar off, and hath forgotten that he was purged from his old sins. Wherefore the rather, brethren, give diligence to make your calling and election sure: for if ye do these things, ye shall never fall.
  
-I beseech thee, shew me thy glory. And he said, Thou canst not see my face: for there shall no man see me, and live. -- No man hath seen God at any time; the only begotten Son, which is in the bosom of the Father, he hath declared him. -- God, who commanded the light to shine out of darkness, hath shined in our hearts, to give the light of the knowledge of the glory of God in the face of Jesus Christ.  
+By grace are ye saved through faith; and that not of yourselves; it is the gift of God: not of works, lest any man should boast.  
 
-**John 17:22; Isa 6:1-3; John 12:41; Ezek 1:26,28; Exo 33:18,20; John 1:18; 2 Cor 4:6**
+**Jas 2:26; Matt 7:21; Heb 12:14; 2 Pet 1:5-10; Eph 2:8,9**
 
-[Sunday 27-November, 2022](https://t.me/daily_light)
+[Monday 28-November, 2022](https://t.me/daily_light)
