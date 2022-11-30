@@ -1,15 +1,15 @@
 **Morning**
 
-**We shall be satisfied with the goodness of thy house.**
+**The Lord of peace himself give you peace always by all means. The Lord be with you all.**
  
-One thing have I desired of the LORD, that will I seek after; that I may dwell in the house of the LORD all the days of my life, to behold the beauty of the LORD, and to enquire in his temple.
+Peace, from him which is, and which was, and which is to come. -- The peace of God, which passeth all understanding, shall keep your hearts and minds through Christ Jesus.
  
-Blessed are they which do hunger and thirst after righteousness: for they shall be filled. -- He hath filled the hungry with good things; and the rich he hath sent empty away.
+Jesus himself stood in the midst of them, and saith unto them, Peace be unto you. -- Peace I leave with you, my peace I give unto you: not as the world giveth, give I unto you. Let not your heart be troubled, neither let it be afraid.
  
-He satisfieth the longing soul, and filleth the hungry soul with goodness. -- I am the bread of life: he that cometh to me shall never hunger; and he that believeth on me shall never thirst.
+The Comforter ... even the Spirit of truth. -- The fruit of the Spirit is love, joy, peace. -- The Spirit itself beareth witness with our spirit, that we are the children of God.
  
-How excellent is thy lovingkindness, O God! therefore the children of men put their trust under the shadow of thy wings. They shall be abundantly satisfied with the fatness of thy house; and thou shalt make them drink of the river of thy pleasures. For with thee is the fountain of life: in thy light shall we see light.  
+My presence shall go with thee and I will give thee rest. And he said unto him, If thy presence go not with me, carry us not up hence. For wherein shall it be known here that I and thy people have found grace in thy sight? is it not in that thou goest with us?  
 
-**Psa 65:4; Psa 27:4; Matt 5:6; Luke 1:53; Psa 107:9; John 6:35; Psa 36:7-9**
+**2 Thes 3:16; Rev 1:4; Phl 4:7; Luke 24:36; John 14:27; John 15:26; Gal 5:22; Rom 8:16; Exo 33:14-16**
 
-[Tuesday 29-November, 2022](https://t.me/daily_light)
+[Wednesday 30-November, 2022](https://t.me/daily_light)
