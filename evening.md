@@ -1,15 +1,13 @@
 **Evening**
 
-**The dust shall return to the earth as it was.**
+**The spirit shall return unto God who gave it.**
  
-It is sown in corruption; it is sown in dishonour; it is sown in weakness; it is sown a natural body. -- The first man is of the earth, earthy.
+The LORD God formed man of the dust of the ground, and breathed into his nostrils the breath of life; and man became a living soul. -- There is a spirit in man; and the inspiration of the Almighty giveth them understanding. -- The first man Adam was made a living soul. -- The spirit of man that goeth upward.
  
-Dust thou art, and unto dust shalt thou return. -- One dieth in his full strength, being wholly at ease and quiet. And another dieth in the bitterness of his soul, and never eateth with pleasure. They shall lie down alike in the dust, and the worms shall cover them.
+Whilst we are at home in the body, we are absent from the Lord. We are confident, ... and willing rather to be absent from the body, and to be present with the Lord. -- With Christ; which is far better. -- I would not have you to be ignorant, brethren, concerning them which are asleep, that ye sorrow not, even as others which have no hope. For if we believe that Jesus died and rose again, even so them also which sleep in Jesus will God bring with him.
  
-My flesh ... shall rest in hope. -- Though after my skin worms destroy this body, yet in my flesh shall I see God. -- The Lord Jesus Christ shall change our vile body, that it may be fashioned like unto his glorious body, according to the working whereby he is able even to subdue all things unto himself.
- 
-LORD, make me to know mine end, and the measure of my days, what it is; that I may know how frail I am. -- So teach us to number our days, that we may apply our hearts unto wisdom.  
+I go to prepare a place for you. And if I go and prepare a place for you, I will come again, and receive you unto myself; that where I am, there ye may be also.  
 
-**Eccl 12:7; 1 Cor 15:42-44; 1 Cor 15:47; Gen 3:19; Job 21:23,25,26; Psa 16:9; Job 19:26; Phl 3:20,21; Psa 39:4; Psa 90:12**
+**Eccl 12:7; Gen 2:7; Job 32:8; 1 Cor 15:45; Eccl 3:21; 2 Cor 5:6,8; Phl 1:23; 1 Thes 4:13,14; John 14:2,3**
 
-[Thursday 08-December, 2022](https://t.me/daily_light)
+[Friday 09-December, 2022](https://t.me/daily_light)
