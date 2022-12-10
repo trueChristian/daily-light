@@ -1,13 +1,13 @@
 **Morning**
 
-**To do justice and judgment is more acceptable to the Lord than sacrifice.**
+**No man is able to pluck them out of my Father's hand.**
  
-He hath shewed thee, O man, what is good; and what doth the LORD require of thee, but to do justly, and to love mercy, and to walk humbly with thy God? -- Hath the LORD as great delight in burnt offerings and sacrifices, as in obeying the voice of the LORD? Behold, to obey is better than sacrifice, and to hearken than the fat of rams. -- To love him with all the heart, and with all the understanding, and with all the soul, and with all the strength, and to love his neighbour as himself, is more than all whole burnt offerings and sacrifices.
+I know whom I have believed, and am persuaded that he is able to keep that which I have committed unto him against that day. -- The Lord shall deliver me from every evil work, and will preserve me unto his heavenly kingdom. -- We are more than conquerors through him that loved us. For I am persuaded, that neither death, nor life, nor angels, nor principalities, nor powers, nor things present, nor things to come, nor height, nor depth, nor any other creature, shall be able to separate us from the love of God, which is in Christ Jesus our Lord. -- Your life is hid with Christ in God.
  
-Therefore turn thou to thy God: keep mercy and judgment, and wait on thy God continually. -- Mary ... sat at Jesus' feet, and heard his word. One thing is needful: and Mary hath chosen that good part, which shall not be taken away from her.
+Hath not God chosen the poor of this world rich in faith, and heirs of the kingdom which he hath promised to them that love him?
  
-It is God which worketh in you both to will and to do of his good pleasure.  
+Our Lord Jesus Christ himself, and God, even our Father, which hath loved us, and hath given us everlasting consolation and good hope through grace, comfort your hearts, and stablish you in every good word and work.  
 
-**Prov 21:3; Mic 6:8; 1 Sam 15:22; Matt 12:33; Hos 12:6; Luke 10:39,42; Phl 2:13**
+**John 10:29; 2 Tim 1:12; 2 Tim 4:18; Rom 8:37-39; Col 3:3; Jas 2:5; 2 Thes 2:16,17**
 
-[Friday 09-December, 2022](https://t.me/daily_light)
+[Saturday 10-December, 2022](https://t.me/daily_light)
