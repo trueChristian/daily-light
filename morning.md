@@ -1,13 +1,13 @@
 **Morning**
 
-**No man is able to pluck them out of my Father's hand.**
+**Let not your good be evil spoken of.**
  
-I know whom I have believed, and am persuaded that he is able to keep that which I have committed unto him against that day. -- The Lord shall deliver me from every evil work, and will preserve me unto his heavenly kingdom. -- We are more than conquerors through him that loved us. For I am persuaded, that neither death, nor life, nor angels, nor principalities, nor powers, nor things present, nor things to come, nor height, nor depth, nor any other creature, shall be able to separate us from the love of God, which is in Christ Jesus our Lord. -- Your life is hid with Christ in God.
+Abstain from all appearance of evil. -- Providing for honest things, not only in the sight of the Lord, but also in the sight of men. -- For so is the will of God, that with well doing ye may put to silence the ignorance of foolish men.
  
-Hath not God chosen the poor of this world rich in faith, and heirs of the kingdom which he hath promised to them that love him?
+But let none of you suffer as a murderer, or as a thief, or as an evildoer, or as a busybody in other men's matters. Yet if any man suffer as a Christian, let him not be ashamed; but let him glorify God on this behalf.
  
-Our Lord Jesus Christ himself, and God, even our Father, which hath loved us, and hath given us everlasting consolation and good hope through grace, comfort your hearts, and stablish you in every good word and work.  
+Brethren, ye have been called unto liberty; only use not liberty for an occasion to the flesh, but by love serve one another. -- Take heed lest by any means this liberty of yours become a stumblingblock to them that are weak. -- Whoso shall offend one of these little ones which believe in me, it were better for him that a millstone were hanged about his neck, and that he were drowned in the depth of the sea. -- Inasmuch as ye have done it unto one of the least of these my brethren, ye have done it unto me.  
 
-**John 10:29; 2 Tim 1:12; 2 Tim 4:18; Rom 8:37-39; Col 3:3; Jas 2:5; 2 Thes 2:16,17**
+**Rom 14:16; 1 Thes 5:22; 2 Cor 8:21; 1 Pet 2:15; 1 Pet 4:15,16; Gal 5:13; 1 Cor 8:9; Matt 18:6; Matt 25:40**
 
-[Saturday 10-December, 2022](https://t.me/daily_light)
+[Sunday 11-December, 2022](https://t.me/daily_light)
