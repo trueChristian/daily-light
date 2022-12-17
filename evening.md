@@ -1,13 +1,13 @@
 **Evening**
 
-**The deep things of God.**
+**Have no fellowship with the unfruitful works of darkness, but rather reprove them.**
  
-Henceforth I call you not servants; for the servant knoweth not what his lord doeth; but I have called you friends; for all things that I have heard of my Father I have made known unto you. -- It is given unto you to know the mysteries of the kingdom of heaven.
+Be not deceived: evil communications corrupt good manners.
  
-We have received, not the spirit of the world, but the Spirit which is of God; that we might know the things that are freely given to us of God.
+Know ye not that a little leaven leaveneth the whole lump? Purge out therefore the old leaven. I wrote unto you in an epistle not to company with fornicators. Yet not altogether with the fornicators of this world, or with the covetous, or extortioners, or with idolators; for then must we needs go out of the world. I have written unto you not to keep company, if any man that is called a brother be a fornicator, or covetous, or an idolater, or a railer, or a drunkard, or an extortioner; with such an one no not to eat. -- That ye may be blameless and harmless, the sons of God, without rebuke, in the midst of a crooked and perverse nation, among whom ye shine as lights in the world.
  
-For this cause I bow my knees unto the Father of our Lord Jesus Christ, of whom the whole family in heaven and earth is named, that he would grant you, according to the riches of his glory, to be strengthened with might by his Spirit in the inner man; that ye, being rooted and grounded in love, may be able to comprehend with all saints what is the breadth, and length, and depth, and height; and to know the love of Christ, which passeth knowledge, that ye might be filled with all the fulness of God.  
+In a great house there are not only vessels of gold and of silver, but also of wood and of earth; and some to honour, and some to dishonour.  
 
-**1 Cor 2:10; John 15:15; Matt 13:11; 1 Cor 2:12; Eph 3:14-19**
+**Eph 5:11; 1 Cor 15:33; 1 Cor 5:6,7,9-11; Phl 2:15; 2 Tim 2:20**
 
-[Friday 16-December, 2022](https://t.me/daily_light)
+[Saturday 17-December, 2022](https://t.me/daily_light)
