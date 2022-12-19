@@ -1,13 +1,15 @@
 **Evening**
 
-**Ye shall know the truth, and the truth shall make you free.**
+**He shall feed his flock like a shepherd: he shall gather the lambs with his arm, and carry them in his bosom, and shall gently lead those that are with young.**
  
-Where the Spirit of the Lord is, there is liberty. -- The law of the Spirit of life in Christ Jesus hath made me free from the law of sin and death. -- If the Son ... shall make you free, ye shall be free indeed.
+I have compassion on the multitude, because they continue with me now three days, and have nothing to eat: ... I will not send them away fasting, lest they faint in the way. -- We have not an high priest which cannot be touched with the feeling of our infirmities.
  
-Brethren, we are not children of the bondwoman, but of the free. -- Knowing that a man is not justified by the works of the law, but by the faith of Jesus Christ, even we have believed in Jesus Christ, that we might be justified by the faith of Christ, and not by the works of the law: for by the works of the law shall no flesh be justified.
+They brought young children to him, and he took them up in his arms, put his hands upon them, and blessed them.
  
-Whoso looketh into the perfect law of liberty, and continueth therein, he being not a forgetful hearer, but a doer of the work, this man shall be blessed in his deed. -- Stand fast therefore in the liberty wherewith Christ hath made us free, and be not entangled again with the yoke of bondage.  
+I have gone astray like a lost sheep; seek thy servant. -- The Son of man is come to seek and to save that which was lost. -- Ye were as sheep going astray; but are now returned unto the Shepherd and Bishop of your souls.
+ 
+Fear not, little flock; for it is your Father's good pleasure to give you the kingdom. -- I will feed my flock, and I will cause them to lie down, saith the Lord GOD.  
 
-**John 8:32; 2 Cor 3:17; Rom 8:2; John 8:36; Gal 4:31; Gal 2:16; Jas 1:25; Gal 5:1**
+**Isa 40:11; Matt 15:32; Heb 4:15; Mark 10:13,16; Psa 119:176; Luke 19:10; 1 Pet 2:25; Luke 12:32; Ezek 34:15**
 
-[Sunday 18-December, 2022](https://t.me/daily_light)
+[Monday 19-December, 2022](https://t.me/daily_light)
