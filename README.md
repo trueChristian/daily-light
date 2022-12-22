@@ -1,30 +1,30 @@
 # Morning
 
-**The days of thy mourning shall be ended.**
+**Your work of faith.**
  
-In the world ye shall have tribulation. -- The whole creation groaneth and travaileth in pain together until now. And not only they, but ourselves also, which have the firstfruits of the Spirit, even we ourselves groan within ourselves, waiting for the adoption, to wit, the redemption of our body. -- We that are in this tabernacle do groan, being burdened: not for that we would be unclothed, but clothed upon, that mortality might be swallowed up of life.
+This is the work of God, that ye believe on him whom he hath sent.
  
-These are they which came out of great tribulation, and have washed their robes, and made them white in the blood of the Lamb, Therefore are they before the throne of God, and serve him day and night in his temple: and he that sitteth on the throne shall dwell among them. They shall hunger no more, neither thirst any more; neither shall the sun light on them, nor any heat. For the Lamb which is in the midst of the throne shall feed them, and shall lead them unto living fountains of waters; and God shall wipe away all tears from their eyes.  
+Faith, if it hath not works, is dead, being alone. -- Faith worketh by love. -- He that soweth to his flesh, shall of the flesh reap corruption; but he that soweth to the Spirit shall of the Spirit reap life everlasting. -- We are his workmanship, created in Christ Jesus unto good works, which God hath before ordained that we should walk in them. -- Who gave himself for us, that he might redeem us from all iniquity, and purify unto himself a peculiar people, zealous of good works.
+ 
+We are bound to thank God always for you, brethren, as it is meet, because that your faith groweth exceedingly, and the charity of every one of you all toward each other aboundeth. Wherefore also we pray always for you, that our God would count you worthy of this calling, and fulfil all the good pleasure of his goodness, and the work of faith with power. -- It is God which worketh in you both to will and to do of his good pleasure.  
 
-**Isa 60:20; John 16:33; Rom 8:22,23; 2 Cor 5:4; Rev 7:14-17**
+**1 Thes 1:3; John 6:29; Jas 2:17; Gal 5:6; Gal 6:8; Eph 2:10; Tit 2:14; 2 Thes 1:3,11; Phl 2:13**
 
 # Evening
 
-**Master, carest thou not that we perish?**
+**Where is the promise of his coming?**
  
-The LORD is good to all: and his tender mercies are over all his works.
+Enoch ... the seventh from Adam, prophesied of these, saying, Behold, the Lord cometh with ten thousands of his saints, to execute judgment upon all. -- Behold, he cometh with clouds; and every eye shall see him, and they also which pierced him; and all kindreds of the earth shall wail because of him.
  
-Every moving thing that liveth shall be meat for you; even as the green herb have I given you all things. -- While the earth remaineth, seed time and harvest, and cold and heat, and summer and winter, and day and night, shall not cease.
+The Lord himself shall descend from heaven with a shout, with the voice of the archangel, and with the trump of God: and the dead in Christ shall rise first: then we which are alive and remain shall be caught up together with them in the clouds, to meet the Lord in the air: and so shall we ever be with the Lord.
  
-The LORD is good, a strong hold in the day of trouble; and he knoweth them that trust in him. -- God heard the voice of the lad: and the angel of God called to Hagar out of heaven, and said unto her, What aileth thee, Hagar? fear not; for God hath heard the voice of the lad where he is. And God opened her eyes, and she saw a well of water; and she went, and filled the bottle with water, and gave the lad drink.
- 
-Take no thought, saying, What shall we eat? or, what shall we drink? for your heavenly Father knoweth that ye have need of all these things. -- Trust ... in the living God, who giveth us richly all things to enjoy.  
+The grace of God that bringeth salvation hath appeared to all men, teaching us that, denying ungodliness and worldly lusts, we should live soberly, righteously, and godly, in this present world; looking for that blessed hope, and the glorious appearing of the great God and our Saviour Jesus Christ.  
 
-**Mark 4:38; Psa 145:9; Gen 9:3; Gen 8:22; Nah 1:7; Gen 21:17,19; Matt 6:31,32; 1 Tim 6:17**
+**2 Pet 3:4; Jude 14,15; Rev 1:7; 1 Thes 4:16,17; Tit 2:11-13**
 
 ---
 
-[Wednesday 21-December, 2022](https://t.me/s/daily_light)
+[Thursday 22-December, 2022](https://t.me/s/daily_light)
 
 > Jonathan Bagster, the son of Samuel Bagster, created the Daily Light for his own family's daily devotion in 1875
 
