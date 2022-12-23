@@ -1,13 +1,11 @@
 **Evening**
 
-**Where is the promise of his coming?**
+**God hath given to us eternal life, and this life is in his Son.**
  
-Enoch ... the seventh from Adam, prophesied of these, saying, Behold, the Lord cometh with ten thousands of his saints, to execute judgment upon all. -- Behold, he cometh with clouds; and every eye shall see him, and they also which pierced him; and all kindreds of the earth shall wail because of him.
+As the Father hath life in himself; so hath he given to the Son to have life in himself. As the Father raiseth up the dead, and quickeneth them; even so the Son quickeneth whom he will.
  
-The Lord himself shall descend from heaven with a shout, with the voice of the archangel, and with the trump of God: and the dead in Christ shall rise first: then we which are alive and remain shall be caught up together with them in the clouds, to meet the Lord in the air: and so shall we ever be with the Lord.
- 
-The grace of God that bringeth salvation hath appeared to all men, teaching us that, denying ungodliness and worldly lusts, we should live soberly, righteously, and godly, in this present world; looking for that blessed hope, and the glorious appearing of the great God and our Saviour Jesus Christ.  
+I am the resurrection, and the life: he that believeth in me, though he were dead, yet shall he live: and whosoever liveth and believeth in me shall never die. -- I am the good shepherd: the good shepherd giveth his life for the sheep. I lay down my life, that I might take it again. No man taketh it from me, but I lay it down of myself. I have power to lay it down, and I have power to take it again. This commandment have I received of my Father. -- No man cometh unto the Father, but by me. -- He that hath the Son, hath life; and he that hath not the Son of God, hath not life. -- For ye are dead and your life is hid with Christ in God. When Christ, who is our life, shall appear, then shall ye also appear with him in glory.  
 
-**2 Pet 3:4; Jude 14,15; Rev 1:7; 1 Thes 4:16,17; Tit 2:11-13**
+**1 John 5:11; John 5:26,21; John 11:25,26; John 10:11,17,18; John 14:6; 1 John 5:12; Col 3:3,4**
 
-[Thursday 22-December, 2022](https://t.me/daily_light)
+[Friday 23-December, 2022](https://t.me/daily_light)
