@@ -1,15 +1,11 @@
 **Morning**
 
-**Let him take hold of my strength, that he may make peace with me.**
+**If ye live after the flesh, ye shall die: but if ye through the Spirit do mortify the deeds of the body, ye shall live.**
  
-I know the thoughts that I think toward you, saith the LORD, thoughts of peace, and not of evil. -- There is no peace, saith the LORD, unto the wicked.
+Now the works of the flesh are manifest which are these; adultery, fornication and such like: of the which I tell you before, as I have also told you in time past, that they which do such things shall not inherit the kingdom of God. But the fruit of the Spirit is love, joy, peace, longsuffering, gentleness, goodness, faith, meekness, temperance: against such there is no law. And they that are Christ's have crucified the flesh with the affections and lusts. If we live in the Spirit, let us also walk in the Spirit.
  
-In Christ Jesus ye who sometime were far off are made nigh by the blood of Christ. For he is our peace.
- 
-It pleased the Father that in him should all fulness dwell: and having made peace through the blood of his cross, by him to reconcile all things unto himself. -- Christ Jesus: whom God hath set forth to be a propitiation through faith in his blood, to declare his righteousness for the remission of sins that are past: ... that he might be just, and the justifier of him which believeth in Jesus. -- If we confess our sins, he is faithful and just to forgive us our sins, and to cleanse us from all unrighteousness.
- 
-Trust ye in the LORD for ever, for in the LORD JEHOVAH is everlasting strength.  
+The grace of God that bringeth salvation hath appeared to all men, teaching us that, denying ungodliness and worldly lusts, we should live soberly, righteously, and godly, in this present world; looking for that blessed hope, and the glorious appearing of the great God and our Saviour Jesus Christ; who gave himself for us, that he might redeem us from all iniquity.  
 
-**Isa 27:5; Jer 29:11; Isa 48:22; Eph 2:13,14; Col 1:19,20; Rom 3:24-26; 1 John 1:9; Isa 26:4**
+**Rom 8:13; Gal 5:19,21-25; Tit 2:11-14**
 
-[Friday 23-December, 2022](https://t.me/daily_light)
+[Saturday 24-December, 2022](https://t.me/daily_light)
