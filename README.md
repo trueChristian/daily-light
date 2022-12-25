@@ -1,30 +1,34 @@
 # Morning
 
-**If ye live after the flesh, ye shall die: but if ye through the Spirit do mortify the deeds of the body, ye shall live.**
+**The kindness and love of God our Saviour toward man appeared.**
  
-Now the works of the flesh are manifest which are these; adultery, fornication and such like: of the which I tell you before, as I have also told you in time past, that they which do such things shall not inherit the kingdom of God. But the fruit of the Spirit is love, joy, peace, longsuffering, gentleness, goodness, faith, meekness, temperance: against such there is no law. And they that are Christ's have crucified the flesh with the affections and lusts. If we live in the Spirit, let us also walk in the Spirit.
+I have loved thee with an everlasting love.
  
-The grace of God that bringeth salvation hath appeared to all men, teaching us that, denying ungodliness and worldly lusts, we should live soberly, righteously, and godly, in this present world; looking for that blessed hope, and the glorious appearing of the great God and our Saviour Jesus Christ; who gave himself for us, that he might redeem us from all iniquity.  
+In this was manifested the love of God toward us, because that God sent his only begotten Son into the world, that we might live through him. Herein is love, not that we loved God, but that he loved us, and sent his Son to be the propitiation for our sins.
+ 
+When the fulness of the time was come, God sent forth his Son, made of a woman, made under the law, to redeem them that were under the law, that we might receive the adoption of sons. -- The Word was made flesh, and dwelt among us, (and we beheld his glory, the glory as of the only begotten of the Father) full of grace and truth. -- Great is the mystery of godliness: God was manifest in the flesh.
+ 
+As the children are partakers of flesh and blood, he also himself likewise took part of the same; that through death he might destroy him that had the power of death, that is, the devil.  
 
-**Rom 8:13; Gal 5:19,21-25; Tit 2:11-14**
+**Tit 3:4; Jer 31:3; 1 John 4:9,10; Gal 4:4,5; John 1:14; 1 Tim 3:16; Heb 2:14**
 
 # Evening
 
-**Then said the princes of the Phillstines, What do these Hebrews here?**
+**Thanks be unto God for his unspeakable gift.**
  
-If ye be reproached for the name of Christ, happy are ye: for the spirit of glory and of God resteth upon you: on their part he is evil spoken of, but on your part he is glorified. But let none of you suffer as a murderer, or as a thief, ... or as a busybody in other men's matters.
+Make a joyful noise unto the LORD, all ye lands. Serve the LORD with gladness; come before his presence with singing. Enter into his gates with thanksgiving, and into his courts with praise: be thankful unto him, and bless his name. -- For unto us a child is born, unto us a son is given: and the government shall be upon his shoulder: and his name shall be called Wonderful, Counsellor, The mighty God, The everlasting Father, The Prince of Peace.
  
-Let not ... your good be evil spoken of. -- Having your conversation honest among the Gentiles.
+He ... spared not his own Son, but delivered him up for us all. -- Having yet ... one son, his wellbeloved, he sent him.
  
-Be ye not unequally yoked together with unbelievers: for what fellowship hath righteousness with unrighteousness? and what communion hath light with darkness? Ye are the temple of the living God. Wherefore come out from among them, and be ye separate, saith the Lord, and touch not the unclean thing.
+Oh that men would praise the LORD for his goodness, and for his wonderful works to the children of men! -- Bless the LORD, O my soul: and all that is within me, bless his holy name.
  
-Ye are a chosen generation, a royal priesthood, an holy nation, a peculiar people: that ye should shew forth the praises of him who hath called you out of darkness into his marvellous light.  
+My soul doth magnify the Lord, and my spirit hath rejoiced in God my Saviour.  
 
-**1 Sam 29:3; 1 Pet 4:14,15; Rom 14:16; 1 Pet 2:12; 2 Cor 6:14,16,17; 1 Pet 2:9**
+**2 Cor 9:15; Psa 100:1,2,4; Isa 9:6,7; Rom 8:32; Mark 12:6; Psa 107:21; Psa 103:1; Luke 1:46,47**
 
 ---
 
-[Saturday 24-December, 2022](https://t.me/s/daily_light)
+[Sunday 25-December, 2022](https://t.me/s/daily_light)
 
 > Jonathan Bagster, the son of Samuel Bagster, created the Daily Light for his own family's daily devotion in 1875
 
