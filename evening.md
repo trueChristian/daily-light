@@ -1,13 +1,11 @@
 **Evening**
 
-**The Lord, he it is that doth go before thee; he will be with thee, he will not fail thee.**
+**Let my prayer be set forth before thee as incense; and the lifting up of my hands as the evening sacrifice.**
  
-If thy presence go not with me, carry us not up hence. -- O Lord, I know that the way of man is not in himself: it is not in man that walketh to direct his steps.
+Thou shalt make an altar to burn incense upon: ... and thou shalt put it before the veil that is by the ark of the testimony, before the mercy seat that is over the testimony, where I will meet with thee. And Aaron shall burn thereon sweet incense every morning: ... and when Aaron lighteth the lamps at even, he shall burn incense upon it, a perpetual incense before the Lord throughout your generations.
  
-The steps of a good man are ordered by the Lord: and he delighteth in his way. Though he fall, he shall not be utterly cast down: for the Lord upholdeth him with his hand.
- 
-I am continually with thee: thou hast holden me by my right hand. Thou shalt guide me with thy counsel, and afterward receive me to glory. -- I am persuaded, that neither death, nor life, nor angels, nor principalities, nor powers, nor things present, nor things to come, nor height, nor depth, nor any other creature, shall be able to separate us from the love of God, which is in Christ Jesus our Lord.  
+[Jesus] is able to save them to the uttermost that come unto God by him, seeing he ever liveth to make intercession for them. -- The smoke of the incense, which came with the prayers of the saints, ascended up before God out of the angel's hand. Ye also, as lively stones, are built up a spiritual house, an holy priesthood, to offer up spiritual sacrifices, acceptable to God by Jesus Christ. Pray without ceasing.  
 
-**Deut 31:8; Exo 33:15; Jer 10:23; Psa 37:23,24; Psa 73:23,24; Rom 8:38,39**
+**Psa 141:2; Exo 30:1; Heb 7:25; Rev 8:4; 1 Pet 2:5; 1 Thes 5:17**
 
-[Sunday 01-January, 2023](https://t.me/daily_light)
+[Monday 02-January, 2023](https://t.me/daily_light)
