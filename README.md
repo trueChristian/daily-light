@@ -1,30 +1,32 @@
 # Morning
 
-**Thou hast given a banner to them that fear thee, that it may be displayed because of the truth.**
+**I pray God your whole spirit and soul and body be preserved blameless unto the coming of our Lord Jesus Christ.**
  
-Jehovah Nissi (The Lord my banner). -- When the enemy shall come in like a flood, the Spirit of the Lord shall lift up a standard against him.
+Christ loved the church, and gave himself for it; that be might present it to himself a glorious church, not having spot, or wrinkle, or any such thing; but that it should be holy and without blemish. -- Whom we preach, warning every man, and teaching every man in all wisdom; that we may present every man perfect in Christ Jesus.
  
-We will rejoice in thy salvation, and in the name of our God we will set up our banners. -- The Lord hath brought forth our righteousness: come, and let us declare in Zion the work of the Lord our God. -- We are more than conquerors through him that loved us. -- Thanks be to God, which giveth us the victory through our Lord Jesus Christ. -- The captain of our salvation.
+The peace of God ... passeth all understanding. -- Let the peace of God rule in your hearts, to the which also ye are called in one body.
  
-My brethren, be strong in the Lord, and in the power of his might. -- Valiant for the truth. -- Fight the Lord's battles. -- Be strong, all ye people of the land, saith the Lord, and work: fear ye not. -- Lift up your eyes, and look on the fields; for they are white already to harvest. -- Yet a little while, and he that shall come will come, and will not tarry.  
+Our Lord Jesus Christ himself and God, even our Father, which hath loved us, and hath given us everlasting consolation and good hope through grace, comfort your hearts, and stablish you in every good word and work. -- Who shall also confirm you unto the end, that ye may be blameless in the day of our Lord Jesus Christ.  
 
-**Psa 60:4; Exo 17:15 ; Isa 59:19; Psa 20:5; Jer 51:10; Rom 8:37; 1 Cor 15:57; Heb 2:10; Eph 6:10; Jer 9:3; 1 Sam 18:17; Hag 2:4,5; John 4:35; Heb 10:37**
+**1 Thes 5:23; Eph 5:25,27; Col 1:28; Phl 4:7; Col 3:15; 2 Thes 2:16,17; 1 Cor 1:8**
 
 # Evening
 
-**One thing is needful.**
+**Will God in very deed dwell with men on the earth?**
  
-There be many that say, Who will shew us any good? Lord, lift thou up the light of thy countenance upon us. Thou hast put gladness in my heart, more than in the time that their corn and their wine increased.
+Let them make me a sanctuary; that I may dwell among them. -- I will meet with the children of Israel, and the tabernacle shall be sanctified by my glory. And I will dwell among the children of Israel, and will be their God.
  
-As the hart panteth after the water brooks, so panteth my soul after thee, O God. My soul thirsteth for God, for the living God. -- O God, thou art my God; early will I seek thee: my soul thirsteth for thee, my flesh longeth for thee in a dry and thirsty land, where no water is.
+Thou hast ascended on high, thou hast led captivity captive: thou hast received gifts for men; yea, for the rebellious also, that the Lord God might dwell among them.
  
-I am the bread of life: he that cometh to me shall never hunger; and he that believeth on me shall never thirst. Lord, evermore give us this bread. -- Mary ... sat at Jesus' feet, and heard his word. -- One thing have I desired of the Lord, that will I seek after; that I may dwell in the house of the Lord all the days of my life, to behold the beauty of the Lord, and to enquire in his temple.  
+Ye are the temple of the living God; as God hath said, I will dwell in them, and walk in them; and I will be their God, and they shall be my people. -- Your body is the temple of the Holy Ghost which is in you. -- Ye ... are builded together for an habitation of God through the Spirit.
+ 
+The heathen shall know that I the Lord do sanctify Israel, when my sanctuary shall be in the midst of them for evermore.  
 
-**Luke 10:42; Psa 4:6,7; Psa 42:1,2; Psa 63:1; John 6:35,34; Luke 10:39; Psa 27:4**
+**2 Chr 6:18; Exo 25:8; Exo 29:43,45; Psa 68:18; 2 Cor 6:16; 1 Cor 6:19; Eph 2:22; Ezek 37:28**
 
 ---
 
-[Monday 09-January, 2023](https://t.me/s/daily_light)
+[Tuesday 10-January, 2023](https://t.me/s/daily_light)
 
 > Jonathan Bagster, the son of Samuel Bagster, created the Daily Light for his own family's daily devotion in 1875
 
