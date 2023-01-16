@@ -1,11 +1,11 @@
 **Morning**
 
-**My soul cleaveth unto the dust: quicken thou me according to thy word.**
+**It pleased the Father, that in him should all fulness dwell.**
  
-If ye ... be risen with Christ, seek those things which are above, where Christ sitteth on the right hand of God. Set your affection on things above, not on things on the earth. For your life is hid with Christ in God. -- Our conversation is in heaven; from whence also we look for the Saviour, the Lord Jesus Christ: who shall change our vile body, that it may be fashioned like unto his glorious body, according to the working whereby he is able even to subdue all things unto himself.
+The Father loveth the Son, and hath given all things into his hand. -- God hath highly exalted him, and given him a name which is above every name: that at the name of Jesus every knee should bow, of things in heaven, and things in earth, and things under the earth; and that every tongue should confess that Jesus Christ is Lord, to the glory of God the Father. -- Far above all principality, and power, and might, and dominion, and every name that is named, not only in this world, but also in that which is to come. -- By him were all things created, that are in heaven, and that are in earth, visible and invisible, whether they be thrones, or dominions, or principalities, or powers: all things were created by him, and for him.
  
-The flesh lusteth against the Spirit, and the Spirit against the flesh; and these are contrary the one to the other: so that ye cannot do the things that ye would. -- Brethren, we are debtors, not to the flesh, to live after the flesh. For if ye live after the flesh, ye shall die: but if ye through the Spirit do mortify the deeds of the body, ye shall live. -- Dearly beloved, I beseech you as strangers and pilgrims, abstain from fleshly lusts, which war against the soul.  
+Christ both died, and rose, and revived, that he might be Lord both of the dead and living. -- And ye are complete in him, which is the head of all principality and power. -- Of his fulness have all we received.  
 
-**Psa 119:25; Col 3:1; Phl 3:20,21; Gal 5:17; Rom 8:12,13; 1 Pet 2:11**
+**Col 1:19; John 3:35; Phl 2:9; Eph 1:21; Col 1:16; Rom 14:9; Col 2:10; Rom 1:16**
 
-[Sunday 15-January, 2023](https://t.me/daily_light)
+[Monday 16-January, 2023](https://t.me/daily_light)
