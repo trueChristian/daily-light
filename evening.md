@@ -1,15 +1,17 @@
 **Evening**
 
-**The Lord's portion is his people.**
+**Now we call the proud happy.**
  
-Ye are Christ's; and Christ is God's. -- I am my beloved's, and his desire is toward me. -- I am his. -- The Son of God ... loved me, and gave himself for me.
+Thus saith the high and lofty One that inhabiteth eternity, whose name is Holy; I dwell in the high and holy place, with him that is of a contrite and humble spirit, to revive the spirit of the humble, and to revive the heart of the contrite ones.
  
-Ye are not your own, ye are bought with a price: therefore glorify God in your body, and in your spirit, which are God's. -- The Lord hath taken you, and brought you forth out of the iron furnace, even out of Egypt, to be unto him a people of inheritance, as ye are this day.
+Better it is to be of an humble spirit with the lowly, than to divide the spoil with the proud. -- Blessed are the poor in spirit for their's is the kingdom of heaven.
  
-Ye are God's husbandry, ye are God's building. -- Christ as a son over his own house; whose house are we, if we hold fast the confidence and the rejoicing of the hope firm unto the end. -- A spiritual house, an holy priesthood.
+These six things doth the Lord hate: yea, seven are an abomination unto him: a proud look, ... . -- Every one that is proud of heart is an abomination to the Lord.
  
-They shall be mine, saith the Lord of hosts, in that day when I make up my jewels. -- All mine are thine, and thine are mine; and I am glorified in them. -- The glory of his inheritance in the saints.  
+Search me, O God, and know my heart: try me, and know my thoughts: and see if there be any wicked way in me, and lead me in the way everlasting.
+ 
+Grace be unto you, and peace, from God our Father, and the Lord Jesus Christ. I thank my God upon every remembrance of you. -- Blessed are the meek: for they shall inherit the earth.  
 
-**Deut 32:9; 1 Cor 3:23; Song 7:10; Song 2:16; Gal 2:20; 1 Cor 6:19,20; Deut 4:20; 1 Cor 3:9; Heb 3:6; 1 Pet 2:5; Mal 3:17; John 17:10; Eph 1:18**
+**Mal 3:15; Isa 57:15; Prov 16:19; Matt 5:3; Prov 6:16,17; Prov 16:5; Psa 139:23,24; Phl 1:2,3; Matt 5:5**
 
-[Friday 20-January, 2023](https://t.me/daily_light)
+[Saturday 21-January, 2023](https://t.me/daily_light)

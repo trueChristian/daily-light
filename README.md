@@ -1,34 +1,32 @@
 # Morning
 
-**His name shall be called Wonderful.**
+**Every branch that beareth fruit, he purgeth it.**
  
-The Word was made flesh, and dwelt among us, (and we beheld his glory, the glory as of the only begotten of the Father) full of grace and truth. -- Thou hast magnified thy word above all thy name.
+He is like a refiner's fire, and like fullers' soap: and he shall sit as a refiner and purifier of silver: and he shall purify the sons of Levi, and purge them as gold and silver, that they may offer unto the Lord an offering in righteousness.
  
-They shall call his name Emmanuel, which being interpreted is, God with us. -- JESUS: for he shall save his people from their sins.
- 
-All men should honour the Son, even as they honour the Father. -- God ... hath highly exalted him, and given him a name which is above every name. -- Far above all principality, and power, and might, and dominion, and every name that is named, not only in this world, but also in that which is to come; and hath put all things under his feet. -- He had a name written, that no man knew, but he himself ... KING OF KINGS, AND LORD OF LORDS.
- 
-Touching the Almighty, we cannot find him out. -- What is his name, and what is his son's name, if thou canst tell?  
+We glory in tribulations: knowing that tribulation worketh patience; and patience, experience; and experience, hope: and hope maketh not ashamed; because the love of God is shed abroad in our hearts by the Holy Ghost which is given unto us. -- If ye endure chastening, God dealeth with you as with sons, for what son is he whom the Father chasteneth not? But if ye be without chastisement, whereof all are partakers, then are ye bastards, and not sons. Now no chastening for the present seemeth to be joyous, but grievous: nevertheless afterward it yieldeth the peaceable fruit of righteousness unto them which are exercised thereby. Wherefore lift up the hands which hang down, and the feeble knees.  
 
-**Isa 9:6; John 1:14; Psa 138:2; Matt 1:23; Matt 1:21; John 5:23; Phl 29; Eph 1:21,22; Rev 19:12,16; Job 37:23; Prov 30:4**
+**John 15:2; Mal 3:2,3; Rom 5:3; Heb 12:7,8,11,12**
 
 # Evening
 
-**The Lord's portion is his people.**
+**Now we call the proud happy.**
  
-Ye are Christ's; and Christ is God's. -- I am my beloved's, and his desire is toward me. -- I am his. -- The Son of God ... loved me, and gave himself for me.
+Thus saith the high and lofty One that inhabiteth eternity, whose name is Holy; I dwell in the high and holy place, with him that is of a contrite and humble spirit, to revive the spirit of the humble, and to revive the heart of the contrite ones.
  
-Ye are not your own, ye are bought with a price: therefore glorify God in your body, and in your spirit, which are God's. -- The Lord hath taken you, and brought you forth out of the iron furnace, even out of Egypt, to be unto him a people of inheritance, as ye are this day.
+Better it is to be of an humble spirit with the lowly, than to divide the spoil with the proud. -- Blessed are the poor in spirit for their's is the kingdom of heaven.
  
-Ye are God's husbandry, ye are God's building. -- Christ as a son over his own house; whose house are we, if we hold fast the confidence and the rejoicing of the hope firm unto the end. -- A spiritual house, an holy priesthood.
+These six things doth the Lord hate: yea, seven are an abomination unto him: a proud look, ... . -- Every one that is proud of heart is an abomination to the Lord.
  
-They shall be mine, saith the Lord of hosts, in that day when I make up my jewels. -- All mine are thine, and thine are mine; and I am glorified in them. -- The glory of his inheritance in the saints.  
+Search me, O God, and know my heart: try me, and know my thoughts: and see if there be any wicked way in me, and lead me in the way everlasting.
+ 
+Grace be unto you, and peace, from God our Father, and the Lord Jesus Christ. I thank my God upon every remembrance of you. -- Blessed are the meek: for they shall inherit the earth.  
 
-**Deut 32:9; 1 Cor 3:23; Song 7:10; Song 2:16; Gal 2:20; 1 Cor 6:19,20; Deut 4:20; 1 Cor 3:9; Heb 3:6; 1 Pet 2:5; Mal 3:17; John 17:10; Eph 1:18**
+**Mal 3:15; Isa 57:15; Prov 16:19; Matt 5:3; Prov 6:16,17; Prov 16:5; Psa 139:23,24; Phl 1:2,3; Matt 5:5**
 
 ---
 
-[Friday 20-January, 2023](https://t.me/s/daily_light)
+[Saturday 21-January, 2023](https://t.me/s/daily_light)
 
 > Jonathan Bagster, the son of Samuel Bagster, created the Daily Light for his own family's daily devotion in 1875
 
