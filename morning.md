@@ -1,11 +1,11 @@
 **Morning**
 
-**Ye know that he was manifested to take away our sins: and in him is no sin.**
+**As thy days, so shall thy strength be.**
  
-God, ... hath in these last days spoken unto us by his Son, who being the brightness of his glory, and the express image of his person, and upholding all things by the word of his power, when he had by himself purged our sins, sat down on the right hand of the Majesty on high. -- He hath made him to be sin for us, who knew no sin; that we might be made the righteousness of God in him.
+When they shall lead you, and deliver you up, take no thought beforehand what ye shall speak, neither do ye premeditate: but whatsoever shall be given you in that hour, that speak ye: for it is not ye that speak, but the Holy Ghost. -- Take no thought for the morrow: for the morrow shall take thought for the things of itself. Sufficient unto the day is the evil thereof.The God of Israel is he that giveth strength and power unto his people. Blessed be God. -- He giveth power to the faint; and to them that have no might he increaseth strength.
  
-Pass the time of your sojourning here in fear: forasmuch as ye know that ye were not redeemed with corruptible things, as silver and gold; ... but with the precious blood of Christ, as of a lamb without blemish and without spot: who verily was foreordained before the foundation of the world, but was manifest in these last times for you. -- The love of Christ constraineth us; because we thus judge, that if one died for all, then were all dead: and that he died for all, that they which live should not henceforth live unto themselves, but unto him which died for them, and rose again.  
+My grace is sufficient for thee: for my strength is made perfect in weakness. Most gladly therefore will I rather glory in my infirmities, that the power of Christ may rest upon me. Therefore I take pleasure in infirmities, in reproaches, in necessities, in persecutions, in distresses for Christ's sake: for when I am weak, then am I strong. -- I can do all things through Christ which strengtheneth me. -- O my soul, thou hast trodden down strength.  
 
-**1 John 3:5; Heb 1:13; 2 Cor 5:21; 1 Pet 1:17; 2 Cor 5:14,15**
+**Deut 33:25; Matt 13:11; Matt 6:34; Psa 68:35; Isa 40:29; 2 Cor 12:9,10; Phl 4:13; Judg 5:21**
 
-[Friday 27-January, 2023](https://t.me/daily_light)
+[Saturday 28-January, 2023](https://t.me/daily_light)
