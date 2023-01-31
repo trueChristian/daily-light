@@ -1,11 +1,15 @@
 **Morning**
 
-**Let us run with patience the race that is set before us, looking unto Jesus the author and finisher of our faith.**
+**If ye will not drive out the inhabitants of the land from before you;**
  
-If any man will come after me, let him deny himself, and take up his cross daily, and follow me. -- Whosoever he be of you that forsaketh not all that he hath, he cannot be my disciple. -- Let us therefore cast off the works of darkness.
+those which ye let remain of them shall be pricks in your eyes, and thorns in your sides, and shall vex you in the land wherein ye dwell.
  
-Every man that striveth for the mastery is temperate in all things. Now they do it to obtain a corruptible crown; but we an incorruptible. I therefore so run, not as uncertainly; so fight I, not as one that beateth the air: but I keep under my body, and bring it into subjection: lest that by any means, when I have preached to others, I myself should be a castaway. -- Brethren, I count not myself to have apprehended: but this one thing I do, forgetting those things which are behind, and reaching forth unto those things which are before, I press toward the mark for the prize of the high calling of God in Christ Jesus. -- Then shall we know, if we follow on to know the Lord.  
+Fight the good fight of faith. -- The weapons of our warfare are not carnal, but mighty through God to the pulling down of strongholds; casting down imaginations, ... and bringing into captivity every thought to the obedience of Christ.
+ 
+Brethren, we are debtors, not to the flesh, to live after the flesh. For if ye live after the flesh, ye shall die; but if ye through the Spirit do mortify the deeds of the body, ye shall live.
+ 
+The flesh lusteth against the Spirit, and the Spirit against the flesh; and these are contrary the one to the other: so that ye cannot do the things that ye would. -- I see another law in my members, warring against the law of my mind, and bringing me into captivity to the law of sin which is in my members. -- We are more than conquerors through him that loved us.  
 
-**Heb 12:1,2; Luke 9:23; Luke 14:33; Rom 13:12; 1 Cor 9:25,27; Phl 3:13,14; Hos 6:3**
+**Num 33:55; 1 Tim 6:12; 2 Cor 10:4,5; Rom 8:12,13; Gal 5:17; Rom 7:23; Rom 8:37**
 
-[Monday 30-January, 2023](https://t.me/daily_light)
+[Tuesday 31-January, 2023](https://t.me/daily_light)
