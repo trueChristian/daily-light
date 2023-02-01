@@ -1,15 +1,13 @@
 **Morning**
 
-**If ye will not drive out the inhabitants of the land from before you;**
+**Whom having not seen, ye love.**
  
-those which ye let remain of them shall be pricks in your eyes, and thorns in your sides, and shall vex you in the land wherein ye dwell.
+We walk by faith, not by sight. -- We love him, because he first loved us. -- And we have known and believed the love that God hath to us. God is love; and he that dwelleth in love dwelleth in God, and God in him. -- In whom ye trusted, after that ye heard the word of truth, the gospel of your salvation: in whom also after that ye believed, ye were sealed with that holy Spirit of promise. -- God would make known what is the riches of the glory of this mystery among the Gentiles; which is Christ in you, the hope of glory.
  
-Fight the good fight of faith. -- The weapons of our warfare are not carnal, but mighty through God to the pulling down of strongholds; casting down imaginations, ... and bringing into captivity every thought to the obedience of Christ.
+If a man say, I love God, and hateth his brother, he is a liar: for he that loveth not his brother whom he hath seen, how can he love God whom he hath not seen?
  
-Brethren, we are debtors, not to the flesh, to live after the flesh. For if ye live after the flesh, ye shall die; but if ye through the Spirit do mortify the deeds of the body, ye shall live.
- 
-The flesh lusteth against the Spirit, and the Spirit against the flesh; and these are contrary the one to the other: so that ye cannot do the things that ye would. -- I see another law in my members, warring against the law of my mind, and bringing me into captivity to the law of sin which is in my members. -- We are more than conquerors through him that loved us.  
+Jesus saith unto him, Thomas, because thou hast seen me, thou hast believed: blessed are they that have not seen, and yet have believed. -- Blessed are all they that put their trust in him.  
 
-**Num 33:55; 1 Tim 6:12; 2 Cor 10:4,5; Rom 8:12,13; Gal 5:17; Rom 7:23; Rom 8:37**
+**1 Pet 1:8; 2 Cor 5:7,1 John 4:19,1 John 4:16; Eph L:13; Col 1:27; 1 John 4:20; John 20:29; Psa 2:12**
 
-[Tuesday 31-January, 2023](https://t.me/daily_light)
+[Wednesday 01-February, 2023](https://t.me/daily_light)
