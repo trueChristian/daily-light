@@ -1,32 +1,30 @@
 # Morning
 
-**Oh that thou wouldest keep me from evil.**
+**Be strong, and work; for I am with you, saith the Lord of hosts.**
  
-Why sleep ye? rise and pray, lest ye enter into temptation. -- The spirit indeed is willing, but the flesh is weak.
+I am the vine, ye are the branches: he that abideth in me, and I in him, the same bringeth forth much fruit: for without me ye can do nothing. -- I can do all things through Christ which strengtheneth me. -- Strong in the Lord, and in the power of his might. -- The joy of the Lord is your strength.
  
-Two things have I required of thee; deny me them not before I die: remove far from me vanity and lies: give me neither poverty nor riches, feed me with food convenient for me: lest I be full and deny thee, and say, Who is the Lord? or lest I be poor, and steal, and take the name of my God in vain.
+Thus said the Lord of hosts; Let your hands be strong, ye that hear in these days these words by the mouth of the prophets. -- Strengthen ye the weak hands, and confirm the feeble knees. Say to them that are of a fearful heart, Be strong, fear not. -- The Lord looked upon him, and said, Go in this thy might.
  
-The Lord shall preserve thee from all evil: he shall preserve thy soul. -- I will deliver thee out of the hand of the wicked, and I will redeem thee out of the hand of the terrible. -- He that is begotten of God keepeth himself, and that wicked one toucheth him not.
+If God be for us, who can be against us? -- Therefore seeing we have this ministry, as we have received mercy, we faint not.
  
-Because thou hast kept the word of my patience, I also will keep thee from the hour of temptation, which shall come upon all the world, to try them that dwell upon the earth. -- The Lord knoweth how to deliver the godly out of temptations.  
+Let us not be weary in well doing: for in due season we shall reap, if we faint not. -- Thanks be to God, which giveth us the victory through our Lord Jesus Christ.  
 
-**1 Chr 4:10; Luke 22:46; Matt 26:41; Prov 30:7-9; Psa 121:7; Jer 15:21; 1 John 5:18; Rev 3:10; 2 Pet 2:9**
+**Hag 2:4; John 15:5; Phl 4:13; Eph 6:10; Neh 8:10; Zech 8:9; Isa 35:3,4; Judg 6:14; Rom 8:31 ; 2 Cor 4:1; Gal 6:9; 1 Cor 15:57**
 
 # Evening
 
-**One star differeth from another star in glory.**
+**The darkness hideth not from thee.**
  
-By the way they had disputed among themselves, who should be the greatest. And he sat down, and called the twelve, and saith unto them, If any man desire to be first, the same shall be last of all. -- Be clothed with humility: for God resisteth the proud, and giveth grace to the humble. Humble yourselves therefore under the mighty hand of God, that he may exalt you in due time.
+His eyes are upon the ways of man, and he seeth all his goings. There is no darkness, nor shadow of death, where the workers of iniquity may hide themselves. -- Can any hide himself in secret places that I shall not see him? ... Do not I fill heaven and earth? saith the Lord.
  
-Let this mind be in you, which was also in Christ Jesus: who made himself of no reputation, and took upon him the form of a servant, and was made in the likeness of men. Wherefore God also hath highly exalted him, and given him a name which is above every name: that at the name of Jesus every knee should bow.
- 
-They that be wise shall shine as the brightness of the firmament; and they that turn many to righeousness as the stars for ever and ever.  
+Thou shalt not be afraid for the terror by night; ... nor for the pestilence that walketh in darkness ... Because thou hast made the Lord, which is my refuge, even the Most High, thy habitation; there shall no evil befall thee, neither shall any plague come nigh thy dwelling. -- He that keepeth thee will not slumber. The Lord is thy keeper: the Lord is thy shade upon thy right hand. The sun shall not smite thee by day, nor the moon by night. The Lord shall preserve thee from all evil. Yea, though I walk through the valley of the shadow of death, I will fear no evil, for thou art with me.  
 
-**1 Cor 15:41; Mark 9:34,35; 1 Pet 5:5,6; Phl 2:5-7,9,10; Dan 12:3**
+**Psa 139:12; Job 34:21,2; Jer 23:24; Psa 91:5,6,9,10; Psa 121:3,5; Psa 23:4**
 
 ---
 
-[Thursday 02-February, 2023](https://t.me/s/daily_light)
+[Friday 03-February, 2023](https://t.me/s/daily_light)
 
 > Jonathan Bagster, the son of Samuel Bagster, created the Daily Light for his own family's daily devotion in 1875
 
