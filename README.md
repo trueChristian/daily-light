@@ -1,30 +1,28 @@
 # Morning
 
-**When thou has eaten and are full, ... thou shalt bless the Lord thy God for the good land which he hath given thee.**
+**Henceforth I call you not servants; for the servant knoweth not what his lord doeth: but I have called you friends.**
  
-Beware that thou forget not the Lord thy God. -- One of them, when he saw that he was healed, turned back, and with a loud voice glorified God, and fell down on his face at his feet, giving him thanks: and he was a Samaritan. And Jesus answering said, Were there not ten cleansed? but where are the nine? There are not found that returned to give glory to God, save this stranger.
+The Lord said, shall I hide from Abraham that thing which I do? -- It is given unto you to know the mysteries of the kingdom of heaven. -- God hath revealed them unto us by his Spirit: for the Spirit searcheth all things, yea, the deep things of God. -- Even the hidden wisdom, which God ordained before the world unto our glory.
  
-Every creature of God is good, and nothing to be refused, if it be received with thanksgiving: for it is sanctified by the word of God and prayer. -- He that eateth, eateth to the Lord, for he giveth God thanks. -- The blessing of the Lord, it maketh rich, and he addeth no sorrow with it.
- 
-Bless the Lord, O my soul: and all that is within me, bless his holy name. Bless the Lord, O my soul, ... who forgiveth all thine iniquities; ... who crowneth thee with lovingkindness and tender mercies.  
+Blessed is the man whom thou choosest, and causest to approach unto thee, that he may dwell in thy courts: we shall be satisfied with the goodness of thy house, even of thy holy temple. -- The secret of the Lord is with them that fear him: and he will shew them his covenant. -- I have given unto them the words which thou gavest me; and they have received them, and have known surely that I came out from thee, and they have believed that thou didst send me. Ye are my friends, if ye do whatsoever I command you.  
 
-**Deut 8:10; Deut 8:11; Luke 17:15; 1 Tim 4:4,5; Rom 14:6; Prov 10:22; Psa 103:1**
+**John 15:15; Gen 18:17; Matt 13:11,1 Cor 2:10,1 Cor 2:7; Psa 65:4; Psa 25:14; John 17:8; John 15:14**
 
 # Evening
 
-**Jesus ... was moved with compassion toward them.**
+**Thou shalt call thy walls Salvation, and thy gates Praise.**
  
-Jesus Christ the same yesterday, and today, and for ever. -- We have not an high priest which cannot be touched with the feeling of our infirmities; but was in all points tempted like as we are, yet without sin. -- Who can have compassion on the ignorant, and on them that are out of the way. -- He cometh, and findeth them sleeping, and saith unto Peter, Simon, sleepest thou? couldest not thou watch one hour? Watch ye and pray, lest ye enter into temptation. The spirit truly is ready, but the flesh is weak.
+The wall of the city had twelve foundations, and in them the names of the twelve apostles of the Lamb.
  
-Like as a father pitieth his children, so the Lord pitieth them that fear him. For he knoweth our frame; he remembereth that we are dust.
+Ye are no more strangers and foreigners, but feIlowcitizens with the saints, and of the household of God, and are built upon the foundation of the apostles and prophets, Jesus Christ himself being the chief corner stone; in whom all the building fitly framed together groweth unto an holy temple in the Lord: in whom ye also are builded together for an habitation of God through the Spirit. -- If so be ye have tasted that the Lord is gracious. To whom coming, as unto a living stone, disallowed indeed of men, but chosen of God, and precious, ye also, as lively stones, are built up a spiritual house, an holy priesthood, to offer up spiritual sacrifices, acceptable to God by Jesus Christ.
  
-Thou, O Lord, art a God full of compassion, and gracious, longsuffering, and plenteous in mercy and truth. O turn unto me, and have mercy upon me; give thy strength unto thy servant, and save the son of thine handmaid.  
+Praise waiteth for thee, O God, in Zion.  
 
-**Matt 14:14; Heb 13:8; Heb 4:15; Heb 5:2; Mark 14:37,38; Psa 103:13,14; Psa 86:15,16**
+**Isa 60:18; Rev 21:14; Eph 2:19-22,1 Pet 2:3; Psa 65:1**
 
 ---
 
-[Tuesday 07-February, 2023](https://t.me/s/daily_light)
+[Wednesday 08-February, 2023](https://t.me/s/daily_light)
 
 > Jonathan Bagster, the son of Samuel Bagster, created the Daily Light for his own family's daily devotion in 1875
 
