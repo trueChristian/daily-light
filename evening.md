@@ -1,11 +1,13 @@
 **Evening**
 
-**The trees of the Lord are full of sap.**
+**I beseech thee, shew me thy glory.**
  
-I will be as the dew unto Israel: he shall grow as the lily, and cast forth his roots as Lebanon. His branches shall spread, and his beauty shalt be as the olive tree, and his smell as Lebanon. -- Blessed is the man that trusteth in the Lord, and whose hope the Lord is. For he shall be as a tree planted by the waters, and that spreadeth out her roots by the river, and shall not see when heat cometh, but her leaf shall be green; and shall not be careful in the year of drought, neither shall cease from yielding fruit.
+God, who commanded the light to shine out of darkness, hath shined in our hearts, to give the light of the knowledge of the glory of God in the face of Jesus Christ. -- The Word was made flesh and dwelt among us, (and we beheld his glory, the glory as of the only begotten of the Father,) full of grace and truth ... No man hath seen God at any time; the only begotten Son, which is in the bosom of the Father, he hath declared him.
  
-I the Lord have brought down the high tree, have exalted the low tree, have dried up the green tree, and have made the dry tree to flourish. The righteous shall flourish like the palm tree: he shall grow like a cedar in Lebanon. Those that be planted in the house of the Lord shall flourish in the courts of our God. They shall still bring forth fruit in old age; they shall be fat and flourishing.  
+My soul thirsteth for God, for the living God: when shall I come and appear before God ? -- When thou saidst, Seek ye my face; my heart said unto thee, Thy face, Lord, will I seek.
+ 
+We all, with open face beholding as in a glass the glory of the Lord, are changed into the same image from glory to glory, even as by the Spirit of the Lord. -- Father, I will that they also, whom thou hast given me, be with me where I am; that they may behold my glory, which thou hast given me: for thou lovedst me before the foundation of the world.  
 
-**Psa 104:16; Hos 14:5,6; Jer 17:7,8; Eze 17:24; Psa 92:12**
+**Exo 33:18; 2 Cor 4:6; John 1:14,18; Psa 42:2; Psa 27:8; 2 Cor 3:18; John 17:24**
 
-[Saturday 11-February, 2023](https://t.me/daily_light)
+[Sunday 12-February, 2023](https://t.me/daily_light)
