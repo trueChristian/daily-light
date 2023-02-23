@@ -1,15 +1,13 @@
 **Evening**
 
-**When thou liest down, thou shall not be afraid: yea, thou shalt lie down, and thy sleep shall be sweet.**
+**Who knoweth the power of thine anger?**
  
-There arose a great storm of wind, and the waves beat into the ship, so that it was now full. And he was in the hinder part of the ship, asleep on a pillow.
+From the sixth hour there was darkness over all the land unto the ninth hour. And about the ninth hour Jesus cried with a loud voice, saying, <em>Eli, Eli, lama sabachthani?</em> that is to say, My God, my God, why hast thou forsaken me? -- The Lord hath laid on him the iniquity of us all.
  
-Be careful for nothing; but in every thing by prayer and supplication with thanksgiving let your requests be made known unto God. And the peace of God, which passeth all understanding, shall keep your hearts and minds through Christ Jesus.
+There is therefore now no condemnation to them which are in Christ Jesus. -- Being justified by faith, we have peace with God through our Lord Jesus Christ. -- Christ hath redeemed us from the curse of the law, being made a curse for us.
  
-I will both lay me down in peace, and sleep: for thou, Lord, only makest me dwell in safety. -- He giveth his beloved sleep.
- 
-They stoned Stephen, calling upon God, and saying, Lord Jesus, receive my spirit. And he kneeled down, and cried with a loud voice, Lord, lay not this sin to their charge. And when he had said this, he fell asleep. -- Absent from the body, ... present with the Lord.  
+God sent his only begotten Son into the world, that we might live through him. Herein is love, not that we loved God, but that he loved us, and sent his Son to be the propitiation for our sins. -- That he might be just, and the justifier of him which believeth in Jesus.  
 
-**Prov 3:24; Mark 4:37,38; Phl 4:6,7; Psa 4:8; Psa 127:2; Acts 7:59,60; 2 Cor 5:8**
+**Psa 90:11; Matt 27:45,46; Isa 53:6; Rom 8:1; Rom 5:1; Gal 3:13; 1 John 4:9,10; Rom 3:26**
 
-[Wednesday 22-February, 2023](https://t.me/daily_light)
+[Thursday 23-February, 2023](https://t.me/daily_light)
