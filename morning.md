@@ -1,13 +1,13 @@
 **Morning**
 
-**Thus saith the Lord God, I will yet for this be enquired of.**
+**Resist the devil, and he will flee from you.**
  
-Ye have not, because ye ask not.
+When the enemy shall come in like a flood, the Spirit of the Lord shall lift up a standard against him. -- Get thee hence, Satan: for it is written, Thou shalt worship the Lord thy God, and him only shalt thou serve. Then the devil leaveth him, and, behold, angels came and ministered unto him.
  
-Ask, and it shall be given you; seek, and ye shall find; knock, and it shall be opened unto you: for every one that asketh receiveth; and he that seeketh findeth; and to him that knocketh it shall be opened. -- This is the confidence that we have in him, that, if we ask anything according to his will, he heareth us: and if we know that he hear us, whatsoever we ask, we know that we have the petitions that we desired of him. -- If any of you lack wisdom, let him ask of God, that giveth to all men liberally, and upbraideth not; and it shall be given him. -- Open thy mouth wide, and I will fill it. -- Men ought always to pray, and not to faint.
+Be strong in the Lord, and in the power of his might. Put on the whole armour of God, that ye may he able to stand against the wiles of the devil. -- And have no fellowship with the unfruitful works of darkness, but rather reprove them. -- Lest Satan should get an advantage of us: for we are not ignorant of his devices. -- Be sober, be vigilant; because your adversary the devil, as a roaring lion, walketh about, seeking whom he may devour; whom resist stedfast in the faith, knowing that the same afflictions are accomplished in your brethren that are in the world. -- This is the victory that overcometh the world, even our faith.
  
-The eyes of the Lord are upon the righteous, and his ears are open unto their cry. The Lord heareth, and delivereth them out of all their troubles. -- Ye shall ask in my name; and I say not unto you, that I will pray the Father for you: for the Father himself loveth you, because ye have loved me. Ask, and ye shall receive, that your joy may be full.  
+Who shall lay anything to the charge of God's elect? It is God that justifieth.  
 
-**Ezek 36:37; Jas 4:2; Matt 7:7,8; 1 John 5:14,15; Jas 1:5; Psa 81:10; Luke 18:1; Psa 34:15,17; John 16:26,27,24**
+**Jas 4:7; Isa 59:19; Matt 4:10,11; Eph 6:10,11; Eph 5:11; 2 Cor 2:11; 1 Pet 5:8,9; 1 John 5:4; Rom 8:33**
 
-[Friday 24-February, 2023](https://t.me/daily_light)
+[Saturday 25-February, 2023](https://t.me/daily_light)
