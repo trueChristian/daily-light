@@ -1,15 +1,13 @@
 **Evening**
 
-**Fight the good fight of faith.**
+**My God, my God, why hast thou forsaken me?**
  
-We were troubled on every side; without were fightings, within were fears. -- Fear not: for they that be with us are more than they that be with them. -- Strong in the Lord, and in the power of his might.
+He was wounded for our transgressions, he was bruised for our iniquities: the chastisement of our peace was upon him; ... the Lord hath laid on him the iniquity of us all ... For the transgression of my people was he stricken ... It pleased the Lord to bruise him; he hath put him to grief.
  
-Thou comest to me with a sword, and with a spear, and with a shield: but I come to thee in the name of the Lord of hosts, the God of the armies of Israel, whom thou hast defied. -- God is my strength and power: ... he teacheth my hands to war; so that a bow of steel is broken by mine arms. -- Our sufficiency is of God.
+Jesus our Lord ... was delivered for our offences. -- Christ hath once suffered for sins, the just for the unjust, that he might bring us to God. -- Who his own self bare our sins in his own body on the tree, that we, being dead to sins, should live unto righteousness: by whose stripes ye were healed.
  
-The angel of the Lord encampeth round about them that fear him, and delivereth them. -- Behold, the mountain was full of horses and chariots of fire round about Elisha.
- 
-The time would fail me to tell of [those] who through faith subdued kingdoms, ... out of weakness were made strong, waxed valiant in fight, turned to flight the armies of the aliens.  
+He hath made him to be sin for us, who knew no sin; that we might be made the righteousness of God in him. Christ hath redeemed us from the curse of the law, being made a curse for us.  
 
-**1 Tim 6:12; 2 Cor 7:5; 2 Kgs 6:16; Eph 6:10; 1 Sam 17:45; 2 Sam 22:33,35; 2 Cor 3:5; Psa 34:7; 2 Kgs 6:17; Heb 11:32‑34**
+**Matt 27:46; Isa 53:5,6,8,10; Rom 4:24,25; 1 Pet 3:18; 1 Pet 2:24; 2 Cor 5:21; Gal 3:13**
 
-[Sunday 05-March, 2023](https://t.me/daily_light)
+[Monday 06-March, 2023](https://t.me/daily_light)
