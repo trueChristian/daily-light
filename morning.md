@@ -1,13 +1,11 @@
 **Morning**
 
-**Thou hast cast all my sins behind thy back.**
+**The living God giveth us richly all things to enjoy.**
  
-Who is a God like unto thee, that pardoneth iniquity, and passeth by the transgression of the remnant of his heritage? he retaineth not his anger forever, because he delighteth in mercy. He will turn again, he will have compassion upon us; he will subdue our iniquities; and thou wilt cast all their sins into the depths of the sea.
+Beware that thou forget not the Lord thy God, in not keeping his commandments, and his judgments, and his statutes, which I command thee this day: lest when thou hast eaten and art full, and hast built goodly houses, and dwelt therein; ... then thine heart be lifted up, and thou forget the Lord thy God: ... for it is he that giveth thee power to get wealth.
  
-For a small moment have I forsaken thee; but with great mercies will I gather thee. In a little wrath I hid my face from thee for a moment; but with everlasting kindness will I have mercy on thee, saith the Lord thy Redeemer. -- I will forgive their iniquity, and I will remember their sin no more.
- 
-Blessed is he whose transgression is forgiven, whose sin is covered. Blessed is the man unto whom the Lord imputeth not iniquity, and in whose spirit there is no guile. -- The blood of Jesus Christ his Son cleanseth us from all sin.  
+Except the Lord build the house, they labour in vain that build it: except the Lord keep the city, the watchman waketh but in vain. It is vain for you to rise up early, to sit up late, to eat the bread of sorrows: for so he giveth his beloved sleep. -- They got not the land in possession by their own sword, neither did their own arm save them: but thy right hand, and thine arm, and the light of thy countenance, because thou hadst a favour unto them -- There be many that say, Who will shew us any good? Lord, lift thou up the light of thy countenance upon us.  
 
-**Isa 38:17; Mic 7:18,19; Isa 54:7,8; Jer 31:34; Psa 32:1,2; 1 John 1:7**
+**1 Tim 6:17; Deut 8:11,12,14,18; Psa 127:1,2; Psa 44:3; Psa 4:6**
 
-[Wednesday 08-March, 2023](https://t.me/daily_light)
+[Thursday 09-March, 2023](https://t.me/daily_light)
