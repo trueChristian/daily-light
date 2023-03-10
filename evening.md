@@ -1,11 +1,15 @@
 **Evening**
 
-**They sang as it were a new song.**
+**The Lord will provide.**
  
-A new and living way, which he hath consecrated for us. -- Not by works of righteousness which we have done, but according to his mercy he saved us, by the washing of regeneration, and renewing of the Holy Ghost; which he shed on us abundantly through Jesus Christ our Saviour. -- By grace are ye saved through faith; and that not of yourselves: it is the gift of God; not of works, lest any man should boast.
+God will provide himself a lamb for a burnt offering.
  
-Not unto us, O Lord, not unto us, but unto thy name give glory. -- Unto him that loved us, and washed us from our sins in his own blood, and hath made us kings and priests unto God and Father; to him be glory and dominion for ever and ever. Amen. -- Thou wast slain, and hast redeemed us to God by thy blood out of every kindred, and tongue, and people, and nation. -- I beheld, and, lo, a great multitude, which no man could number, ... cried ... saying, Salvation to our God which sitteth upon the throne, and unto the Lamb.  
+Behold, the Lord's hand is not shortened, that it cannot save; neither his ear heavy, that it cannot hear. -- There shall come out of Sion the Deliverer, and shall turn away ungodliness from Jacob.
+ 
+Happy is he that hath the God of Jacob for his help, whose hope is in the Lord his God. -- Behold, the eye of the Lord is upon them that fear him, upon them that hope in his mercy; to deliver their soul from death.
+ 
+My God shall supply all your need, according to his riches in glory by Christ Jesus. -- He hath said, I will never leave thee, nor forsake thee. So that we may boldly say, The Lord is my helper, and I will not fear what man shall do unto me. -- The Lord is my strength and my shield; my heart trusteth in him, and I am helped: therefore my heart greatly rejoiceth: and with my song will I praise him.  
 
-**Rev 14:3; Heb 10:20; Tit 3:5,6; Eph 2:8,9; Psa 115:1; Rev 1:5; Rev 5:9; Rev 7:9,10**
+**Gen 22:14 (marg) Gen 22:8; Isa 59:1; Rom 11:26; Psa 146:5; Psa 33:18,19; Phl 4:19; Heb 13:5,6; Psa 28:7**
 
-[Thursday 09-March, 2023](https://t.me/daily_light)
+[Friday 10-March, 2023](https://t.me/daily_light)
