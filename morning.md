@@ -1,13 +1,15 @@
 **Morning**
 
-**The Lord will provide.**
+**The Lord bless thee, and keep thee.**
  
-God will provide himself a lamb for a burnt offering. Behold, the Lord's hand is not shortened, that it cannot save; neither his ear heavy, that it cannot hear. -- There shall come out of Sion the Deliverer, and shall turn away ungodliness from Jacob.
+The blessing of the Lord, it maketh rich, and he addeth no sorrow with it. -- Thou, Lord, wilt bless the righteous; with favour wilt thou compass him as with a shield.
  
-Happy is he that hath the God of Jacob for his help, whose hope is in the Lord his God. -- Behold, the eye of the Lord is upon them that fear him, upon them that hope in his mercy; to deliver their soul from death.
+He will not suffer thy foot to be moved: he that keepeth thee will not slumber. Behold, he that keepeth Israel shall neither slumber nor sleep. The Lord is thy keeper: the Lord is thy shade upon thy right hand. The Lord shall preserve thee from all evil: he shall preserve thy soul. The Lord shall preserve thy going out and thy coming in from this time forth, and even for evermore. -- I the Lord do keep it; I will water it every moment: lest any hurt it, I will keep it night and day.
  
-My God shall supply all your need, according to his riches in glory by Christ Jesus. -- He hath said, I will never leave thee, nor forsake thee. So that we may boldly say, The Lord is my helper, and I will not fear what man shall do unto me. -- The Lord is my strength and my shield; my heart trusteth in him, and I am helped: therefore my heart greatly rejoiceth: and with my song will I praise him.  
+Holy Father, keep through thine own name those whom thou hast given me. While I was with them in the world, I kept them in thy name: those that thou gavest me I have kept.
+ 
+The Lord shall deliver me from every evil work, and will preserve me unto his heavenly kingdom: to whom be glory for ever and ever. Amen.  
 
-**Gen 22:14; Gen 22:8; Isa 59:1; Rom 11:26; Psa 146:5; Psa 33:18,19; Phl 4:19; Heb 13:5,6; Psa 28:7**
+**Num 6:24; Prov 10:22; Psa 5:12; Psa 121:3,5,7,8; Isa 27:3; John 17:11,12; 2 Tim 4:18**
 
-[Friday 10-March, 2023](https://t.me/daily_light)
+[Saturday 11-March, 2023](https://t.me/daily_light)
