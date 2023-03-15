@@ -1,13 +1,13 @@
 **Evening**
 
-**The words that I speak unto you, they are spirit, and they are life.**
+**The Lord made heaven and earth, the sea, and all that in them is.**
  
-Of his own will begat he us with the word of truth. -- The letter killeth, but the spirit giveth life.
+The heavens declare the glory of God; and the firmament sheweth his handywork. -- By the word of the Lord were the heavens made; and all the host of them by the breath of his mouth. For he spake, and it was done; he commanded, and it stood fast. -- Behold, the nations are as a drop of a bucket, and are counted as the small dust of the balance: behold, he taketh up the isles as a very little thing.
  
-Christ ... loved the church, and gave himself for it; that he might sanctify and cleanse it with the washing of water by the word, that he might present it to himself a glorious church, not having spot, or wrinkle, or any such thing.
+Through faith we understand that the worlds were framed by the word of God, so that things which are seen were not made of things which do appear.
  
-Wherewithal shall a young man cleanse his way? by taking heed thereto according to thy word. Thy word hath quickened me. Thy word have I hid in mine heart, that I might not sin against thee. I will not forget thy word. I trust in thy word. The law of thy mouth is better unto me than thousands of gold and silver. I will never forget thy precepts: for with them thou hast quickened me. How sweet are thy words unto my taste! yea, sweeter than honey to my mouth! Through thy precepts I get understanding: therefore I hate every false way.  
+When I consider thy heavens, the work of thy fingers, the moon and the stars, which thou hast ordained; what is man, that thou art mindful of him? and the son of man, that thou visitest him?  
 
-**John 6:63; Jas 1:18; 2 Cor 3:6; Eph 5:25‑27; Psa 119:9,50,11,16,42,72,93,103,104**
+**Exo 20:11; Psa 19:1; Psa 33:6,9; Isa 40:15; Heb 11:3; Psa 8:3,4**
 
-[Tuesday 14-March, 2023](https://t.me/daily_light)
+[Wednesday 15-March, 2023](https://t.me/daily_light)
