@@ -1,13 +1,13 @@
 **Evening**
 
-**The Lord made heaven and earth, the sea, and all that in them is.**
+**I will sing with the spirit, and I will sing with the understanding also.**
  
-The heavens declare the glory of God; and the firmament sheweth his handywork. -- By the word of the Lord were the heavens made; and all the host of them by the breath of his mouth. For he spake, and it was done; he commanded, and it stood fast. -- Behold, the nations are as a drop of a bucket, and are counted as the small dust of the balance: behold, he taketh up the isles as a very little thing.
+Be filled with the Spirit, speaking to yourselves in psalms and hymns and spiritual songs, singing and making melody in your heart to the Lord. -- Let the word of Christ dwell in you richly in all wisdom; teaching and admonishing one another in psalms and hymns and spiritual songs, singing with grace in your hearts to the Lord.
  
-Through faith we understand that the worlds were framed by the word of God, so that things which are seen were not made of things which do appear.
+My mouth shall speak the praise of the Lord: and let all flesh bless his holy name for ever and ever. Praise ye the Lord: for it is good to sing praises unto our God; for it is pleasant; and praise is comely. Sing unto the Lord with thanksgiving; sing praise upon the harp unto our God.
  
-When I consider thy heavens, the work of thy fingers, the moon and the stars, which thou hast ordained; what is man, that thou art mindful of him? and the son of man, that thou visitest him?  
+I heard a voice from heaven, as the voice of many waters, and as the voice of a great thunder; and I heard the voice of harpers harping with their harps.  
 
-**Exo 20:11; Psa 19:1; Psa 33:6,9; Isa 40:15; Heb 11:3; Psa 8:3,4**
+**1 Cor 14:15; Eph 5:18,19; Col 3:16; Psa 145:21; Psa 147:1,7; Rev 14:2**
 
-[Wednesday 15-March, 2023](https://t.me/daily_light)
+[Thursday 16-March, 2023](https://t.me/daily_light)
