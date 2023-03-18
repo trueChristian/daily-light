@@ -1,15 +1,15 @@
 **Evening**
 
-**In all points tempted like as we are, yet without sin.**
+**His name shall be in their foreheads.**
  
-When the woman saw that the tree was good for food (the lust of the flesh), and that it was pleasant to the eyes (the lust of the eyes), and a tree to be desired to make one wise (the pride of life), she took of the fruit thereof, and did eat, and gave also unto her husband with her; and he did eat.
+I am the good shepherd, and know my sheep. -- The foundation of God standeth sure, having this seal, The Lord knoweth them that are his. And, Let every one that nameth the name of Christ depart from iniquity.
  
-When the tempter came to [Jesus], he said, if thou be the Son of God, command that these stones be made bread (the lust of the flesh). But he answered, ... Man shall not live by bread alone, but by every word that proceedeth out of the mouth of God. The devil ... sheweth him all the kingdoms of the world, and the glory of them (the lust of the eyes, and the pride of life). Then saith Jesus unto him, Get thee hence, Satan.
+The Lord is good, a strong hold in the day of trouble; and he knoweth them that trust in him. -- Hurt not the earth, neither the sea, nor the trees, till we have sealed the servants of our God in their foreheads.
  
-In that he himself hath suffered being tempted, he is able to succour them that are tempted.
+After that ye believed, ye were sealed with that holy Spirit of promise, which is the earnest of our inheritance. -- Now he which stablisheth us with you in Christ, and hath anointed us, is God; who hath also sealed us, and given the earnest of the Spirit in our hearts.
  
-Blessed is the man that endureth temptation.  
+I will write upon him the name of my God, and the name of the city of my God, which is new Jerusalem, which cometh down out of heaven from my God: and I will write upon him my new name. -- This is the name wherewith she shall be called, The Lord our Righteousness.  
 
-**Heb 4:15; Gen 3:6; 1 John 2:16; Matt 4:3,4,8‑10; 1 John 2:16; Heb 2:18; Jas 1:12**
+**Rev 22:4; John 10:14; 2 Tim 2:19; Nah 1:7, ‑rev 7:3; Eph 1:13,14; 2 Cor 1:21,22; Rev 3:12; Jer 33:16**
 
-[Friday 17-March, 2023](https://t.me/daily_light)
+[Saturday 18-March, 2023](https://t.me/daily_light)
