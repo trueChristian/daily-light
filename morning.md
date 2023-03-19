@@ -1,13 +1,15 @@
 **Morning**
 
-**Mine eyes fail with looking upward.**
+**God, having raised up his Son Jesus, sent him to bless you, in the turning away every one of you from his iniquities.**
  
-Have mercy upon me, O Lord; for I am weak: O Lord, heal me; for my bones are vexed. -- My soul is also sore vexed: but thou, O Lord, how long? Return, O Lord, deliver my soul: oh save me for thy mercies' sake. -- My heart is sore pained within me: and the terrors of death are fallen upon me. Fearfulness and trembling are come upon me, and horror hath overwhelmed me. And I said, Oh that I had wings like a dove! for then would I fly away, and be at rest.
+Blessed be the God and Father of our Lord Jesus Christ, which according to his abundant mercies hath begotten us again unto a lively hope by the resurrection of Jesus Christ from the dead. -- Saved by his life.
  
-Ye have need of patience.
+Our Saviour Jesus Christ ... who gave himself for us that he might redeem us from all iniquity, and purify unto himself a peculiar people, zealous of good works. -- As he which hath called you is holy, so be ye holy in all manner of conversation; because it is written, Be ye holy for I am holy.
  
-While they looked stedfastly toward heaven as he went up, behold, two men stood by them in white apparel; which also said, Ye men of Galilee, why stand ye gazing up into heaven? this same Jesus, which is taken up from you into heaven, shall so come in like manner as ye have seen him go into heaven. -- Our conversation is in heaven; from whence also we look for the Saviour, the Lord Jesus Christ. -- That blessed hope,... the glorious appearing of the great God and our Saviour Jesus Christ.  
+The God and Father of our Lord Jesus Christ, ... hath blessed us with all spiritual blessings in heavenly places in Christ. -- In him dwelleth all the fulness of the Godhead bodily. And ye are complete in him. -- Of his fulness have all we received, and grace for grace.
+ 
+He that spared not his own son, but delivered him up for us all, how shall he not with him also freely give us all things?  
 
-**Isa 38:14; Psa 6:2‑4; Psa 55:4‑6; Heb 10:36; Acts 1:10,11‑phl 3:20; Tit 2:13**
+**Acts 3:26; 1 Pet 1:3; Rom 5:10; Tit 2:13,14; 1 Pet 1:15,16; Eph 1:3; Col 2:9,10; John 1:16; Rom 8:32**
 
-[Saturday 18-March, 2023](https://t.me/daily_light)
+[Sunday 19-March, 2023](https://t.me/daily_light)
