@@ -1,13 +1,11 @@
 **Morning**
 
-**The entrance of thy words giveth light.**
+**Be watchful, and strengthen the things which remain, that are ready to die.**
  
-This ... is the message which we have heard of him, and declare unto you, that God is light, and in him is no darkness at all. -- God, who commanded the light to shine out of darkness, hath shined in our hearts, to give the light of the knowledge of the glory of God in the face of Jesus Christ. -- The Word was God. In him was life; and the life was the light of men. -- If we walk in the light, as he is in the light, we have fellowship one with another and the blood of Jesus Christ his Son cleanseth us from all sin.
+The end of all things is at hand: be ye therefore sober, and watch unto prayer. -- Be sober, be vigilant; because your adversary the devil, as a roaring lion, walketh about, seeking whom he may devour. -- Take heed to thyself, and keep thy soul diligently, lest thou forget the things which thine eyes have seen, and lest they depart from thy heart all the days of thy life. -- The just shall live by faith: but if any man draw back, my soul shall have no pleasure in him. But we are not of them who draw back unto perdition; but of them that believe to the saving of the soul.
  
-Thy word have I hid in mine heart, that I might not sin against thee. -- Ye are clean through the word which I have spoken unto you.
- 
-Ye were sometimes darkness, but now are ye light in the Lord: walk as children of light. -- Ye are a chosen generation, a royal priesthood, a holy nation, a peculiar people; that ye should shew forth the praises of him who hath called you out of darkness into his marvellous light.  
+What I say unto you I say unto all, Watch. Fear thou not; for I am with thee: be not dismayed; for I am thy God: I will strengthen thee; yea, I will help thee; yea, I will uphold thee with the right hand of my righteousness. I the Lord thy God will hold thy right hand.  
 
-**Psa 119:130; 1 John 1:5; 2 Cor 4:6; John 1:1,4; 1 John 1:7; Psa 119:11; John 15:3; Eph 5:8; 1 Pet 2:9**
+**Rev 3:2; 1 Pet 4:7; 1 Pet 5:8; Deut 4:9; Heb 10:38,39; Mark 13:37; Isa 41:10,13**
 
-[Monday 20-March, 2023](https://t.me/daily_light)
+[Tuesday 21-March, 2023](https://t.me/daily_light)
