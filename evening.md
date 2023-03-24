@@ -1,13 +1,15 @@
 **Evening**
 
-**They constrained him, saying, Abide with us.**
+**God hath called you unto his kingdom and glory.**
  
-Behold, I stand at the door, and knock: if any man hear my voice, and open the door, I will come in to him, and will sup with him, and he with me. -- Tell me, O thou whom my soul loveth, where thou feedest, where thou makest thy flock to rest at noon: for why should I be as one that turneth aside by the flocks of thy companions? -- I found him whom my soul loveth: I held him, and would not let him go.
+My kingdom is not of this world: if my kingdom were of this world, then would my servants fight, ... but now is my kingdom not from hence. -- Expecting till his enemies be made his footstool.
  
-Let my beloved come into his garden. and eat his pleasant fruits. -- I am come into my garden. -- I said not unto the seed of Jacob, Seek ye me in vain.
+The kingdoms of this world are become the kingdoms of our Lord, and of his Christ; and he shall reign for ever and ever. -- Thou hast made us unto our God kings and priests: and we shall reign on the earth. -- I saw thrones, and they sat upon them, and judgment was given unto them; ... and they lived and reigned with Christ a thousand years. -- Then shall the righteous shine forth as the sun in the kingdom of their Father. -- Fear not, little flock; for it is your Father's good pleasure to give you the kingdom.
  
-Lo, I am with you alway, even unto the end of the world. -- I will never leave thee, nor forsake thee. -- Where two or three are gathered together in my name, there am I in the midst of them. -- The world seeth me no more; but, ye see me.  
+I appoint unto you a kingdom, as my Father hath appointed unto me; that ye may eat and drink at my table in my kingdom, and sit on thrones judging the twelve tribes of Israel.
+ 
+Thy kingdom come.  
 
-**Luke 24:29; Rev 3:20; Song 1:7; Song 1:4; Song 4:16; Song 5:1; Isa 45:19; Matt 28:20; Heb 13:5; Matt 18:20; John 14:19**
+**1 Thes 2:12; John 18:36; Heb 10:13; Rev 11:15; Rev 5:10; Rev 20:4; Matt 13:43; Luke 12:32; Luke 22:29,30; Matt 6:10**
 
-[Thursday 23-March, 2023](https://t.me/daily_light)
+[Friday 24-March, 2023](https://t.me/daily_light)
