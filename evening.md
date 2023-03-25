@@ -1,15 +1,15 @@
 **Evening**
 
-**God hath called you unto his kingdom and glory.**
+**Master, we have toiled all the night, and have taken nothing; nevertheless at thy word I will let down the net.**
  
-My kingdom is not of this world: if my kingdom were of this world, then would my servants fight, ... but now is my kingdom not from hence. -- Expecting till his enemies be made his footstool.
+All power is give unto me in heaven and in earth. Go ye therefore and teach all nations, baptizing them in the name of the Father, and of the Son, and of the Holy Ghost: ... and, lo, I am with you alway, even unto the end of the world.
  
-The kingdoms of this world are become the kingdoms of our Lord, and of his Christ; and he shall reign for ever and ever. -- Thou hast made us unto our God kings and priests: and we shall reign on the earth. -- I saw thrones, and they sat upon them, and judgment was given unto them; ... and they lived and reigned with Christ a thousand years. -- Then shall the righteous shine forth as the sun in the kingdom of their Father. -- Fear not, little flock; for it is your Father's good pleasure to give you the kingdom.
+The kingdom of heaven is like unto a net, that was cast into the sea.
  
-I appoint unto you a kingdom, as my Father hath appointed unto me; that ye may eat and drink at my table in my kingdom, and sit on thrones judging the twelve tribes of Israel.
+Though I preach the gospel, I have nothing to glory of: necessity is laid upon me; yea, woe is unto me, if I preach not gospel! I am made all things to all men, that I might by all means save some.
  
-Thy kingdom come.  
+Let us not be weary in well doing: for in due season we shall reap, if we faint not. -- My word ... shall not return unto me void, but it shall accomplish that which I please. -- So then neither is he that planteth any thing, neither he that watereth; but God that giveth the increase.  
 
-**1 Thes 2:12; John 18:36; Heb 10:13; Rev 11:15; Rev 5:10; Rev 20:4; Matt 13:43; Luke 12:32; Luke 22:29,30; Matt 6:10**
+**Luke 5:5; Matt 28:18‑20; Matt 13:47; 1 Cor 9:16,22; Gal 6:9; Isa 55:11; 1 Cor 3:7**
 
-[Friday 24-March, 2023](https://t.me/daily_light)
+[Saturday 25-March, 2023](https://t.me/daily_light)
