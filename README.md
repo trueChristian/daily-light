@@ -1,34 +1,30 @@
 # Morning
 
-**I will never leave thee, nor forsake thee.**
+**The kingdom of heaven is as a man travelling into a far country, who called his own servants, and delivered unto them his goods ... to every man according to his several ability.**
  
-So that we may boldly say, The Lord is my helper, and I will not fear what man shall do unto me.
+Know ye not, that to whom ye yield yourselves servants to obey, his servants ye are to whom ye obey?
  
-Behold, I am with thee, and will keep thee in all places whither thou goest, and will bring thee again into this land; for I will not leave thee, until I have done that which I have spoken to thee of. -- Be strong and of a good courage, fear not, nor be afraid of them: for the Lord thy God, he it is that doth go with thee; he will not fail thee, nor forsake thee.
+All these worketh that one and the selfsame Spirit, dividing to every man severally as he will. The manifestation of the Spirit is given to every man to profit withal. -- As every man hath received the gift, even so minister the same one to another, as good stewards of the manifold grace of God. -- It is required in stewards, that a man be found faithful. --Unto whomsoever much is given, of him shall be much required: and to whom men have commited much, of him they will ask the more.
  
-Demas hath forsaken me, having loved this present world. At my first answer no man stood with me, but all men forsook me: I pray God that it may not be laid to their charge. Notwithstanding the Lord stood with me, and strengthened me. -- When my father and my mother forsake me, then the Lord will take me up.
- 
-Look, I am with you always, even unto the end of the world. -- I am he that liveth, and was dead; and, behold, I am alive for evermore. -- I will not leave you comfortless; I will come to you. -- My peace I give unto you.  
+Who is sufficient for these things? -- I can do all things through Christ which strengtheneth me.  
 
-**Heb 13:5; Heb 13:6; Gen 28:15; Deut 31:6; 2 Tim 4:10,16,17; Psa 27:10; Matt 28:20; Rev 1:18; John 14:18; John 14:27**
+**Matt 23:14,13; Rom 6:16; 1 Cor 12:11,7; 1 Pet 4:10; 1 Cor 4:2; Luke 12:48; 2 Cor 2:16; Phl 4:13**
 
 # Evening
 
-**Master, we have toiled all the night, and have taken nothing; nevertheless at thy word I will let down the net.**
+**Distributing to the necessity of saints.**
  
-All power is give unto me in heaven and in earth. Go ye therefore and teach all nations, baptizing them in the name of the Father, and of the Son, and of the Holy Ghost: ... and, lo, I am with you alway, even unto the end of the world.
+David said, Is there yet any that is left ... of the house of Saul, that I may shew him kindness for Jonathan's sake?
  
-The kingdom of heaven is like unto a net, that was cast into the sea.
+Come, ye blessed of my Father, inherit the kingdom prepared for you from the foundation of the world: for I was an hungered, and ye gave me meat: I was thirsty, and ye gave me drink: I was a stranger, and ye took me in: naked, and ye clothed me: I was sick, and ye visited me: I was in prison, and ye came unto me. Inasmuch as ye have done it unto one of the least of these my brethren, ye have done it unto me. -- Whosoever shall give to drink one of these little ones a cup of cold water only in the name of a disciple, verily I say unto you, he shall in no wise lose his reward.
  
-Though I preach the gospel, I have nothing to glory of: necessity is laid upon me; yea, woe is unto me, if I preach not gospel! I am made all things to all men, that I might by all means save some.
- 
-Let us not be weary in well doing: for in due season we shall reap, if we faint not. -- My word ... shall not return unto me void, but it shall accomplish that which I please. -- So then neither is he that planteth any thing, neither he that watereth; but God that giveth the increase.  
+To do good and to communicate forget not: for with such sactifices God is well pleased. -- God is not unrighteous to forget your work and labour of love, which ye have shewed toward his name, in that ye have ministered to the saints, and do minister.  
 
-**Luke 5:5; Matt 28:18‑20; Matt 13:47; 1 Cor 9:16,22; Gal 6:9; Isa 55:11; 1 Cor 3:7**
+**Rom 12:13; 2 Sam 9:1; Matt 25:34‑36,40; Matt 10:42; Heb 13:16; Heb 6:10**
 
 ---
 
-[Saturday 25-March, 2023](https://t.me/s/daily_light)
+[Sunday 26-March, 2023](https://t.me/s/daily_light)
 
 > Jonathan Bagster, the son of Samuel Bagster, created the Daily Light for his own family's daily devotion in 1875
 
