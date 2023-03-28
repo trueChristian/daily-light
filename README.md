@@ -1,32 +1,30 @@
 # Morning
 
-**To him that soweth righteousness shall be a sure reward.**
+**Be strong and of a good courage.**
  
-After a long time the lord of those servants cometh, and reckoneth with them. And so he that had received five talents came and brought other five talents, saying, Lord, thou deliveredst unto me five talents: behold, I have gained beside them five talents more. His lord said unto him, Well done, thou good and faithful servant: thou hast been faithful over a few things, I will make thee ruler over many things; enter thou into the joy of thy lord.
+The Lord is my light and my salvation: whom shall I fear? the Lord is the strength of my life: of whom shall I be afraid? -- He giveth power to the faint; and to them that have no might he increaseth strength. Even the youths shall faint and be weary, and the young men shall utterly fall: but they that wait upon the Lord shall renew their strength; they shall mount up with wings as eagles; they shall run, and not be weary; and they shall walk, and not faint. -- My flesh and my heart faileth: but God is the strength of my heart, and my portion for ever.
  
-We must all appear before the judgment seat of Christ; that every one may receive the things done in his body, according to that he hath done, whether it be good or bad.
+If God be for us, who can be against us? -- The Lord is on my side; I will not fear: what can man do unto me? -- Through thee will we push down our enemies: through thy name will we tread them under that rise up against us. -- We are more than conquerors through him that loved us.
  
-I have fought a good fight, I have finished my course, I have kept the faith: henceforth there is laid up for me a crown of righteousness, which the Lord, the righteous judge, shall give me at that day: and not to me only, but unto all them also that love his appearing.
- 
-Behold, I come quickly: hold that fast which thou hast, that no man take thy crown.  
+Arise therefore, and be doing, and the Lord be with thee.  
 
-**Prov 11:18; Matt 25:19‑21; 2 Cor 5:10; 2 Tim 4:7,8; Rev 3:11**
+**Josh 1:18; Psa 27:1; Isa 40:29‑31; Psa 73:26; Rom 8:31; Psa 118:6; Psa 44:5; Rom 8:37; 1 Chr 22:16**
 
 # Evening
 
-**God is faithful.**
+**Our friend sleepeth.**
  
-God is not a man that he should lie; neither the Son of man that he should repent: hath he said, and shall he not do it? or hath he spoken, and shall he not make it good? -- The Lord sware and will not repent.
+I would not have you to be ignorant, brethren, concerning them which are asleep, that ye sorrow not, even as others which have no hope. For if we believe that Jesus died and rose again, even so them also which sleep in Jesus will God bring with him.
  
-God, willing more abundantly to shew unto the heirs of promise the immutability of his counsel, confirmed it by an oath: that by two immutable things, in which it was impossible for God to lie, we might have a strong consolation, who have fled for refuge to lay hold upon the hope set before us. -- Wherefore let them that suffer according to the will of God commit the keeping of their souls to him in well doing, as unto a faithful Creator.
+If the dead rise not, then is not Christ raised: and if Christ be not raised, your faith is vain; ye are yet in your sins. Then they also which are fallen asleep in Christ are perished. But now is Christ risen from the dead, and become the firstfruits of them that slept.
  
-I know whom I have believed, and am persuaded that he is able to keep that which I have committed unto him against that day -- Faithful is he that calleth you, who also will do it. -- All the promises of God in him are yea, and in him Amen, unto the glory of God by us.  
+It came to pass, when all the people were clean passed over Jordan, that the Lord spake unto Joshua, saying, Take you hence out of the midst of Jordan, out of the place where the priests' feet stood firm, twelve stones ... and these stones shall be for a memorial unto the children of Israel for ever. -- This Jesus hath God raised up, whereof we all are witnesses. -- Witnesses chosen before of God, ... who did eat and drink with him after he rose from the dead.  
 
-**1 Cor 10:13; Num 23:19; Heb 7:21; Heb 6:17,18; 1 Pet 4:19; 2 Tim 1:12; 1 Thes 5:24; 2 Cor 1:20**
+**John 11:11; 1 Thes 4:13,14; 1 Cor 15:16‑18,20; Josh 4:1,3,7; Acts 2:32; Acts 10:41**
 
 ---
 
-[Monday 27-March, 2023](https://t.me/s/daily_light)
+[Tuesday 28-March, 2023](https://t.me/s/daily_light)
 
 > Jonathan Bagster, the son of Samuel Bagster, created the Daily Light for his own family's daily devotion in 1875
 
