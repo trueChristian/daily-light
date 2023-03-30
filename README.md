@@ -1,28 +1,32 @@
 # Morning
 
-**Come, ye blessed of my Father, inherit the kingdom prepared for you from the foundation of the world.**
+**Isaac went out to meditate in the field at the eventide.**
  
-Fear not, little flock; for it is your Father's good pleasure to give you the kingdom. -- Hath not God chosen the poor of this world rich in faith, and heirs of the kingdom which he hath promised to them that love him? -- Heirs of God, and joint‑heirs with Christ; if so be that we suffer with him, that we may be also glorified together.
+Let the words of my mouth, and the meditation of my heart, be acceptable in thy sight, O Lord, my strength, and my redeemer.
  
-The Father himself loveth you, because ye have loved me. -- God is not ashamed to be called their God: for he hath prepared for them a city.
+When I consider thy heavens, the work of thy fingers, the moon and the stars, which thou hast ordained; what is man, that thou art mindful of him? and the son of man, that thou visitest him? -- The works of the Lord are great, sought out of all them that have pleasure therein.
  
-He that overeometh shall inherit all things; and I will be his God, and he shall be my son. -- There is laid up for me a crown of righteousness, which the Lord, the righteous judge, shall give me at that day: and not to me only, but unto all them also that love his appearing. -- He which hath begun a good work in you will perform it until the day of Jesus Christ.  
+Blessed is the man that walketh not in the counsel of the ungodly, nor standeth in the way of sinners, nor sitteth in the seat of the scornful. But his delight is in the law of the Lord; and in his law doth he meditate day and night. -- This book of the law shall not depart out of thy mouth; but thou shalt meditate therein day and night. -- My soul shall be satisfied as with marrow and fatness; and my mouth shall praise thee with joyful lips: when I remember thee upon my bed, and meditate on thee in the night watches.  
 
-**Matt 25:34; Luke 12:32; Jas 2:5; Rom 8:17; John 16:27; Heb 11:16; Rev 21:7; 2 Tim 4:8; Phl 1:6**
+**Gen 24:63; Psa 19:14; Psa 8:3,4; Psa 111:2; Psa 1:1,2; Josh 1:8; Psa 63:5,6**
 
 # Evening
 
-**Riches are not forever; and doth the crown endure to every generation?**
+**How long wilt thou forget me, O Lord! for ever? how long wilt thou hide thy face from me?**
  
-Surely every man walketh in a vain shew: surely they are disquieted in vain: he heapeth up riches, and knoweth not who shall gather them. -- Set your affection on things above, not on things on the earth. -- Lay not up for yourselves treasures upon earth, where moth and rust doth corrupt, and where thieves break through and steal: but lay up for yourselves treasures in heaven. For where your treasure is, there will your heart be also.
+Every good gift, and every perfect gift is from above, and cometh down from the Father of lights, with whom is no variableness, neither shadow of turning. -- But Zion said, The Lord hath forsaken me, and my Lord hath forgotten me. Can a woman forget her suckling child, that she should not have compassion on the son of her womb? yea, they may forget, yet will I not forget thee.
  
-They do it to obtain a corruptible crown, but we an incorruptble. -- We look not at the things which are seen but at the things which are not seen. -- To him that soweth righteousness shall be a sure reward. -- There is laid up for me a crown of righteousness which the Lord, the righteous judge, shall give me at that day, and not to me only but unto all them also that love his appearing. -- A crown of glory that fadeth not away.  
+Thou shalt not be forgotten of me. I have blotted out, as a thick cloud, thy transgressions, and, as a cloud, thy sins.
+ 
+Jesus loved Martha, and her sister, and Lazarus. When he had heard therefore that he was sick, he abode two days still in the same place where he was. -- A woman ... cried unto him, saying, Have mercy on me, O Lord, thou son of David! But he answered her not a word.
+ 
+The trial of your faith, being much more precious than of gold that perisheth.  
 
-**Prov 27:24; Psa 39:6; Col 3:2; Matt 6:19‑21; 1 Cor 9:25; 2 Cor 4:18; Prov 11:18; 2 Tim 4:8; 1 Pet 5:4**
+**Psa 13:1; Jas 1:17; Isa 49:14,15; Isa 44:21,22; John 11:5,6; Matt 15:22,23; 1 Pet 1:7**
 
 ---
 
-[Wednesday 29-March, 2023](https://t.me/s/daily_light)
+[Thursday 30-March, 2023](https://t.me/s/daily_light)
 
 > Jonathan Bagster, the son of Samuel Bagster, created the Daily Light for his own family's daily devotion in 1875
 
