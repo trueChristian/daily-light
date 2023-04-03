@@ -1,30 +1,30 @@
 # Morning
 
-**If ye do return unto the Lord with all your hearts, then put away the strange gods and Ashtaroth from among you, and prepare your hearts unto the Lord, and serve him only.**
+**Beloved, be not ignorant of this one thing, that one day is with the Lord as a thousand years, and a thousand years as one day. The Lord is not slack concerning his promise, as some men count slackness.**
  
-Little children, keep yourselves from idols. -- Come out from among them, and be ye separate, saith the Lord, and touch not the unclean thing; and I will receive you, and will be a Father you, and ye shall be my sons and daughters, saith the Lord Almighty. -- Ye cannot serve God and Mammon.
+My thoughts are not your thoughts, neither are your ways my ways, saith the Lord. For as the heavens are higher than the earth, so are my ways higher than your ways, and my thoughts than your thoughts. For as the rain cometh down, and the snow from heaven, and returneth not thither, but watereth the earth, ... so shall my word be that goeth forth out of my mouth: it shall not return unto me void, but it shall acomplish that which I please, and it shall prosper in the thing whereto I sent it.
  
-Thou shalt worship no other god: for the Lord, whose name is Jealous, is a jealous God. -- Serve him with a perfect heart with a willing mind: for the Lord searcheth all hearts, and understandeth all the imaginations of the thoughts.
- 
-Behold, thou desireth truth in the inward parts: and in the hidden part thou shalt make me to know wisdom. -- Man looketh on the outward appearance, but the Lord looketh on the heart. -- Beloved, if our heart condemn us not, then have we confidence toward God.  
+God hath concluded them all in unbelief, that he might have mercy upon all. O the depth of the riches both of the wisdom and knowledge of God! how unsearchable are his judgments, and his ways past finding out!  
 
-**1 Sam 7:3; 1 John 5:21; 2 Cor 6:17,18; Matt 6:24; Exo 34:14; 1 Chr 28:9; Psa 51:6; 1 Sam 16:7; 1 John 3:21**
+**2 Pet 3:8,9; Isa 55:8‑11; Rom 11:32,33**
 
 # Evening
 
-**When the Son of man cometh, shall he find faith on the earth?**
+**Ye were as a firebrand plucked out of the burning.**
  
-He came unto his own, and his own received him not. -- The Spirit speaketh expressly, that in the latter times some shall from the faith.
+The sinners in Zion are afraid; fearfulness hath surprised the hypocrites. Who among us shall dwell with the devouring fire? who among us shall dwell with everlasting burnings? -- We had the sentence of death in ourselves, that we should not trust in ourselves, but in God which raiseth the dead: who delivered us from so great a death, and doth deliver: in whom we trust that he will yet deliver us. -- The wages of sin is death; but the gift of God is eternal life through Jesus Christ our Lord.
  
-Preach the word; be instant in season, out of season; reprove rebuke, exhort with all longsuffering and doctrine. For the time will come when they will not endure sound doctrine; but after their own lusts shall they heap to themselves teachers, having itching ears; and they shall turn away their ears from the truth and shall be turned unto fables.
+It is a fearful thing to fall into the hands of the living God. -- Knowing therefore the terror of the Lord, we persuade men.
  
-Of that day and that hour knoweth no man, no, not the angels which are in heaven, neither the Son, but the Father. Take ye heed, watch and pray: for ye know not when the time is. -- Blessed are those servants, whom the lord when he cometh shall find watching. -- Looking for that blessed hope, ... the glorious appearing of the great God, and our Saviour Jesus Christ,  
+Be instant in season, out of season. -- Others save with fear, pulling them out of the fire.
+ 
+Not by might, nor by power, but by my Spirit, saith the Lord of hosts. -- Who will have all men to be saved, and to come unto the knowledge of the truth.  
 
-**Luke 18:8; John 1:11; 1 Tim 4:1; 2 Tim 4:2-4; Mark 13:32,33; Luke 12:37; Tit 2:13**
+**Amos 4:11; Isa 33:14; 2 Cor 1:9,10; Rom 6:23; Heb 10:31; 2 Cor 5:11; 2 Tim 4:2; Jude 23; Zech 4:6; 1 Tim 2:4**
 
 ---
 
-[Sunday 02-April, 2023](https://t.me/s/daily_light)
+[Monday 03-April, 2023](https://t.me/s/daily_light)
 
 > Jonathan Bagster, the son of Samuel Bagster, created the Daily Light for his own family's daily devotion in 1875
 

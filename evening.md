@@ -1,13 +1,15 @@
 **Evening**
 
-**When the Son of man cometh, shall he find faith on the earth?**
+**Ye were as a firebrand plucked out of the burning.**
  
-He came unto his own, and his own received him not. -- The Spirit speaketh expressly, that in the latter times some shall from the faith.
+The sinners in Zion are afraid; fearfulness hath surprised the hypocrites. Who among us shall dwell with the devouring fire? who among us shall dwell with everlasting burnings? -- We had the sentence of death in ourselves, that we should not trust in ourselves, but in God which raiseth the dead: who delivered us from so great a death, and doth deliver: in whom we trust that he will yet deliver us. -- The wages of sin is death; but the gift of God is eternal life through Jesus Christ our Lord.
  
-Preach the word; be instant in season, out of season; reprove rebuke, exhort with all longsuffering and doctrine. For the time will come when they will not endure sound doctrine; but after their own lusts shall they heap to themselves teachers, having itching ears; and they shall turn away their ears from the truth and shall be turned unto fables.
+It is a fearful thing to fall into the hands of the living God. -- Knowing therefore the terror of the Lord, we persuade men.
  
-Of that day and that hour knoweth no man, no, not the angels which are in heaven, neither the Son, but the Father. Take ye heed, watch and pray: for ye know not when the time is. -- Blessed are those servants, whom the lord when he cometh shall find watching. -- Looking for that blessed hope, ... the glorious appearing of the great God, and our Saviour Jesus Christ,  
+Be instant in season, out of season. -- Others save with fear, pulling them out of the fire.
+ 
+Not by might, nor by power, but by my Spirit, saith the Lord of hosts. -- Who will have all men to be saved, and to come unto the knowledge of the truth.  
 
-**Luke 18:8; John 1:11; 1 Tim 4:1; 2 Tim 4:2-4; Mark 13:32,33; Luke 12:37; Tit 2:13**
+**Amos 4:11; Isa 33:14; 2 Cor 1:9,10; Rom 6:23; Heb 10:31; 2 Cor 5:11; 2 Tim 4:2; Jude 23; Zech 4:6; 1 Tim 2:4**
 
-[Sunday 02-April, 2023](https://t.me/daily_light)
+[Monday 03-April, 2023](https://t.me/daily_light)
