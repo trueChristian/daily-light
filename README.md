@@ -1,30 +1,30 @@
 # Morning
 
-**Fear not; I am the first and the last.**
+**I will not let thee go, except thou bless me.**
  
-Ye are not come unto the mount that might be touched, and that burned with fire, nor unto blackness, and darkness, and tempest, but ye are come unto mount Sion, ... to God the Judge of all, and to the spirits of just men made perfect, and to Jesus the mediator of the new covenant. -- Jesus the author and finisher of our faith. -- We have not a high priest which cannot be touched with the feeling of our infirmities; but was in all points tempted like as we are, yet without sin. Let us therefore come boldly unto the throne of grace, that we may obtain mercy, and find grace to help in time of need.
+Let him take hold of my strength, that he may make peace with me; and he shall make peace with me.
  
-Thus saith the Lord the King of Israel, aud his redeemer the Lord of hosts; I am the first, and I am the last; and beside me there is no God. -- The mighty God, The everlasting Father, The Prince of Peace.
+O woman, great is thy faith; be it unto thee even as thou wilt. -- According to your faith be it unto you. -- Let him ask in faith, nothing wavering. For he that wavereth is like a wave of the sea driven with the wind and tossed. For let not that man think that he shall receive any thing of the Lord.
  
-Art thou not from everlasting, O Lord my God, mine Holy One? -- Who is God, save the Lord? and who is a rock, save our God?  
+They drew nigh unto the village, whither they went: and [Jesus] made as though he would have gone further. But they constrained him, saying, Abide with us: ... he vanished out of their sight. And they said one to another, Did not our heart burn within us, while he talked with us by the way, and while he opened to us the scriptures? -- I pray thee, if I have found grace in thy sight, shew me now thy way, that I may know thee, that I may find grace in thy sight. -- My presence shall go with thee, and I will give thee rest.  
 
-**Rev 1:17; Heb 12:18,22‑24; Heb 12:2; Heb 4:15,16; Isa 44:6; Isa 9:6; Hab 1:12; 2 Sam 22:32**
+**Gen 32:26; Isa 27:5; Matt 15:28; Matt 9:29; Jas 1:6,7; Luke 24:28,29,31,32; Exo 33:13; Exo 33:14**
 
 # Evening
 
-**Lead me to the rock that is higher than I.**
+**Jesus the author and finisher of our faith.**
  
-Be careful for nothing; but in every thing by prayer and supplication with thanksgiving let your requests be made known unto God. And the peace of God, which passeth all understanding, shall keep your hearts and minds through Christ Jesus.
+I am Alpha and Omega, the beginning and the ending, saith the Lord, which is, and which was, and which is to come, the Almighty. -- Who hath wrought and done it, calling the generations from the beginning? I the Lord, the first, and with the last: I am he.
  
-When my spirit was overwhelmed within me, then thou knewest my path. -- He knoweth the way that I take: when he hath tried me, I shall come forth as gold. -- Lord, thou hast been our dwelling place in all generations. -- Thou hast been a strength to the poor, a strength to the needy in his distress, a refuge from the storm, a shadow from the heaven.
+Sanctified by God the Father, and preserved in Jesus Christ. -- The very God of peace sanctify you wholly: and I pray God your whole spirit and soul and body be preserved blameless unto the coming of our Lord Jesus Christ. Faithful is he that calleth you, who also will do it. -- He which hath begun a good work in you will perform it until the day of Jesus Christ. -- Are ye so foolish? having begun in the Spirit, are ye now made perfect by the flesh? -- The Lord will perfect that which concerneth me.
  
-Who is a rock save our God? -- They shall never perish, neither shall any man pluck them out of my hand. -- Uphold me according unto thy word, that I may live: and let me not be ashamed of my hope. -- Which hope we have as an anchor of the soul, both sure and stedfast, and which entereth into that within the veil.  
+It is God which worketh in you both to will and to do of his good pleasure.  
 
-**Psa 61:2; Phl 4:6,7; Psa 142:3; Job 23:10; Psa 90:1; Isa 25:4; Psa 18:31; John 10:28; Psa 119:116; Heb 6:19**
+**Heb 12:2; Rev 1:8; Isa 41:4; Jude 1:1; 1 Thes 5:23,24; Phl 1:6; Gal 3:3; Psa 138:8; Phl 2:13**
 
 ---
 
-[Tuesday 04-April, 2023](https://t.me/s/daily_light)
+[Wednesday 05-April, 2023](https://t.me/s/daily_light)
 
 > Jonathan Bagster, the son of Samuel Bagster, created the Daily Light for his own family's daily devotion in 1875
 
