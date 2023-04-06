@@ -1,9 +1,12 @@
-name: "Load Today's Light!"
+name: "Load Today's Light Telegram ID!"
 
 on:
   # run once per/day
   schedule:
-    - cron: '15 0 * * *'
+    - cron: '35 14 * * *'
+    - cron: '35 1 * * *'
+  # so we can manually update
+  workflow_dispatch:
 
 jobs:
   build:
@@ -22,7 +25,10 @@ jobs:
       - name: Clone Master Repository
         run: |
           /bin/git clone git@github.com:trueChristian/daily-light.git daily_light
-      - name: Build the Daily Light
+      - name: Build the Daily Scripture Telegram ID
+        env:
+          BOT_TOKEN: ${{ secrets.DAILY_LIGHT_BOT_TOKEN }}
+          CHANNEL_ID: ${{ secrets.TG_DAILY_LIGHT_GROUP_ID }}
         run: |
           cd daily_light
-          /bin/bash ./src/today.sh
+          /bin/bash ./src/telegram.sh
