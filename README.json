@@ -21,6 +21,7 @@
       "Deut 33:27"
     ]
   },
+  "joomla": "https://git.vdm.dev/christian/mod_dailylight",
   "morning": {
     "body": [
       "We ... rejoice in hope of the glory of God. And not only so, but we glory in tribulations also. -- I am filled with comfort, I am exceeding joyful in all our tribulation. -- Believing, ye rejoice with joy unspeakable and full of glory.",
@@ -40,5 +41,5 @@
     ]
   },
   "source": "https://github.com/trueChristian/daily-light",
-  "telegram": "https://t.me/s/daily_light"
+  "telegram": "daily_light"
 }

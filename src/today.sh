@@ -13,6 +13,7 @@ command -v git >/dev/null 2>&1 || {
 #█████████████████████████████████████████████████████████████████ GLOBALS ███
 # global config options
 DRY_RUN=0
+DO_GIT=1
 # the date
 TODAY=$(TZ="Africa/Windhoek" date '+%B-%d')
 TODAY_DATE=$(TZ="Africa/Windhoek" date '+%A %d-%B, %Y')
@@ -23,6 +24,9 @@ while :; do
   case $1 in
   --dry)
     DRY_RUN=1
+    ;;
+  --git-off)
+    DO_GIT=0
     ;;
   -t | --today) # Takes an option argument; ensure it has been specified.
     if [ "$2" ]; then
@@ -181,15 +185,17 @@ JSON="$(
         --arg date_key "$DATE_KEY" \
         --argjson morning "$MORNING_JSON" \
         --argjson evening "$EVENING_JSON" \
-        --arg telegram "https://t.me/s/daily_light" \
-        --arg source "https://github.com/trueChristian/daily-light" '
+        --arg telegram "daily_light" \
+        --arg source "https://github.com/trueChristian/daily-light" \
+        --arg joomla "https://git.vdm.dev/christian/mod_dailylight" '
         {
             date_name: $date_name,
             date_key: $date_key,
             morning: $morning,
             evening: $evening,
             telegram: $telegram,
-            source: $source
+            source: $source,
+            joomla: $joomla
         }
     '
 )"
@@ -233,14 +239,18 @@ else
 
   #██████████████████████████████████████████████████████████████ SET README ███
 
-   echo "${README}" > README.md
+  echo "${README}" > README.md
 
   #████████████████████████████████████████████████████████████████ SET JSON ███
 
-   jq <<<"$JSON" -S . >README.json
+  jq <<<"$JSON" -S . >README.json
 
-  git commit -am"${TODAY_DATE}"
-  git push
+  #██████████████████████████████████████████████████████████████ UPDATE GIT ███
+  if (("$DO_GIT" == 1)); then
+    git add .
+    git commit -am"${TODAY_DATE}"
+    git push
+  fi
 fi
 
 exit 0
