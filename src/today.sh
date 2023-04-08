@@ -181,7 +181,7 @@ EVENING_JSON=$(processSection "${E_TIME_N}" "${DAILYLIGHT[$E_TIME_M]}" "${DAILYL
 # Build the final JSON object
 JSON='{}'
 JSON="$(
-    jq -n --arg date_name "$DATE_NAME" \
+    jq -n --arg date_name "$TODAY_DATE" \
         --arg date_key "$DATE_KEY" \
         --argjson morning "$MORNING_JSON" \
         --argjson evening "$EVENING_JSON" \
