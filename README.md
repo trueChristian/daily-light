@@ -1,32 +1,30 @@
 # Morning
 
-**In everything ye are enriched by him.**
+**Fear not; for I have redeemed thee.**
  
-When we were yet without strength, in due time Christ died for the ungodly. -- He that spared not his own Son, but delivered him up for us all, how shall be not with him also freely give us all things?
+Fear not; for thou shalt not be ashamed: neither be thou confounded; for thou shalt not be put to shame: for thou shalt forget the shame of thy youth, and shalt not remember the reproach of thy widowhood any more. -- For thy Maker is thine husband; the Lord of hosts is his name; and thy Redeemer the Holy One of Israel. -- I have blotted out, as a thick cloud, thy transgressions, and, as a cloud, thy sins: return unto me; for I have redeemed thee. -- With the precious blood of Christ, as of a lamb without blemish and without spot.
  
-In him dwelleth all the fulness of the Godhead bodily. And ye are complete in him, which is the head of all principality and power.
+Their Redeemer is strong; the Lord of hosts is his name: he shall throughly plead their cause. -- My Father, which gave them me, is greater than all; and no man is able to pluck them out of my Father's hand.
  
-Abide in me, and I in you. As the branch cannot bear fruit of itself, except it abide in the vine; no more can ye, except ye abide in me. I am the vine ye are the branches: he that abideth in me and I in him, the same bringeth forth much fruit: for without me ye can do nothing. -- To will is present with me; but how to perform that which is good I find not. -- Unto every one of us is given grace according to the measure of the gift of Christ.
- 
-If ye abide in me, and my words abide in you, ye shall ask what ye will, and it shall be done unto you. -- Let the word of Christ dwell in you richly in all wisdom.  
+Grace be to you and peace from God the Father, and from our Lord Jesus Christ, who gave himself for our sins, that he might deliver us from this present evil world, according to the will of God and our Father: to whom be glory for ever and ever. Amen.  
 
-**1 Cor 1:5; Rom 5:6; Rom 8:32; Col 2:9,10; John 15:4,5; Rom 7:18; Eph 4:7; John 15:7; Col 3:16**
+**Isa 43:1; Isa 54:4,5; Isa 44:22; 1 Pet 1:19; Jer 50:34; John 10:29; Gal 1:3‑5**
 
 # Evening
 
-**They shall see his face.**
+**I will mention the lovingkindnesses of the Lord, and the praises of the Lord, according to all that the Lord hath bestowed on us.**
  
-I beseech thee shew me thy glory. And he said, Thou canst not see my face: for there shall no man see me, and live. -- No man hath seen God at any time; the only begotten Son, which is in the bosom of the Father, he hath declared him.
+He brought me up ... out of an horrible pit, out of the miry clay, and set my feet upon a rock, and established my goings. -- The Son of God ... loved me, and gave himself for me. -- He that spared not his own Son, but delivered him up for us all, how shall he not with him also freely give us all things? -- God commendeth love toward us, in that, while we were yet sinners, Christ died us.
  
-Every eye shall see him, and they also which pierced him: and all kindreds of the earth shall wail because of him. -- I shall see him, but not now: I shall behold him, but not nigh.
+Who hath also sealed us, and given the earnest of the Spirit in our hearts. -- Which is the earnest of our inheritance until the redemption of the purchased possession, unto the praise of his glory.
  
-I know that my Redeemer liveth, and that he shall stand at the latter day upon the earth: and though after my skin worms destroy this body, yet in my flesh shall I see God. -- I will behold thy face in righteousness: I shall be satisfied, when I awake, with thy likeness. -- We shall be like him; for we shall see him as he is. -- The Lord himself shall descend from heaven ... the dead in Christ shall rise first: then we which are alive and remain shall be caught up together with them in the clouds, to meet the Lord in the air: and so shall we ever be with the Lord.  
+God, who is rich in mercy, for his great love wherewith he loved us, even when we were dead in sins, hath quickened us together with Christ, (by grace ye are saved;) and hath raised us up together, and made us sit together in heavenly places in Christ Jesus.  
 
-**Rev 22:4; Exo 33:18,20; John 1:18; Rev 1:7; Num 24:17; Job 19:25,26; Psa 17:15; 1 John 3:2; 1 Thes 4:16,17**
+**Isa 43:7; Psa 40:2; Gal 2:20; Rom 8:32; Rom 5:8; 2 Cor 1:22; Eph 1:14; Eph 2:4‑6**
 
 ---
 
-[Saturday 08-April, 2023](https://t.me/s/daily_light)
+[Sunday 09-April, 2023](https://t.me/s/daily_light)
 
 > Jonathan Bagster, the son of Samuel Bagster, created the Daily Light for his own family's daily devotion in 1875
 
