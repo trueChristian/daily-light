@@ -1,44 +1,43 @@
 {
-  "date_key": "april-10",
-  "date_name": "Monday 10-April, 2023",
+  "date_key": "april-11",
+  "date_name": "Tuesday 11-April, 2023",
   "evening": {
     "body": [
-      "I am come to set a man at variance against his father, and the daughter against her mother and the daughter‑in‑law against her mother‑in‑law. And a man's foes shall be they of his own household. -- Whosoever ... will be a friend of the world is the enemy of God. -- Love not the world, neither the things that are in the world. If any man love the world the love of the Father is not in him. For all that is in the world, the lust of the flesh, and the lust of the eyes, and the pride of life, is not of the Father, but is of the world.",
-      "If the world hate you, ye know that it hated me before it hated you. If ye were of the world, the world would love his own: but because ye are not of the world, but I have chosen you out of the world, therefore the world hateth you. The servant is not greater than his lord. -- I have given them thy word; and the world hath hated them, because they are not of the world, even as I am not of the world."
+      "I will instruct thee and teach thee in the way which thou shalt go: I will guide thee with mine eye. -- Good and upright is the Lord: therefore will he teach sinners in the way. The meek will he guide in judgment: and the meek will he teach his way.",
+      "I am the door: by me if any man enter in, he shall be saved, and shall go in and out, and find pasture.",
+      "Jesus saith unto him, I am the way, the truth, and the life: no man cometh unto the Father, but by me. -- Having ... boldness to enter into the holiest by the blood of Jesus, by a new and living way, which he hath consecrated for us, through the veil, that is to say, his flesh; and having an high priest over the house of God; let us draw near with a true heart in full assurance of faith.",
+      "Then shall we know, if we follow on to know the Lord. -- All the paths of the Lord are mercy and truth unto such as keep his covenant and his testimonies."
     ],
-    "header": "All that will live godly in Christ Jesus shall suffer persecution.",
+    "header": "Teach me thy way, O Lord.",
     "name": "Evening",
     "references": [
-      "Matt 10:35,36",
-      "Jas 4:4",
-      "1 John 2:15,16",
-      "John 15:18‑20",
-      "John 17:14"
+      "Psa 32:8",
+      "Psa 25:8,9",
+      "John 10:9",
+      "John 14:6",
+      "Heb 10:19‑22",
+      "Hos 6:3",
+      "Psa 25:10"
     ]
   },
   "joomla": "https://git.vdm.dev/christian/mod_dailylight",
   "morning": {
     "body": [
-      "Behold, I was shapen in iniquity; and in sin did my mother conceive me. -- Thy renown went forth among the heathen for thy beauty: for it was perfect through my comeliness, which I had put upon thee, saith the Lord God. I am a sinful man, O Lord. -- Behold, thou art fair, my love; behold, thou art fair. I abhor myself, and repent in dust and ashes. -- Thou art all fair, my love; there is no spot in thee.",
-      "When I would do good, evil is present with me. -- Be of good cheer; thy sins be forgiven thee. I know that in me (that is, in my flesh) dwelleth no good thing -- Ye are complete in him. -- Perfect in Christ Jesus.",
-      "Ye are washed, ... ye are sanctified, ... ye are justified in the name of the Lord Jesus, and by the Spirit of our God. -- That ye should shew forth the praises of him who hath called you out of darkness into his marvellous light."
+      "My beloved brethren, let every man be swift to hear, slow to speak, slow to wrath. -- He that is slow to anger is better than the mighty: and he that ruleth his spirit than he that taketh a city. -- If any man offend not in word, the same is a perfect man, and able to bridle the whole body. -- By thy words thou shalt be justified and by thy words thou shalt be condemned. -- Set a watch, Lord, before my mouth; keep the door of my lips.",
+      "Christ ... suffered for us, leaving us an example, that ye should follow his steps: who did no sin, neither was guile found in his mouth: who when he was reviled, reviled not again; when he suffered, he threatened not; but committed himself to him that judgeth righteously. -- Consider him that endured such contradiction of sinners against himself, lest ye be wearied and faint in your minds.",
+      "In their mouth was found no guile: for they are without fault before the throne of God."
     ],
-    "header": "I am black, but comely.",
+    "header": "In the multitude of words there wanteth not sin: but he that refraineth his lips is wise.",
     "name": "Morning",
     "references": [
-      "Psa 51:5",
-      "Ezek 16:14",
-      "Luke 5:8",
-      "Song 4:1",
-      "Job 42:6",
-      "Song 4:7",
-      "Rom 7:21",
-      "Matt 9:2",
-      "Rom 7:18",
-      "Col 2:10",
-      "Col 1:28",
-      "1 Cor 6:11",
-      "1 Pet 2:9"
+      "Jas 1:19",
+      "Prov 16:32",
+      "Jas 3:2",
+      "Matt 12:37",
+      "Psa 141:3",
+      "1 Pet 2:21‑23",
+      "Heb 12:3",
+      "Rev 14:5"
     ]
   },
   "source": "https://github.com/trueChristian/daily-light",

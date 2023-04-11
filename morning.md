@@ -1,13 +1,13 @@
 **Morning**
 
-**I am black, but comely.**
+**In the multitude of words there wanteth not sin: but he that refraineth his lips is wise.**
  
-Behold, I was shapen in iniquity; and in sin did my mother conceive me. -- Thy renown went forth among the heathen for thy beauty: for it was perfect through my comeliness, which I had put upon thee, saith the Lord God. I am a sinful man, O Lord. -- Behold, thou art fair, my love; behold, thou art fair. I abhor myself, and repent in dust and ashes. -- Thou art all fair, my love; there is no spot in thee.
+My beloved brethren, let every man be swift to hear, slow to speak, slow to wrath. -- He that is slow to anger is better than the mighty: and he that ruleth his spirit than he that taketh a city. -- If any man offend not in word, the same is a perfect man, and able to bridle the whole body. -- By thy words thou shalt be justified and by thy words thou shalt be condemned. -- Set a watch, Lord, before my mouth; keep the door of my lips.
  
-When I would do good, evil is present with me. -- Be of good cheer; thy sins be forgiven thee. I know that in me (that is, in my flesh) dwelleth no good thing -- Ye are complete in him. -- Perfect in Christ Jesus.
+Christ ... suffered for us, leaving us an example, that ye should follow his steps: who did no sin, neither was guile found in his mouth: who when he was reviled, reviled not again; when he suffered, he threatened not; but committed himself to him that judgeth righteously. -- Consider him that endured such contradiction of sinners against himself, lest ye be wearied and faint in your minds.
  
-Ye are washed, ... ye are sanctified, ... ye are justified in the name of the Lord Jesus, and by the Spirit of our God. -- That ye should shew forth the praises of him who hath called you out of darkness into his marvellous light.  
+In their mouth was found no guile: for they are without fault before the throne of God.  
 
-**Song 1:5; Psa 51:5; Ezek 16:14; Luke 5:8; Song 4:1; Job 42:6; Song 4:7; Rom 7:21; Matt 9:2; Rom 7:18; Col 2:10; Col 1:28; 1 Cor 6:11; 1 Pet 2:9**
+**Prov 10:19; Jas 1:19; Prov 16:32; Jas 3:2; Matt 12:37; Psa 141:3; 1 Pet 2:21‑23; Heb 12:3; Rev 14:5**
 
-[Monday 10-April, 2023](https://t.me/daily_light)
+[Tuesday 11-April, 2023](https://t.me/daily_light)
