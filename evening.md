@@ -1,15 +1,15 @@
 **Evening**
 
-**Teach me thy way, O Lord.**
+**All have sinned, and come short of the glory of God.**
  
-I will instruct thee and teach thee in the way which thou shalt go: I will guide thee with mine eye. -- Good and upright is the Lord: therefore will he teach sinners in the way. The meek will he guide in judgment: and the meek will he teach his way.
+There is none righteous, no, not one: there is none that doeth good, no, not one. -- There is not a just man upon earth, that doeth good, and sinneth not. -- How can he be clean that is born of a woman?
  
-I am the door: by me if any man enter in, he shall be saved, and shall go in and out, and find pasture.
+Let us therefore fear, lest a promise being left us of entering into his rest, any of you should seem to come short of it. I acknowledge my transgressions: and my sin is ever before me. Behold, I was shapen in iniquity; and in sin did my mother conceive me.
  
-Jesus saith unto him, I am the way, the truth, and the life: no man cometh unto the Father, but by me. -- Having ... boldness to enter into the holiest by the blood of Jesus, by a new and living way, which he hath consecrated for us, through the veil, that is to say, his flesh; and having an high priest over the house of God; let us draw near with a true heart in full assurance of faith.
+The Lord ... hath put away thy sin; thou shalt not die. -- Whom he justified, them he also glorified. -- We all, with open face beholding as in a glass the glory of the Lord, are changed into the same image from glory to glory, even as by the Spirit of the Lord. -- If ye continue in the faith grounded and settled, and be not moved away from the hope of the gospel.
  
-Then shall we know, if we follow on to know the Lord. -- All the paths of the Lord are mercy and truth unto such as keep his covenant and his testimonies.  
+Walk worthy of God, who hath called you unto his kingdom and glory.  
 
-**Psa 27:11; Psa 32:8; Psa 25:8,9; John 10:9; John 14:6; Heb 10:19‑22; Hos 6:3; Psa 25:10**
+**Rom 3:23; Rom 3:10,12; Eccl 7:20; Job 25:4; Heb 4:1; Psa 51:3,5; 2 Sam 12:13; Rom 8:30; 2 Cor 3:18; Col 1:23; 1 Thes 2:12**
 
-[Tuesday 11-April, 2023](https://t.me/daily_light)
+[Wednesday 12-April, 2023](https://t.me/daily_light)
