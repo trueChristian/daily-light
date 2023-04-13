@@ -1,15 +1,17 @@
 **Evening**
 
-**All have sinned, and come short of the glory of God.**
+**There shall be no night there.**
  
-There is none righteous, no, not one: there is none that doeth good, no, not one. -- There is not a just man upon earth, that doeth good, and sinneth not. -- How can he be clean that is born of a woman?
+The Lord shall be unto thee an everlasting light, and thy God thy glory.
  
-Let us therefore fear, lest a promise being left us of entering into his rest, any of you should seem to come short of it. I acknowledge my transgressions: and my sin is ever before me. Behold, I was shapen in iniquity; and in sin did my mother conceive me.
+The city had no need of the sun, neither of the moon, to shine in it: for the glory of God did lighten it, and the Lamb is the light thereof. -- They need no candle, neither light of the sun; for the Lord God giveth them light.
  
-The Lord ... hath put away thy sin; thou shalt not die. -- Whom he justified, them he also glorified. -- We all, with open face beholding as in a glass the glory of the Lord, are changed into the same image from glory to glory, even as by the Spirit of the Lord. -- If ye continue in the faith grounded and settled, and be not moved away from the hope of the gospel.
+Ye are a chosen generation, a royal priesthood, an holy nation, a peculiar people; that ye should shew forth the praises of him who hath called you out of darkness into his marvellous light. -- Giving thanks unto the Father, which hath made us meet to be partakers of the inheritance of the saints in light: who hath delivered us from the power of darkness, and hath translated us into the kingdom of his dear Son. -- Ye were sometime darkness, but now are ye light in the Lord: walk as children of light.
  
-Walk worthy of God, who hath called you unto his kingdom and glory.  
+We are not of the night, nor of darkness.
+ 
+The path of the just is as the shining light, that shineth more and more unto the perfect day.  
 
-**Rom 3:23; Rom 3:10,12; Eccl 7:20; Job 25:4; Heb 4:1; Psa 51:3,5; 2 Sam 12:13; Rom 8:30; 2 Cor 3:18; Col 1:23; 1 Thes 2:12**
+**Rev 21:25; Isa 60:19; Rev 21:24; Rev 22:5; 1 Pet 2:9; Col 1:12,13; Eph 5:8; 1 Thes 5:5; Prov 4:18**
 
-[Wednesday 12-April, 2023](https://t.me/daily_light)
+[Thursday 13-April, 2023](https://t.me/daily_light)
