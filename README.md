@@ -1,34 +1,34 @@
 # Morning
 
-**Honour the Lord with thy substance, and with the firstfruits of all thine increase.**
+**My soul shall be satisfied as with marrow and fatness; and my mouth shall praise thee with joyful lips: when I remember thee upon my bed, and meditate on thee in the night watches.**
  
-He which soweth sparingly shall reap also sparingly; and he which soweth bountifully shall reap also bountifully. -- Upon the first day of the week let every one of you lay by him in store, as God hath prospered him.
+How precious ... are thy thoughts unto me, O God! how great is the sum of them! If I should count them, they are more in number than the sand: when I awake, I am still with thee. -- How sweet are thy words unto my taste! yea, sweeter than honey to my mouth! -- Thy love is better than wine.
  
-God is not unrighteous to forget your work and labour of love, which ye have shewed toward his name, in that ye have ministered to the saints and do minister.
+Whom have I in heaven but thee? and there is none upon earth that I desire beside thee. -- Thou art fairer than the children of men.
  
-I beseech you ... brethren, by the mercies of God, that ye present your bodies a living sacrifice, holy, acceptable unto God, which is your reasonable service. -- The love of Christ constraineth us; because we thus judge, that if one died for all, then were all dead: and that he died for all, that they which live should not henceforth live unto themselves. but unto him which died for them, and rose again. -- Whether therefore ye eat, or drink, or whatsoever ye do, do all to the glory of God.  
+As the apple tree among the trees of the wood, so is my beloved among the sons. I sat down under his shadow with great delight, and his fruit was sweet to my taste. He brought me to the banqueting house, and his banner over me was love. -- His countenance is as Lebanon, excellent as the cedars. His mouth is most sweet: yea, he is altogether lovely. This is my beloved, and this is my friend.  
 
-**Prov 3:9; 2 Cor 9:6; 1 Cor 16:2; Heb 6:10; Rom 12:l; 2 Cor 5:14,15; 1 Cor 10:31**
+**Psa 63:5,6; Psa 139:17,18; Psa 119:103; Song 1:2; Psa 73:25; Psa 45:2; Song 2:3,4; Song 5:15,16**
 
 # Evening
 
-**There shall be no night there.**
+**Restore unto me the joy of thy salvation.**
  
-The Lord shall be unto thee an everlasting light, and thy God thy glory.
+I have seen his ways, and will heal him: I will lead him also, and restore comforts unto him and to his mourners.
  
-The city had no need of the sun, neither of the moon, to shine in it: for the glory of God did lighten it, and the Lamb is the light thereof. -- They need no candle, neither light of the sun; for the Lord God giveth them light.
+Come now, and let us reason together, saith the Lord: though your sins be as scarlet, they shall be as white as snow; though they be red like crimson, they shall be as wool. -- Return, ye backsliding children, and I will heal your backslidings. Behold, we come unto thee; for thou art the Lord our God. -- I will hear what God the Lord will speak: for he will speak peace unto his people, and to his saints: but let them not turn again to folly.
  
-Ye are a chosen generation, a royal priesthood, an holy nation, a peculiar people; that ye should shew forth the praises of him who hath called you out of darkness into his marvellous light. -- Giving thanks unto the Father, which hath made us meet to be partakers of the inheritance of the saints in light: who hath delivered us from the power of darkness, and hath translated us into the kingdom of his dear Son. -- Ye were sometime darkness, but now are ye light in the Lord: walk as children of light.
+Bless the Lord, O my soul, and forget not all his benefits: who forgiveth all thine iniquities; who healeth all thy diseases. -- He restoreth my soul. -- O Lord, I will praise thee: though thou wast angry with me, thine anger is turned away, and thou comfortedst me.
  
-We are not of the night, nor of darkness.
+Hold thou me up, and I shall be safe.
  
-The path of the just is as the shining light, that shineth more and more unto the perfect day.  
+I, even I, am he that blotteth out thy transgressions for mine own sake, and will not remember thy sins.  
 
-**Rev 21:25; Isa 60:19; Rev 21:24; Rev 22:5; 1 Pet 2:9; Col 1:12,13; Eph 5:8; 1 Thes 5:5; Prov 4:18**
+**Psa 51:12; Isa 57:18; Isa 1:18; Jer 3:22; Psa 85:8; Psa 103:2,3; Psa 23:3; Isa 12:1; Psa 119:117; Isa 43:25**
 
 ---
 
-[Thursday 13-April, 2023](https://t.me/s/daily_light)
+[Friday 14-April, 2023](https://t.me/s/daily_light)
 
 > Jonathan Bagster, the son of Samuel Bagster, created the Daily Light for his own family's daily devotion in 1875
 
