@@ -1,13 +1,13 @@
 **Morning**
 
-**Whoso offereth praise glorifieth me.**
+**I will raise them up a Prophet from among their brethren, like unto thee.**
  
-Let the word of Christ dwell in you richly in all wisdom; teaching and admonishing one another in psalms and hymns and spiritual songs, singing with grace in your hearts to the Lord. And whatsoever ye do in word or deed, do all in the name of the Lord Jesus, giving thanks to God and the Father by him. -- Glorify God in your body, and in your spirit, which are God's.
+[Moses] stood between the Lord and you at that time, to shew you the word of the Lord: for ye were afraid. -- There is one God, and one mediator between God and men, the man Christ Jesus.
  
-Ye are a royal priesthood ... that ye should shew forth the praises of him who hath called you out of darkness into his marvelous light. -- Ye ... as lively stones, are built up a spiritual house, a holy priesthood, to offer up spiritual sacrifices, acceptable to God by Jesus Christ. -- By him ... let us offer the sacrifice of praise to God continually, that is, the fruit of our lips, giving thanks to his name.
+Now the man Moses was very meek, above all the men which were upon the face of the earth. -- Take my yoke upon you, and learn of me; for I am meek and lowly in heart: and ye shall find rest unto your souls. -- Let this mind be in you, which was also in Christ Jesus: who, being in the form of God, thought it not robbery to be equal with God: but made himself of no reputation, and took upon him the form of a servant, and was made in the likeness of men.
  
-My soul shall make her boast in the Lord: the humble shall hear thereof, and be glad. O magnify the Lord with me, and let us exalt his name together.  
+Moses verily was faithful in all his house, as a servant, for a testimony of those things which were to be spoken after; but Christ as a son over his own house; whose house are we, if we hold fast the confidence and the rejoicing of the hope firm unto the end.  
 
-**Psa 50:23; Col 3:16,17; 1 Cor 6:20; 1 Pet 2:9; 1 Pet 2:5; Heb 13:15; Psa 34:2,3**
+**Deut 18:18; Deut 5:5; 1 Tim 2:5; Num 12:3; Matt 11:29; Phl 2:57; Heb 3:5,6**
 
-[Monday 17-April, 2023](https://t.me/daily_light)
+[Tuesday 18-April, 2023](https://t.me/daily_light)
