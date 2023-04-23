@@ -1,13 +1,13 @@
 **Morning**
 
-**If his offering be a burnt sacrifice of the herd, let him offer a male without blemish: he shall offer it of his own voluntary will. And he shall put his hand upon the head of the burnt offering; and it shall be accepted for him to make atonement for him.**
+**The Lord was my stay.**
  
-God will provide himself a lamb for a burnt offering. -- Behold the Lamb of God, which taketh away the sin of the world. -- We are sanctified through the offering of the body of Jesus Christ once for all. -- A ransom for many.
+Truly in vain is salvation hoped for from the hills, and from the multitude of mountains: truly in the Lord our God is the salvation of Israel. -- The Lord is my rock, and my fortress, and my deliverer; my God, my strength, in whom I will trust; my buckler, and the horn of my salvation, and my high tower. -- Cry out and shout, thou inhabitant of Zion; for great is the Holy One of Israel in the midst of thee.
  
-No man taketh it from me, but I lay it down of myself. I have power to lay it down, and I have power to take it again. -- I will love them freely. -- The Son of God ... loved me and gave himself for me.
+The angel of the Lord encampeth round about them that fear him, and delivereth them. The righteous cry, and the Lord heareth, and delivereth them out of all their troubles. -- The eternal God is thy refuge, and underneath are the everlasting arms. -- So that we may boldly say, The Lord is my helper, and I will not fear what man shall do unto me. -- For who is God save the Lord? or who is a rock save our God? It is God that girdeth me with strength, and maketh my way perfect.
  
-He hath made him to be sin for us, who knew no sin; that we might be made the righteousness of God in him. -- He hath made us accepted in the beloved.  
+By the grace of God I am what I am.  
 
-**Lev 1:3,4; Gen 22:8; John 1:29; Heb 10:10; Matt 20:28; John 10:18; Hos 14:4; Gal 2:20; 2 Cor 5:21; Eph 1:6**
+**Psa 18:8; Jer 3:23; Psa 18:2; Isa 12:6; Psa 34:7,17; Deut 33:27; Heb 13:6; Psa 18:31,32; 1 Cor 15:10**
 
-[Saturday 22-April, 2023](https://t.me/daily_light)
+[Sunday 23-April, 2023](https://t.me/daily_light)
