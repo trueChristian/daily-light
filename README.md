@@ -1,28 +1,30 @@
 # Morning
 
-**The Lord visited Sarah as he had said, and the Lord did unto Sarah as he had spoken.**
+**Thou shalt call his name JESUS: for he shall save his people from their sins**
  
-Trust in him at all times; ye people, pour out your heart before him: God is a refuge for us. -- David encouraged himself in the Lord his God. -- God will surelv visit you, and bring you out of this land unto the land which he sware to Abraham, to Isaac, and to Jacob. -- I have seen, I have seen the affliction of my people which is in Egypt. and I have heard their groaning, and am come down to deliver them. He brought them out, after that he had shewed wonders and signs in the land of Egypt, and in the Red sea, and in the wilderness forty years. -- There failed not ought of any good thing which the Lord had spoken unto the house of Israel: all came to pass.
+Ye know that he was manifested to take away our sins. -- That we, being dead to sins, should live unto righteousness. -- He is able also to save them to the uttermost that come unto God by him.
  
-He is faithful that promised. -- Hath he said, and shall he not do it? or hath he spoken, and shall he not make it good? -- Heaven and earth shall pass away, but my words shall not pass away -- The grass withereth, the flower fadeth: but the word of our God shall stand for ever.  
+He was wounded for our transgressions, he was bruised for our iniquities: the chastisement of our peace was upon him; and with his stripes we are healed. The Lord hath laid on him the iniquity of us all. -- Thus it behoved Christ to suffer, ... that repentance and remission of sins should be preached in his name among all nations. -- He appeared to put away sin by the sacrifice of himself.
+ 
+Him hath God exalted with his right hand to be a Prince and a Saviour, ... to give repentance. -- Through this man is preached unto you the forgiveness of sins: and by him all that believe are justified from all things, from which ye could not be justified by the law of Moses. -- Your sins are forgiven you for his name's sake.  
 
-**Gen 21:1; Psa 62:8; 1 Sam 30: 6; Gen 50:24; Acts 7:34,36; Josh 21:45; Heb 10:23; Num 23:19; Matt 24:35; Isa 40:8**
+**Matt 1:21; John 3:5; 1 Pet 2:24; Heb 7:25; Isa 53:5,6; Luke 24:46,47; Heb 9:26; Acts 5:31; Acts 13:38,39; 1 John 2:12**
 
 # Evening
 
-**The eyes of all wait upon thee.**
+**Our Lord Jesus Christ, ... though he was rich, yet for your sakes ... became poor, that ye through his poverty might be rich.**
  
-He giveth to all life, and breath, and all things. -- The Lord is good to all: and his tender mercies are over all his works. -- Behold the fowls of the air: for they sow not, neither do they reap, nor gather into barns; yet your heavenly Father feedeth them.
+It pleased the Father that in him should all fulness dwell. -- The brightness of his glory, and the express image of his person, and upholding all things by the word of his power, when he had by himself purged our sins, sat down on the right hand of the Majesty on high; being made so much better than the angels, as he hath by inheritance obtained a more excellent name than they. -- Who, being in the form of God, thought it not robbery to be equal with God: but made himself of no reputation.
  
-The same Lord over all is rich unto all that call upon him. I will lift up mine eyes unto the hills, from whence cometh my help. -- Behold, as the eyes of servants look unto the hand of their masters, and as the eyes of a maiden unto the hand of her mistress; so our eyes wait upon the Lord our God.
+The foxes have holes, and the birds of the air have nests; but the Son of man hath not where to lay his head.
  
-The Lord is a God of judgment: blessed are all they that wait for him. -- And it shall be said in that day, Lo, this is our God; we have waited for him, and he will save us: this is the Lord; we have waited for him, we will be glad and rejoice in his salvation. -- If we hope for that we see not, then do we with patience wait for it.  
+All things are yours; whether Paul, or Apollos, or Cephas, or the world, or life, or death, or things present, or things to come; all are yours; and ye are Christ’s; and Christ is God's.  
 
-**Psa 145:15; Acts 17:25; Psa 145:9; Matt 6:26; Rom 10:12; Psa 121:1; Psa 123:2; Isa 30:18; Isa 25:9; Rom 8:25**
+**2 Cor 8:9; Col 1:19; Heb 1:3,4; Phl 2:6,7; Matt 8:20; 1 Cor 3:21‑23**
 
 ---
 
-[Monday 24-April, 2023](https://t.me/s/daily_light)
+[Tuesday 25-April, 2023](https://t.me/s/daily_light)
 
 > Jonathan Bagster, the son of Samuel Bagster, created the Daily Light for his own family's daily devotion in 1875
 
