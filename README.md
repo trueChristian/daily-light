@@ -1,30 +1,34 @@
 # Morning
 
-**Pray everywhere, lifting up holy hands, without wrath and doubting.**
+**The fellowship of His sufferings.**
  
-The true worshippers shall worship the Father in spirit and in truth: for the Father seeketh such to worship him. God is a Spirit: and they that worship him must worship him in spirit and in truth. -- Then shalt thou call, and the Lord shall answer; thou shalt cry, and he shall say, Here I am. -- When ye stand praying, forgive, if ye have ought against any.
+It is enough for the disciple that he be as his master, and the servant as his lord.
  
-Without faith it is impossible to please him: for he that cometh to God must believe that he is, and that he is a rewarder of them that diligently seek him. -- Let him ask in faith, nothing wavering. For he that wavereth is like a wave of the sea, driven with the wind and tossed. For let not that man think that he shall receive anything of the Lord.
+He is despised and rejected of men; a man of sorrows, and acquainted with grief; and we hid as it were our faces from him; he was despised, and we esteemed him not. -- In the world ye shall have tribulation. -- Because ye are not of the world, but I have chosen you out of the world, therefore the world hateth you.
  
-If I regard iniquity in my heart, the Lord will not hear me. -- My little children, these things write I unto you, that ye sin not. And if any man sin, we have an advocate with the Father, Jesus Christ the righteous: and he is the propitiation for our sins.  
+I looked for some to take pity, but there was none. -- At my first answer no man stood with me, but all men forsook me.
+ 
+The foxes have holes, and the birds of the air have nests; but the Son of man hath not where to lay his head. -- Here have we no continuing city, but we seek one to come.
+ 
+Let us run with patience the race that is set before us, looking unto Jesus the author and finisher of our faith; who for the joy that was set before him endured the cross, despising the shame, and is set down at the right hand of the throne of God.  
 
-**1 Tim 2:8; John 4:23,24; Isa 58:9; Mark 11:25; Heb 11:6; Jas 1:6,7; Psa 66:18; 1 John 2:1,2**
+**Phl 3:10; Matt 10:25; Isa 53:3; John 16:33; John 15:19; Psa 69:20; 2 Tim 4:16; Matt 8:20; Heb 13:14; Heb 12:1,2**
 
 # Evening
 
-**My heart panteth, my strength faileth me.**
+**They overcame ... by the blood of the Lamb.**
  
-Hear my cry, O God; attend unto my prayer. From the end of the earth will I cry unto thee, when my heart is overwhelmed: lead me to the rock that is higher than I.
+Who shall lay anything to the charge of God's elect? It is God that justifieth. Who is he that condemneth? It is Christ that died. -- It is the blood that maketh an atonement for the soul. -- I am the LORD. The blood shall be to you for a token upon the houses where ye are: and when I see the blood, I will pass over you.
  
-He said unto me, My grace is sufficient for thee: for my strength is made perfect in weakness. Most gladly therefore will I rather glory in my infirmities, that the power of Christ may rest upon me. For when I am weak, then am I strong.
+There is ... no condemnation to them which are in Christ Jesus.
  
-When (Peter) saw the wind boisterous, he was afraid; and beginning to sink, he cried, saying, Lord, save me. And immediately Jesus stretched forth his hand, and caught him, and said unto him, O thou of little faith, wherefore didst thou doubt? -- If thou faint in the day of adversity, thy strength is small. -- He giveth power to the faint; and to them that have no might he increaseth strength. -- The eternal God is thy refuge, and underneath are the everlasting arms. -- Strengthened with all might, according to his glorious power.  
+What are these which are arrayed in white robes? and whence came they? These are they which came out of great tribulation, and have washed their robes, and made them white in the blood of the Lamb. Unto him that loved us, and washed us from our sins in his own blood, and hath made us kings and priests unto God and his Father; to him be glory and dominion for ever and ever. Amen.  
 
-**Psa 38:10; Psa 61:1,2; 2 Cor 12:9,10; Matt 14:30,31; Prov 24:10; Isa 40:29; Deut 33:27; Col 1:11**
+**Rev 12:11; Rom 8:33,34; Lev 17:11; Exo 12:12,13; Rom 8:1; Rev 7:13,14; Rev 1:5,6**
 
 ---
 
-[Saturday 13-May, 2023](https://t.me/s/daily_light)
+[Sunday 14-May, 2023](https://t.me/s/daily_light)
 
 > Jonathan Bagster, the son of Samuel Bagster, created the Daily Light for his own family's daily devotion in 1875
 
