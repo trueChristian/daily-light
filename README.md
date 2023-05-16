@@ -1,32 +1,32 @@
 # Morning
 
-**God shall wipe away all tears: ... there shall be no more death, neither sorrow, ... for the former things are passed away.**
+**A servant of Jesus Christ.**
  
-He will swallow up death in victory; and the Lord GOD will wipe away tears from off all faces; and the rebuke of his people shall he take away from off all the earth: for the Lord hath spoken it. -- Thy sun shall no more go down; neither shall thy moon withdraw itself: for the Lord shall be thine everlasting light, and the days of thy mourning shall be ended. -- The inhabitant shall not say, I am sick: the people that dwell therein shall be forgiven their iniquity. -- The voice of weeping shall be no more heard in her, nor the voice of crying. -- Sorrow and sighing shall flee away.
+Ye call me Master and Lord: and ye say well; for so I am. -- If any man serve me, let him follow me; and where I am, there shall also my servant be: if any man serve me, him will my Father honour. -- Take my yoke upon you, and learn of me; for I am meek and lowly in heart: and ye shall find rest unto your souls. For my yoke is easy, and my burden is light.
  
-I will ransom them from the power of the grave; I will redeem them from death: O death, I will be thy plagues; O grave, I will be thy destruction. -- The last enemy that shall be destroyed is death. Then shall be brought to pass the saying that is written, Death is swallowed up in victory.
+What things were gain to me, those I counted loss for Christ. -- Being made free from sin, and become servants to God, ye have your fruit unto holiness, and the end everlasting life.
  
-The things which are not seen are eternal.  
+Henceforth I call you not servants; for the servant knoweth not what his lord doeth: but I have called you friends; for all things that I have heard of my Father I have made known unto you. -- Thou art no more a servant, but a son.
+ 
+Stand fast therefore in the liberty wherewith Christ hath made us free, and be not entangled again with the yoke of bondage. For, brethren, ye have been called unto liberty; only use not liberty for an occasion to the flesh.  
 
-**Rev 21:4; Isa 25:8; Isa 60:20; Isa 33:24; Isa 65:19; Isa 35:10; Hos 13:14; 1 Cor 15:26,54; 2 Cor 4:18**
+**Rom 1:1; John 13:13; John 12:26; Matt 11:29,30; Phl 3:7; Rom 6:22; John 15:15; Gal 4:7; Gal 5:1,13**
 
 # Evening
 
-**Raised up together in Christ Jesus.**
+**I will bless the Lord, who hath given me counsel.**
  
-Fear not; ... I am he that liveth. -- Father, I will that they also, whom thou hast given me, be with me where I am.
+His name shall be called Wonderful, Counsellor. -- Counsel is mine, and sound wisdom: I am understanding, I have strength. -- Thy word is a lamp unto my feet, and a light unto my path. -- Trust in the Lord with all thine heart; and lean not unto thine own understanding. In all thy ways acknowledge him, and he shall direct thy paths.
  
-We are members of his body, of his flesh, and of his bones. -- He is the head of the body, the church: who is the beginning, the firstborn from the dead. -- Ye are complete in him, which is the head.
+O Lord, I know that the way of man is not in himself: it is not in man that walketh to direct his steps. -- Thine ears shall hear a word behind thee, saying, This is the way, walk ye in it, when ye turn to the right hand, and when ye turn to the left. -- Commit thy works unto the Lord, and thy thoughts shall be established. -- He knoweth the way that I take. -- Man's goings are of the Lord: how can a man then understand his own way?
  
-Forasmuch ... as the children are partakers of flesh and blood, he also himself likewise took part of the same; that through death he might destroy him that had the power of death, that is, the devil: and deliver them who through fear of death were all their lifetime subject to bondage.
- 
-This corruptible must put on incorruption, and this mortal must put on immortality. So when this corruptible shall have put on incorruption, and this mortal shall have put on immortality, then shall be brought to pass the saying that is written, Death is swallowed up in victory.  
+Thou shalt guide me with thy counsel, and afterward receive me to glory. -- This God is our God for ever and ever: he will be our guide even unto death.  
 
-**Eph 2:6; Rev 1:17,18; John 17:24; Eph 5:30; Col 1:18; Col 2:10; Heb 2:14,15; 1 Cor 15:53,54**
+**Psa 16:7; Isa 9:6; Prov 8:14; Psa 119:105; Prov 3:5,6; Jer 10:23; Isa 30:21; Prov 16:3; Job 23:10; Prov 20:24; Psa 73:24; Psa 48:14**
 
 ---
 
-[Monday 15-May, 2023](https://t.me/s/daily_light)
+[Tuesday 16-May, 2023](https://t.me/s/daily_light)
 
 > Jonathan Bagster, the son of Samuel Bagster, created the Daily Light for his own family's daily devotion in 1875
 
