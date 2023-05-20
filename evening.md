@@ -1,13 +1,15 @@
 **Evening**
 
-**Fellowship in the gospel.**
+**Jesus saith unto her, Mary.**
  
-As the body is one, and hath many members, and all the members of that one body, being many, are one body: so also is Christ. For by one Spirit are we all baptized into one body, whether we be Jews or Gentiles, whether we be bond or free; and have been all made to drink into one Spirit.
+Fear not: for I have redeemed thee, I have called thee by name: Thou art mine. -- The sheep hear his voice: and he calleth his own sheep by name. And the sheep follow him: for they know his voice.
  
-God is faithful, by whom ye were called unto the fellowship of his Son Jesus Christ our Lord. -- That which we have seen and heard declare we unto you, that ye also may have fellowship with us: and truly our fellowship is with the Father, and with his Son Jesus Christ.
+Behold, I have graven thee upon the palms of my hands; thy walls are continually before me.
  
-If we walk in the light, as he is in the light, we have fellowship one with another, and the blood of Jesus Christ his Son cleanseth us from all sin. -- These words spake Jesus. Neither pray I for these alone, but for them also which shall believe on me through their word; that they all may be one; as thou, Father, art in me, and I in thee, that they also may be one in us.  
+The foundation of God standeth sure, having this seal, The Lord knoweth them that are his. -- We have a great high priest, that is passed into the heavens, Jesus the Son of God.
+ 
+Thou shalt take two onyx stones, and grave on them the names of the children of Israel. And Aaron shall bear their names before the Lord upon his two shoulders for a memorial. And thou shalt make the breastplate of judgment. And thou shalt set in it four rows of stones. And the stones shall be with the names of the children of Israel, ... and they shall be upon Aaron's heart when he goeth in before the Lord.  
 
-**Phl 1:5; 1 Cor 12:12,13; 1 Cor 1:9; 1 John 1:3; 1 John 1:7; John 17:1,20,21**
+**John 20:16; Isa 43:1; John 10:3,4; Isa 49:16; 2 Tim 2:19; Heb 4:14; Exo 28:9,12,15,17,21,30**
 
-[Friday 19-May, 2023](https://t.me/daily_light)
+[Saturday 20-May, 2023](https://t.me/daily_light)
