@@ -1,30 +1,30 @@
 # Morning
 
-**Take heed unto thyself.**
+**My brethren, be strong in the Lord, and in the power of his might.**
  
-Every man that striveth for the mastery is temperate in all things. Now they do it to obtain a corruptible crown; but we an incorruptible. I therefore so run, not as uncertainly; so fight I, not as one that beateth the air: but I keep under my body, and bring it into subjection lest that by any means, when I have preached to others, I myself should be a castaway. -- Put on the whole armour of God, that ye may be able to stand against the wiles of the devil. For we wrestle not against the flesh and blood, but against principalities, against powers, against the rulers of the darkness of this world, against spiritual wickedness in high places.
+My grace is sufficient for thee: for my strength is made perfect in weakness. Most gladly therefore will I rather glory in my infirmities, that the power of Christ may rest upon me. Therefore I take pleasure in infirmities, in reproaches, in necessities, in persecutions, in distresses for Christ's sake: for when I am weak, then am I strong. -- I will go in the strength of the Lord GOD: I will make mention of thy righteousness, even of thine only. -- The gospel of Christ ... is the power of God unto salvation.
  
-They that are Christ's have crucified the flesh with the affections and lusts. If we live in the Spirit, let us also walk in the spirit. -- For as many as are led by the Spirit of God, they are the sons of God. -- Meditate upon these things; give thyself wholly to them; that thy profiting may appear to all.  
+I can do all things through Christ which strengtheneth me. -- I also labour, striving according to his working, which worketh in me mightily. -- We have this treasure in earthen vessels, that the excellency of the power may be of God, and not of us.
+ 
+The joy of the Lord is your strength. -- Strengthened with all might, according to his glorious power, unto all patience and longsuffering with joyfulness.  
 
-**1 Tim 4:16; 1 Cor 9:25‑27; Eph 6:11,12; Gal 5:24,25; Rom 8:14; 1 Tim 4:15**
+**Eph 6:10; 2 Cor 12:9,10; Psa 71:16; Rom 1:16; Phl 4:13; Col 1:29; 2 Cor 4:7; Neh 8:10; Col 1:11**
 
 # Evening
 
-**Jesus saith unto her, Mary.**
+**Jesus Christ our Lord.**
  
-Fear not: for I have redeemed thee, I have called thee by name: Thou art mine. -- The sheep hear his voice: and he calleth his own sheep by name. And the sheep follow him: for they know his voice.
+Jesus: for he shall save his people from their sins. -- He humbled himself, and became obedient unto death, even the death of the cross. Wherefore God also hath highly exalted him, and given him a name which is above every name: that at the name of Jesus every knee should bow, of things in heaven, and things in earth, and things under the earth.
  
-Behold, I have graven thee upon the palms of my hands; thy walls are continually before me.
+Messias ... which is called Christ. -- The Lord hath anointed me to preach good tidings unto the meek; he hath sent me to bind up the brokenhearted, to proclaim liberty to the captives.
  
-The foundation of God standeth sure, having this seal, The Lord knoweth them that are his. -- We have a great high priest, that is passed into the heavens, Jesus the Son of God.
- 
-Thou shalt take two onyx stones, and grave on them the names of the children of Israel. And Aaron shall bear their names before the Lord upon his two shoulders for a memorial. And thou shalt make the breastplate of judgment. And thou shalt set in it four rows of stones. And the stones shall be with the names of the children of Israel, ... and they shall be upon Aaron's heart when he goeth in before the Lord.  
+The last Adam was made a quickening spirit. The second man is the Lord from heaven. -- My Lord and my God. -- Ye call me Master and Lord: and ye say well; for so I am. If I then, your Lord and Master have washed your feet; ye also ought to wash one another's feet. For I have given you an example, that ye should do as I have done to you.  
 
-**John 20:16; Isa 43:1; John 10:3,4; Isa 49:16; 2 Tim 2:19; Heb 4:14; Exo 28:9,12,15,17,21,30**
+**1 Cor 1:9; Matt 1:21; Phl 2:8‑10; John 4:25; Isa 61:1; 1 Cor 15:45,47; John 20:28; John 13:13‑15**
 
 ---
 
-[Saturday 20-May, 2023](https://t.me/s/daily_light)
+[Sunday 21-May, 2023](https://t.me/s/daily_light)
 
 > Jonathan Bagster, the son of Samuel Bagster, created the Daily Light for his own family's daily devotion in 1875
 

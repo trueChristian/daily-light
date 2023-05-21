@@ -1,11 +1,13 @@
 **Morning**
 
-**Take heed unto thyself.**
+**My brethren, be strong in the Lord, and in the power of his might.**
  
-Every man that striveth for the mastery is temperate in all things. Now they do it to obtain a corruptible crown; but we an incorruptible. I therefore so run, not as uncertainly; so fight I, not as one that beateth the air: but I keep under my body, and bring it into subjection lest that by any means, when I have preached to others, I myself should be a castaway. -- Put on the whole armour of God, that ye may be able to stand against the wiles of the devil. For we wrestle not against the flesh and blood, but against principalities, against powers, against the rulers of the darkness of this world, against spiritual wickedness in high places.
+My grace is sufficient for thee: for my strength is made perfect in weakness. Most gladly therefore will I rather glory in my infirmities, that the power of Christ may rest upon me. Therefore I take pleasure in infirmities, in reproaches, in necessities, in persecutions, in distresses for Christ's sake: for when I am weak, then am I strong. -- I will go in the strength of the Lord GOD: I will make mention of thy righteousness, even of thine only. -- The gospel of Christ ... is the power of God unto salvation.
  
-They that are Christ's have crucified the flesh with the affections and lusts. If we live in the Spirit, let us also walk in the spirit. -- For as many as are led by the Spirit of God, they are the sons of God. -- Meditate upon these things; give thyself wholly to them; that thy profiting may appear to all.  
+I can do all things through Christ which strengtheneth me. -- I also labour, striving according to his working, which worketh in me mightily. -- We have this treasure in earthen vessels, that the excellency of the power may be of God, and not of us.
+ 
+The joy of the Lord is your strength. -- Strengthened with all might, according to his glorious power, unto all patience and longsuffering with joyfulness.  
 
-**1 Tim 4:16; 1 Cor 9:25‑27; Eph 6:11,12; Gal 5:24,25; Rom 8:14; 1 Tim 4:15**
+**Eph 6:10; 2 Cor 12:9,10; Psa 71:16; Rom 1:16; Phl 4:13; Col 1:29; 2 Cor 4:7; Neh 8:10; Col 1:11**
 
-[Saturday 20-May, 2023](https://t.me/daily_light)
+[Sunday 21-May, 2023](https://t.me/daily_light)
