@@ -1,42 +1,43 @@
 {
-  "date_key": "may-21",
-  "date_name": "Sunday 21-May, 2023",
+  "date_key": "may-22",
+  "date_name": "Monday 22-May, 2023",
   "evening": {
     "body": [
-      "Jesus: for he shall save his people from their sins. -- He humbled himself, and became obedient unto death, even the death of the cross. Wherefore God also hath highly exalted him, and given him a name which is above every name: that at the name of Jesus every knee should bow, of things in heaven, and things in earth, and things under the earth.",
-      "Messias ... which is called Christ. -- The Lord hath anointed me to preach good tidings unto the meek; he hath sent me to bind up the brokenhearted, to proclaim liberty to the captives.",
-      "The last Adam was made a quickening spirit. The second man is the Lord from heaven. -- My Lord and my God. -- Ye call me Master and Lord: and ye say well; for so I am. If I then, your Lord and Master have washed your feet; ye also ought to wash one another's feet. For I have given you an example, that ye should do as I have done to you."
+      "The Comforter, which is the Holy Ghost. -- What? know ye not that your body is the temple of the Holy Ghost which is in you, which ye have of God? -- It is God which worketh in you.",
+      "We know not what we should pray for as we ought: but the Spirit itself maketh intercession for us with groanings which can not be uttered. And he that searcheth the hearts knoweth what is the mind of the Spirit, because he maketh intercession for the saints according to the will of God. He knoweth our frame; he remembereth that we are dust. -- A bruised reed shall he not break, and the smoking flax shall he not quench.",
+      "The spirit indeed is willing, but the flesh is weak. The Lord is my shepherd; I shall not want. He maketh me to lie down in green pastures: he leadeth me beside the still waters."
     ],
-    "header": "Jesus Christ our Lord.",
+    "header": "The Spirit helpeth our infirmities.",
     "name": "Evening",
     "references": [
-      "Matt 1:21",
-      "Phl 2:8‑10",
-      "John 4:25",
-      "Isa 61:1",
-      "1 Cor 15:45,47",
-      "John 20:28",
-      "John 13:13‑15"
+      "John 14:26",
+      "1 Cor 6:19",
+      "Phl 2:13",
+      "Rom 8:26,27",
+      "Psa 103:14",
+      "Isa 42:3",
+      "Matt 26:41",
+      "Psa 23:1,2"
     ]
   },
   "joomla": "https://git.vdm.dev/christian/mod_dailylight",
   "morning": {
     "body": [
-      "My grace is sufficient for thee: for my strength is made perfect in weakness. Most gladly therefore will I rather glory in my infirmities, that the power of Christ may rest upon me. Therefore I take pleasure in infirmities, in reproaches, in necessities, in persecutions, in distresses for Christ's sake: for when I am weak, then am I strong. -- I will go in the strength of the Lord GOD: I will make mention of thy righteousness, even of thine only. -- The gospel of Christ ... is the power of God unto salvation.",
-      "I can do all things through Christ which strengtheneth me. -- I also labour, striving according to his working, which worketh in me mightily. -- We have this treasure in earthen vessels, that the excellency of the power may be of God, and not of us.",
-      "The joy of the Lord is your strength. -- Strengthened with all might, according to his glorious power, unto all patience and longsuffering with joyfulness."
+      "The world passeth away, and the lust thereof. -- Surely every man walketh in a vain shew: surely they are disquieted in vain: he heapeth up riches. and knoweth not who shall gather them. -- What fruit had ye then in those things whereof ye are now ashamed? for the end of those things is death.",
+      "Martha, Martha, thou are careful and troubled about many things: but one thing is needful: and Mary hath chosen that good part, which shall not be taken away from her. -- I would have you without carefulness.",
+      "These things I have spoken unto you that in me ye might have peace. In the world ye shall have tribulation: but be of good cheer: I have overcome the world. -- The Lord of peace himself give you peace always by all means. -- The Lord bless thee, and keep thee: the Lord make his face shine upon thee, and be gracious unto thee: the Lord lift up his countenance upon thee, and give thee peace."
     ],
-    "header": "My brethren, be strong in the Lord, and in the power of his might.",
+    "header": "Peace I leave with you, my peace I give unto you: not as the world giveth, give I unto you.",
     "name": "Morning",
     "references": [
-      "2 Cor 12:9,10",
-      "Psa 71:16",
-      "Rom 1:16",
-      "Phl 4:13",
-      "Col 1:29",
-      "2 Cor 4:7",
-      "Neh 8:10",
-      "Col 1:11"
+      "1 John 2:17",
+      "Psa 39:6",
+      "Rom 6:21",
+      "Luke 10:41,42",
+      "1 Cor 7:32",
+      "John 1633",
+      "2 Thes 3:16",
+      "Num 6:24‑26"
     ]
   },
   "source": "https://github.com/trueChristian/daily-light",
