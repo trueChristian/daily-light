@@ -1,15 +1,13 @@
 **Evening**
 
-**On that night could not the king sleep.**
+**I will go and return to my place, till they acknowledge their offence, and seek my face.**
  
-Thou holdest mine eyes waking. -- Who is like unto the Lord our God, ... who humbleth himself to behold the things that are in heaven, and in the earth!
+Your iniquities have separated between you and your God, your sins have hid his face from you. -- My beloved had withdrawn himself, and was gone: ... I sought him, but I could not find him; I called him, but he gave me no answer. -- I hid me, and was wroth, and he went on forwardly in the way of his heart. I have seen his ways, and will heal him. -- Hast thou not procured this unto thyself, in that thou hast forsaken the Lord thy God when he led thee by the way?
  
-He doeth according to his will in the army of heaven, and among the inhabitants of the earth. -- Thy way is in the sea, and thy path in the great waters, and thy footsteps are not known. -- Surely the wrath of man shall praise thee: the remainder of wrath shalt thou restrain.
+He arose, and came to his father. But when he was yet a great way off, his father saw him, and had compassion, and ran, and fell on his neck, and kissed him. -- I will heal their backsliding, I will love them freely: for mine anger is turned away.
  
-The eyes of the Lord run to and fro throughout the whole earth, to shew himself strong in the behalf of them whose heart is perfect toward him. -- We know that all things work together for good to them that love God.
- 
-Are not two sparrows sold for a farthing? and one of them shall not fall on the ground without your Father. But the very hairs of your head are all numbered.  
+If we confess our sins, he is faithful and just to forgive us our sins, and to cleanse us from all unrighteousness.  
 
-**Esth 6:1; Psa 77:4; Psa 113:5,6; Dan 4:35; Psa 77:19; Psa 76:10; 2 Chr 16:9; Rom 8:28; Matt 10:29,30**
+**Hos 5:15; Isa 59:2; Song 5:6; Isa 57:17,18; Jer 2:17; Luke 15:20; Hos 14:4; 1 John 1:9**
 
-[Tuesday 23-May, 2023](https://t.me/daily_light)
+[Wednesday 24-May, 2023](https://t.me/daily_light)

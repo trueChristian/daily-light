@@ -1,32 +1,30 @@
 # Morning
 
-**Thou shalt put the two stones upon the shoulders of the ephod for stones of memorial unto the children of Israel: and Aaron shall bear their names before the Lord.**
+**Grieve not the holy Spirit of God, whereby ye are sealed unto the day of redemption.**
  
-Jesus ... because he continueth ever, hath an unchangeable priesthood. Wherefore he is able also to save them to the uttermost that come unto God by him, seeing he ever liveth to make intercession for them. -- Him that is able to keep you from falling, and to present you faultless before the presence of his glory.
+The love of the Spirit. -- The Comforter, which is the Holy Ghost. -- In all their affliction he was afflicted, and the angel of his presence saved them: in his love and in his pity he redeemed them; and he bare them, and carried them all the days of old. But they rebelled, and vexed his holy Spirit: therefore he turned to be their enemy, and he fought against them.
  
-Seeing ... that we have a great high priest, that is passed into the heavens, Jesus the Son of God, let us hold fast our profession. For we have not a high priest which cannot be touched with the feeling of our infirmities; but was in all points tempted like as we are, yet without sin. Let us therefore come boldly unto the throne of grace.
+Hereby know we that we dwell in him, and he in us, because he hath given us of his Spirit. -- After that ye believed, ye were sealed with that holy Spirit of promise, which is the earnest of the inheritance until the redemption of the purchased possession. -- This I say then, Walk in the Spirit, and ye shall not fulfil the lusts of the flesh. For the flesh lusteth against the spirit, and the spirit against the flesh: and these are contrary the one to the other: so that ye cannot do the things that ye would.
  
-The beloved of the Lord shall dwell in safety by him: and the Lord shall cover him all the day long, and he shall dwell between his shoulders.  
+The Spirit helpeth our infirmities.  
 
-**Exo 28:12; Heb 7:24,25; Jude 24; Heb 4:14‑16; Deut 33:12**
+**Eph 4:30; Rom 15:30; John 14:26; Isa 63:9,10; 1 John 4:13; Eph 1:13,14; Gal 5:16,17; Rom 8:26**
 
 # Evening
 
-**On that night could not the king sleep.**
+**I will go and return to my place, till they acknowledge their offence, and seek my face.**
  
-Thou holdest mine eyes waking. -- Who is like unto the Lord our God, ... who humbleth himself to behold the things that are in heaven, and in the earth!
+Your iniquities have separated between you and your God, your sins have hid his face from you. -- My beloved had withdrawn himself, and was gone: ... I sought him, but I could not find him; I called him, but he gave me no answer. -- I hid me, and was wroth, and he went on forwardly in the way of his heart. I have seen his ways, and will heal him. -- Hast thou not procured this unto thyself, in that thou hast forsaken the Lord thy God when he led thee by the way?
  
-He doeth according to his will in the army of heaven, and among the inhabitants of the earth. -- Thy way is in the sea, and thy path in the great waters, and thy footsteps are not known. -- Surely the wrath of man shall praise thee: the remainder of wrath shalt thou restrain.
+He arose, and came to his father. But when he was yet a great way off, his father saw him, and had compassion, and ran, and fell on his neck, and kissed him. -- I will heal their backsliding, I will love them freely: for mine anger is turned away.
  
-The eyes of the Lord run to and fro throughout the whole earth, to shew himself strong in the behalf of them whose heart is perfect toward him. -- We know that all things work together for good to them that love God.
- 
-Are not two sparrows sold for a farthing? and one of them shall not fall on the ground without your Father. But the very hairs of your head are all numbered.  
+If we confess our sins, he is faithful and just to forgive us our sins, and to cleanse us from all unrighteousness.  
 
-**Esth 6:1; Psa 77:4; Psa 113:5,6; Dan 4:35; Psa 77:19; Psa 76:10; 2 Chr 16:9; Rom 8:28; Matt 10:29,30**
+**Hos 5:15; Isa 59:2; Song 5:6; Isa 57:17,18; Jer 2:17; Luke 15:20; Hos 14:4; 1 John 1:9**
 
 ---
 
-[Tuesday 23-May, 2023](https://t.me/s/daily_light)
+[Wednesday 24-May, 2023](https://t.me/s/daily_light)
 
 > Jonathan Bagster, the son of Samuel Bagster, created the Daily Light for his own family's daily devotion in 1875
 
