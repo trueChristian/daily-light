@@ -1,13 +1,13 @@
 **Evening**
 
-**I will go and return to my place, till they acknowledge their offence, and seek my face.**
+**The Son of God, ... hath his eyes like unto a flame of fire.**
  
-Your iniquities have separated between you and your God, your sins have hid his face from you. -- My beloved had withdrawn himself, and was gone: ... I sought him, but I could not find him; I called him, but he gave me no answer. -- I hid me, and was wroth, and he went on forwardly in the way of his heart. I have seen his ways, and will heal him. -- Hast thou not procured this unto thyself, in that thou hast forsaken the Lord thy God when he led thee by the way?
+The heart is deceitful above all things, and desperately wicked: who can know it? I the Lord search the heart, I try the reins, even to give every man according to his ways, and according to the fruit of his doings. -- Thou hast set our iniquities before thee, our secret sins in the light of thy countenance. -- The Lord turned, and looked upon Peter. And Peter went out, and wept bitterly.
  
-He arose, and came to his father. But when he was yet a great way off, his father saw him, and had compassion, and ran, and fell on his neck, and kissed him. -- I will heal their backsliding, I will love them freely: for mine anger is turned away.
+Jesus did not commit himself unto them, because he knew all men, and needed not that any should testify of man: for he knew what was in man. -- He knoweth our frame; he remembereth that we are dust. -- A bruised reed shall he not break, and the smoking flax shall he not quench.
  
-If we confess our sins, he is faithful and just to forgive us our sins, and to cleanse us from all unrighteousness.  
+The Lord knoweth them that are his. -- I am the good shepherd, and know my sheep. My sheep hear my voice, and I know them, and they follow me: and I give unto them eternal life; and they shall never perish, neither shall any man pluck them out of my hand.  
 
-**Hos 5:15; Isa 59:2; Song 5:6; Isa 57:17,18; Jer 2:17; Luke 15:20; Hos 14:4; 1 John 1:9**
+**Rev 2:18; Jer 17:9,10; Psa 90:8; Luke 22:61,62; John 2:24,25; Psa 103:14; Isa 42:3; 2 Tim 2:19; John 10:14,27,28**
 
-[Wednesday 24-May, 2023](https://t.me/daily_light)
+[Thursday 25-May, 2023](https://t.me/daily_light)

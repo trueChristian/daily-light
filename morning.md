@@ -1,13 +1,13 @@
 **Morning**
 
-**Grieve not the holy Spirit of God, whereby ye are sealed unto the day of redemption.**
+**How great is thy goodness, which thou hast laid up for them that fear thee!**
  
-The love of the Spirit. -- The Comforter, which is the Holy Ghost. -- In all their affliction he was afflicted, and the angel of his presence saved them: in his love and in his pity he redeemed them; and he bare them, and carried them all the days of old. But they rebelled, and vexed his holy Spirit: therefore he turned to be their enemy, and he fought against them.
+Since the beginning of the world men have not heard, nor perceived by the ear, neither hath the eye seen, O God, beside thee, what he hath prepared for him that waiteth for him. -- Eye hath not seen, nor ear heard, neither have entered into the heart of man, the things which God hath prepared for them that love him. But God hath revealed them unto us by his Spirit. -- Thou wilt shew me the path of life: in thy presence is fulness of joy; at thy right hand there are pleasures for evermore.
  
-Hereby know we that we dwell in him, and he in us, because he hath given us of his Spirit. -- After that ye believed, ye were sealed with that holy Spirit of promise, which is the earnest of the inheritance until the redemption of the purchased possession. -- This I say then, Walk in the Spirit, and ye shall not fulfil the lusts of the flesh. For the flesh lusteth against the spirit, and the spirit against the flesh: and these are contrary the one to the other: so that ye cannot do the things that ye would.
+How excellent is thy loving kindness, O God! therefore the children of men put their trust under the shadow of thy wings. They shall be abundantly satisfied with the fatness of thy house; and thou shalt make them drink of the river of thy pleasures. For with thee is the fountain of life: in thy light shall we see light.
  
-The Spirit helpeth our infirmities.  
+Godliness is profitable unto all things, having promise of the life that now is, and of that which is to come.  
 
-**Eph 4:30; Rom 15:30; John 14:26; Isa 63:9,10; 1 John 4:13; Eph 1:13,14; Gal 5:16,17; Rom 8:26**
+**Psa 31:19; Isa 64:4; 1 Cor 2:9,10; Psa 16:11; Psa 36:7‑9; 1 Tim 4:8**
 
-[Wednesday 24-May, 2023](https://t.me/daily_light)
+[Thursday 25-May, 2023](https://t.me/daily_light)
