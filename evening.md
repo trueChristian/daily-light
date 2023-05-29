@@ -1,17 +1,13 @@
 **Evening**
 
-**So run, that ye may obtain.**
+**Oh that I had wings like a dove! for then would I fly away, and be at rest.**
  
-The slothful man saith, There is a lion without. -- Let us lay aside every weight, and the sin which doth so easily beset us, and let us run with patience the race that is set before us, looking unto Jesus the author and finisher of our faith.
+It came to pass, when the sun did arise, that God prepared a vehement east wind; and the sun beat upon the head of Jonah, that he fainted, and wished in himself to die, and said, It is better for me to die than to live.
  
-Let us cleanse ourselves from all filthiness of the flesh and spirit, perfecting holiness in the fear of God.
+Job spake, and said, Wherefore is light given to him that is in misery, and life unto the bitter in soul; which long for death, but it cometh not; and dig for it more than for hid treasures? -- Many are the afflictions of the righteous: but the Lord delivereth him out of them all.
  
-I press toward the mark. -- I ... so run, not as uncertainly; I keep under my body, and bring it into subjection: lest that by any means, ... I myself should be a castaway.
- 
-The fashion of this world passeth away.
- 
-Nevertheless we, according to his promise, look for new heavens and a new earth, wherein dwelleth righteousness. Wherefore, beloved, seeing that ye look for such things, be diligent. -- Gird up the loins of your mind, be sober, and hope to the end for the grace that is to be brought unto you at the revelation of Jesus Christ.  
+Now is my soul troubled; and what shall I say? Father, save me from this hour. -- In all things it behoved him to be made like unto his brethren, that he might be a merciful and faithful high priest in things pertaining to God, to make reconciliation for the sins of the people. For in that he himself hath suffered being tempted, he is able to succour them that are tempted.  
 
-**1 Cor 9:24; Prov 22:13; Heb 12:1,2; 2 Cor 7:1; Phl 3:14; 1 Cor 9:26,27; 1 Cor 7:31; 2 Pet 3:13,14; 1 Pet 1:13**
+**Psa 55:6; Jon 4:8; Job 3:2,20,21; Psa 34:19; John 12:27; Heb 2:17,18**
 
-[Sunday 28-May, 2023](https://t.me/daily_light)
+[Monday 29-May, 2023](https://t.me/daily_light)
