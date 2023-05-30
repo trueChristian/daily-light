@@ -1,40 +1,45 @@
 {
-  "date_key": "may-29",
-  "date_name": "Monday 29-May, 2023",
+  "date_key": "may-30",
+  "date_name": "Tuesday 30-May, 2023",
   "evening": {
     "body": [
-      "It came to pass, when the sun did arise, that God prepared a vehement east wind; and the sun beat upon the head of Jonah, that he fainted, and wished in himself to die, and said, It is better for me to die than to live.",
-      "Job spake, and said, Wherefore is light given to him that is in misery, and life unto the bitter in soul; which long for death, but it cometh not; and dig for it more than for hid treasures? -- Many are the afflictions of the righteous: but the Lord delivereth him out of them all.",
-      "Now is my soul troubled; and what shall I say? Father, save me from this hour. -- In all things it behoved him to be made like unto his brethren, that he might be a merciful and faithful high priest in things pertaining to God, to make reconciliation for the sins of the people. For in that he himself hath suffered being tempted, he is able to succour them that are tempted."
+      "Jesus lifted up his eyes, and said, Father, I thank thee that thou hast heard me. -- Father, glorify thy name. Then came there a voice from heaven, saying, I have both glorified it, and will glorify it again. -- Lo, I come to do thy will, O God. -- Not my will, but thine, be done.",
+      "As he is, so are we in this world. -- This is the confidence that we have in him, that, if we ask anything according to his will, he heareth us.",
+      "Whatsoever we ask. we receive of him, because we keep his commandments, and do those things that are pleasing in his sight.",
+      "Without faith it is impossible to please him: for he that cometh to God must believe that He is, and that he is a rewarder of them that diligently seek him.",
+      "He ever liveth to make intercession for them. -- We have an advocate with the Father, Jesus Christ the righteous."
     ],
-    "header": "Oh that I had wings like a dove! for then would I fly away, and be at rest.",
+    "header": "Thou hearest me always.",
     "name": "Evening",
     "references": [
-      "Jon 4:8",
-      "Job 3:2,20,21",
-      "Psa 34:19",
-      "John 12:27",
-      "Heb 2:17,18"
+      "John 11:41",
+      "John 1228",
+      "Heb 10:7",
+      "Luke 22:42",
+      "1 John 4:17",
+      "1 John 5:14",
+      "1 John 3:22",
+      "Heb 11:6",
+      "Heb 7:25",
+      "1 John 2:1"
     ]
   },
   "joomla": "https://git.vdm.dev/christian/mod_dailylight",
   "morning": {
     "body": [
-      "Behold the Lamb of God, which taketh away the sin of the world. -- The blood of the Lamb. -- The precious blood of Christ, as of a lamb without blemish and without spot. -- Without shedding of blood is no remission. -- The blood of Jesus Christ his Son cleanseth us from all sin.",
-      "By his own blood he entered in once into the holy place, having obtained eternal redemption for us. -- Having therefore, brethren, boldness to enter into the holiest by the blood of Jesus, by a new and living way, which he hath consecrated for us, through the veil, that is to say, his flesh; let us draw near with a true heart in full assurance of faith.",
-      "Ye are bought with a price: therefore glorify God in your body, and in your spirit, which are God's."
+      "Enter ye in at the strait gate: for wide is the gate, and broad is the way, that leadeth to destruction: ... strait is the gate, and narrow is the way, which leadeth unto life, and few there be that find it. -- The kingdom of heaven suffereth violence, and the violent take it by force. -- Labour not for the meat which perisheth, but for that meat which endureth unto everlasting life, which the Son of man shall give unto you. -- Give diligence to make your calling and election sure: ... for so an entrance shall be ministered unto you abundantly into the everlasting kingdom of our Lord and Saviour Jesus Christ. -- So run, that ye may obtain. And every man that striveth for the mastery is temperate in all things. Now they do it to obtain a corruptible crown; but we an incorruptible.",
+      "For he that is entered into his rest, he also hath ceased from his own works, as God did from his. -- The Lord shall be unto thee an everlasting light, and thy God thy glory."
     ],
-    "header": "The life of the flesh is in the blood: and I have given it to you upon the altar to make an atonement for your souls: for it is the blood that maketh an atonement for the soul.",
+    "header": "Let us labour to enter into that rest.",
     "name": "Morning",
     "references": [
-      "John 1:29",
-      "Rev 7:14",
-      "1 Pet 1:19",
-      "Heb 9:22",
-      "1 John 1:7",
-      "Heb 9:12",
-      "Heb 10:19,20,22",
-      "1 Cor 6:20"
+      "Matt 7:13,14",
+      "Matt 11:12",
+      "John 6:27",
+      "2 Pet 1:10,11",
+      "1 Cor 9:24,25",
+      "Heb 4:10",
+      "Isa 60:19"
     ]
   },
   "source": "https://github.com/trueChristian/daily-light",
