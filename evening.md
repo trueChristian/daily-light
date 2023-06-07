@@ -1,15 +1,15 @@
 **Evening**
 
-**A new and living way.**
+**Forgive all my sins.**
  
-Cain went out from the presence of the Lord. -- Your iniquities have separated between you and your God, and your sins have hid his face from you. -- Without holiness, no man shall see the Lord.
+Come now, and let us reason together, saith the Lord: though your sins be as scarlet, they shall be as white as snow; though they be red like crimson, they shall be as wool.
  
-I am the way, and the truth, and the life: no man cometh unto the Father, but by me. -- Our Saviour Jesus Christ ... hath abolished death, and hath brought life and immortality to light through the gospel.
+Be of good cheer; thy sins be forgiven thee. -- I, even I, am he that blotteth out thy transgressions for mine own sake, and will not remember thy sins.
  
-The way into the holiest of all was not yet made manifest, while as the first tabernacle was yet standing. -- He is our peace, who hath made both one, and hath broken down the middle wall of partition between us. -- The veil of the temple was rent in twain from the top to the bottom.
+The Son of man hath power on earth to forgive sins. -- In Whom we have redemption through his blood, the forgiveness of sins, according to the riches of his grace. -- Not by works of righteousness which we have done, but according to His mercy he saved us, by the washing of regeneration, and renewing of the Holy Ghost; which he shed on us abundantly through Jesus Christ our Saviour. -- Having forgiven you all trespasses, blotting out the handwriting of ordinances that was against us, which was contrary to us, and took it out of the way, nailing it to his cross.
  
-Strait is the gate, and narrow is the way, which leadeth unto life, and few there be that find it. -- Thou wilt shew me the path of life: in thy presence is fulness of joy; at thy right hand there are pleasures for evermore.  
+Bless the Lord, O my soul, ... who forgives all thine iniquities.  
 
-**Heb 10:20; Gen 4:16; Isa 59:2; Heb 12:14; John 14:6; 2 Tim 1:10; Heb 9:8; Eph 2:14; Matt 27:51; Matt 7:14; Psa 16:11**
+**Psa 25:18; Isa 1:18; Matt 9:2; Isa 43:25; Matt 9:6; Eph 1:7; Tit 3:5,6; Col 2:13,14; Psa 103:2,3**
 
-[Tuesday 06-June, 2023](https://t.me/daily_light)
+[Wednesday 07-June, 2023](https://t.me/daily_light)
