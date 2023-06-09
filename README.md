@@ -1,34 +1,30 @@
 # Morning
 
-**The Lord made all that he did to prosper in his hand.**
+**Never man spake like this man.**
  
-Blessed is every one that feareth the Lord; that walketh in his ways. For thou shalt eat the labour of thine hands: happy shalt thou be, and it shall be well with thee. -- Trust in the Lord, and do good; so shalt thou dwell in the land, and verily thou shalt be fed. Delight thyself also in the Lord; and he shall give thee the desires of thine heart. -- Be not afraid, neither be thou dismayed: for the Lord thy God is with thee whithersoever thou goest.
+Thou art fairer than the children of men: grace is poured into thy lips: therefore God hath blessed thee for ever. -- The Lord GOD hath given me the tongue of the learned, that I should know how to speak a word in season to him that is weary. -- His mouth is most sweet: yea, he is altogether lovely. This is my beloved, and this is my friend.
  
-Seek ye first the kingdom of God, and his righteousness; and all these things shall he added unto you.
+All bare him witness, and wondered at the gracious words which proceeded out of his mouth. -- He taught them as one having authority, and not as the scribes.
  
-As long as he sought the Lord, God made him to prosper. -- Beware that thou forget not the Lord thy God, in not keeping his commandments, and his judgments, and his statutes, which I command thee this day: and thou say in thine heart, My power and the might of mine hand hath gotten me this wealth.
- 
-Is not the Lord your God with you? and hath he not given you rest on every side?  
+Let the word of Christ dwell in you richly in all wisdom. -- The sword of the Spirit ... is the word of God. -- The word of God is quick, and powerful, and sharper than any two‑edged sword. -- The weapons of our warfare are not carnal, but mighty through God to the pulling down of strongholds; casting down imaginations, and every high thing that exalteth itself against the knowledge of God, and bringing into captivity every thought to the obedience of Christ.  
 
-**Gen 39:3; Psa 128:1,2; Psa 37:3,4; Josh 1:9; Matt 6:33; 2 Chr 26:5; Deut 8:11,17; 1 Chr 22:18**
+**John 7:46; Psa 45:2; Isa 50:4; Song 5:16; Luke 4:22; Matt 7:29; Col 3:16; Eph 6:17; Heb 4:12; 2 Cor 10:4,5**
 
 # Evening
 
-**Why reason ye these things in your hearts?**
+**The triumphing of the wicked is short.**
  
-Being not weak in faith, [Abraham] considered not his own body now dead, when he was about an hundred years old, neither yet the deadness of Sarah's womb; he staggered not at the promise of God through unbelief; but was strong in faith, giving glory to God.
+Thou shalt bruise his heel. -- This is your hour, and the power of darkness. -- As the children are partakers of flesh and blood he also himself likewise took part of the same; that through death he might destroy him that had the power of death, that is, the devil. -- Having spoiled principalities and powers, he made a shew of them openly, triumphing over them in it.
  
-Is it easier to say to the sick of the palsy, Thy sins be forgiven thee or to say, Arise, and take up thy bed, and walk? -- If thou canst believe, all things are possible to him that believeth.
+Be sober, be vigilant; because your adversary the devil, as a roaring lion, walketh about seeking whom he may devour: whom resist stedfast in the faith. -- Resist the devil, and he will flee from you.
  
-All power is given unto me in heaven and in earth. -- Why are ye so fearful? how is it that ye have no faith? -- Behold the fowls of the air; ... your heavenly Father feedeth them. Are ye not much better than they? -- Why reason ye among yourselves, because ye have brought no bread? Do ye not ... remember the five loaves of the five thousand?
- 
-My God shall supply all your need according to his riches in glory by Christ Jesus.  
+The wicked plotteth against the just, and gnasheth upon him with his teeth. The Lord shall laugh at him: for he seeth that his day is coming. -- The God of peace shall bruise Satan under your feet shortly. -- The devil ... was cast into the lake of fire and brimstone ... and shall be tormented day and night for ever and ever.  
 
-**Mark 2:8; Rom 4:19,20; Mark 2:9; Mark 9:23; Matt 28:18; Mark 4:40; Matt 6:26; Matt 16:8,9; Phl 4:19**
+**Job 20:5; Gen 3:15; Luke 22:53; Heb 2:14; Col 2:15; 1 Pet 5:8,9; Jas 4:7; Psa 37:12,13; Rom 16:20; Rev 20:10**
 
 ---
 
-[Thursday 08-June, 2023](https://t.me/s/daily_light)
+[Friday 09-June, 2023](https://t.me/s/daily_light)
 
 > Jonathan Bagster, the son of Samuel Bagster, created the Daily Light for his own family's daily devotion in 1875
 
