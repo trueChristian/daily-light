@@ -1,15 +1,15 @@
 **Evening**
 
-**As Christ forgave you, so also do ye.**
+**Behold, I make all things new.**
  
-There was a certain creditor which had two debtors: the one owed five hundred pence, and the other fifty. And when they had nothing to pay, he frankly forgave them both. -- I forgave thee all that debt; shouldest not thou also have had compassion on thy fellowservant, even as I had pity on thee?
+Except a man be born again, he cannot see the kingdom of God. -- If any man be in Christ, he is a new creature; old things are passed away; behold, all things are become new.
  
-When ye stand praying, forgive, if ye have ought against any: that your Father also which is in heaven may forgive you your trespasses. But if ye do not forgive, neither will your Father which is in heaven forgive your trespasses. -- Put on as the elect of God, holy and beloved, bowels of mercies, kindness, humbleness of mind, meekness, longsuffering; forbearing one another, and forgiving one another, if any man have a quarrel against any.
+A new heart also will I give you, and a new spirit will I put within you: and I will take away the stony heart out of your flesh, and I will give you an heart of flesh. -- Purge out therefore the old leaven, that ye may be a new lump. -- The new man, which after God is created in righteousness and true holiness.
  
-How oft shall my brother sin against me, and I forgive him? till seven times? Jesus saith unto him, I say not unto thee, Until seven times: but, until seventy times seven.
+Thou shalt be called by a new name, which the mouth of the Lord shall name.
  
-Charity ... is the bond of perfectness.  
+Behold, I create new heavens and a new earth: and the former shall not be remembered, nor come into mind. -- Seeing ... that all these things shall be dissolved, what manner of persons ought ye to be in all holy conversation and godliness?  
 
-**Col 3:13; Luke 7:41,42; Matt 18:32,33; Mark 11:25,26; Col 3:12,13; Matt 18:21,22; Col 3:14**
+**Rev 21:5; John 3:3; 2 Cor 5:17; Ezek 36:26; 1 Cor 5:7; Eph 4:24; Isa 62:2; Isa 65:17; 2 Pet 3:11**
 
-[Saturday 10-June, 2023](https://t.me/daily_light)
+[Sunday 11-June, 2023](https://t.me/daily_light)

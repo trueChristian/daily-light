@@ -1,32 +1,30 @@
 # Morning
 
-**The younger son took his journey into a far country, and there wasted his substance with riotous living.**
+**He arose, and came to his father. But when he was yet a great way off, his father saw him, and ran, and fell on his neck, and kissed him.**
  
-Such were some of you: but ye are washed, but ye are sanctified, but ye are justified in the name of the Lord Jesus, and by the Spirit of our God. -- We ... were by nature the children of wrath, even as others. But God, who is rich in mercy, for his great love wherewith he loved us, even when we were dead in sins, hath quickened us together with Christ, (by grace ye are saved;) and hath raised us up together, and made us sit together in heavenly places in Christ Jesus.
+The Lord is merciful and gracious, slow to anger, and plenteous in mercy. He will not always chide: neither will he keep his anger for ever. He hath not dealt with us after our sins; nor rewarded us according to our iniquities. For as the heaven is high above the earth, so great is his mercy toward them that fear him. As far as the east is from the west, so far hath he removed our transgressions from us. Like as a father pitieth his children, so the Lord pitieth them that fear him.
  
-Herein is love, not that we loved God, but that he loved us, and sent his Son to be the propitiation for our sins.
- 
-God commendeth his love toward us, in that, while we were yet sinners, Christ died for us. If, when we were enemies, we were reconciled to God by the death of his Son, much more, being reconciled, we shall be saved by his life.  
+Ye have received the Spirit of adoption, whereby we cry, Abba, Father. The Spirit itself beareth witness with our spirit, that we are the children of God. -- Ye who sometime were far off are made nigh by the blood of Christ. -- Now therefore ye are no more strangers and foreigners, but fellowcitizens with the saints, and of the household of God.  
 
-**Luke 15:13; 1 Cor 6:11; Eph 2:3‑6; 1 John 4:10; Rom 5:8,10**
+**Luke 15:20; Psa 103:8‑13; Rom 8:15,16; Eph 2:13; Eph 2:19**
 
 # Evening
 
-**As Christ forgave you, so also do ye.**
+**Behold, I make all things new.**
  
-There was a certain creditor which had two debtors: the one owed five hundred pence, and the other fifty. And when they had nothing to pay, he frankly forgave them both. -- I forgave thee all that debt; shouldest not thou also have had compassion on thy fellowservant, even as I had pity on thee?
+Except a man be born again, he cannot see the kingdom of God. -- If any man be in Christ, he is a new creature; old things are passed away; behold, all things are become new.
  
-When ye stand praying, forgive, if ye have ought against any: that your Father also which is in heaven may forgive you your trespasses. But if ye do not forgive, neither will your Father which is in heaven forgive your trespasses. -- Put on as the elect of God, holy and beloved, bowels of mercies, kindness, humbleness of mind, meekness, longsuffering; forbearing one another, and forgiving one another, if any man have a quarrel against any.
+A new heart also will I give you, and a new spirit will I put within you: and I will take away the stony heart out of your flesh, and I will give you an heart of flesh. -- Purge out therefore the old leaven, that ye may be a new lump. -- The new man, which after God is created in righteousness and true holiness.
  
-How oft shall my brother sin against me, and I forgive him? till seven times? Jesus saith unto him, I say not unto thee, Until seven times: but, until seventy times seven.
+Thou shalt be called by a new name, which the mouth of the Lord shall name.
  
-Charity ... is the bond of perfectness.  
+Behold, I create new heavens and a new earth: and the former shall not be remembered, nor come into mind. -- Seeing ... that all these things shall be dissolved, what manner of persons ought ye to be in all holy conversation and godliness?  
 
-**Col 3:13; Luke 7:41,42; Matt 18:32,33; Mark 11:25,26; Col 3:12,13; Matt 18:21,22; Col 3:14**
+**Rev 21:5; John 3:3; 2 Cor 5:17; Ezek 36:26; 1 Cor 5:7; Eph 4:24; Isa 62:2; Isa 65:17; 2 Pet 3:11**
 
 ---
 
-[Saturday 10-June, 2023](https://t.me/s/daily_light)
+[Sunday 11-June, 2023](https://t.me/s/daily_light)
 
 > Jonathan Bagster, the son of Samuel Bagster, created the Daily Light for his own family's daily devotion in 1875
 
