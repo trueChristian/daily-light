@@ -1,15 +1,11 @@
 **Evening**
 
-**Behold, I make all things new.**
+**We, being dead to sins, should live unto righteousness.**
  
-Except a man be born again, he cannot see the kingdom of God. -- If any man be in Christ, he is a new creature; old things are passed away; behold, all things are become new.
+Put off, concerning the former conversation, the old man, which is corrupt according to the deceitful lusts: and be renewed in the spirit of your mind; and ... put on the new man, which after God is created in righteousness and true holiness.
  
-A new heart also will I give you, and a new spirit will I put within you: and I will take away the stony heart out of your flesh, and I will give you an heart of flesh. -- Purge out therefore the old leaven, that ye may be a new lump. -- The new man, which after God is created in righteousness and true holiness.
- 
-Thou shalt be called by a new name, which the mouth of the Lord shall name.
- 
-Behold, I create new heavens and a new earth: and the former shall not be remembered, nor come into mind. -- Seeing ... that all these things shall be dissolved, what manner of persons ought ye to be in all holy conversation and godliness?  
+Ye are dead and your life is hid with Christ in God. -- As Christ was raised up from the dead by the glory of the Father, even so we also should walk in newness of life. Knowing this, that our old man is crucified with him, that the body of sin might be destroyed, that henceforth we should not serve sin. For he that is dead is freed from sin. Likewise reckon ye also yourselves to be dead indeed unto sin, but alive unto God through Jesus Christ our Lord. Let not sin therefore reign in your mortal body, that ye should obey it in the lusts thereof: but yield yourselves unto God, as those that are alive from the dead, and your members as instruments of righteousness unto God.  
 
-**Rev 21:5; John 3:3; 2 Cor 5:17; Ezek 36:26; 1 Cor 5:7; Eph 4:24; Isa 62:2; Isa 65:17; 2 Pet 3:11**
+**1 Pet 2:24; Eph 4:22-24; Col 3:3; Rom 6:4,6,7,11‑13**
 
-[Sunday 11-June, 2023](https://t.me/daily_light)
+[Monday 12-June, 2023](https://t.me/daily_light)
