@@ -1,30 +1,32 @@
 # Morning
 
-**As the sufferings of Christ abound in us, so our consolation also aboundeth by Christ.**
+**The secret things belong unto the Lord our God: but those which are revealed belong unto us.**
  
-The fellowship of his sufferings. -- Rejoice, inasmuch as ye are partakers of Christ's sufferings; that, when his glory shall be revealed, ye may be glad also with exceeding joy. -- For if we be dead with him, we shall also live with him. -- If children, then heirs; heirs of God, and joint‑heirs with Christ; if so be that we suffer with him, that we may be also glorified together.
+Lord, my heart is not haughty, nor mine eyes lofty: neither do I exercise myself in great matters, or in things too high for me. Surely I have behaved and quieted myself, as a child that is weaned of his mother: my soul is even as a weaned child.
  
-God, willing more abundantly to shew unto the heirs of promise the immutability of his counsel, confirmed it by an oath: that by two immutable things, in which it was impossible for God to lie, we might have a strong consolation, who have fled for refuge to lay hold upon the hope set before us. -- Our Lord Jesus Christ Himself, and God, even our Father, which hath loved us, and hath given us everlasting consolation and good hope through grace, comfort your hearts, and stablish you in every good word and work.  
+The secret of the Lord is with them that fear him: and he will shew them his covenant. -- There is a God in heaven that revealeth secrets. -- Lo, these are parts of his ways: but how little a portion is heard of him?
+ 
+Henceforth I call you not servants; for the servant knoweth not what his lord doeth: but I have called you friends; for all things that I have heard of my Father I have made known unto you. -- If ye love me, keep my commandments. And I will pray the Father, and he shall give you another Comforter that he may abide with you for ever; even the Spirit of truth.  
 
-**2 Cor 1:5; Phl 3:10; 1 Pet 4:13; 2 Tim 2:11; Rom 8:17; Heb 6:17,18; 2 Thes 2:16,17**
+**Deut 29:29; Psa 131:1,2; Psa 25:14; Dan 2:28; Job 26:14; John 15:15; John 14:15-17**
 
 # Evening
 
-**Martha, Martha, thou art careful and troubled about many things.**
+**The Spirit ... maketh intercession for the saints according to the will of God**.
  
-Consider the ravens: for they neither sow nor reap. Consider the lilies how they grow: they toil not, they spin not. Seek not ye what ye shall eat, or what ye shall drink, neither be ye of doubtful mind. Your Father knoweth that ye have need of these things.
+Verily, verily I say unto you, Whatsoever ye shall ask the Father in my name, he will give it you. Hitherto have ye asked nothing in my name: ask, and ye shall receive, that your joy may be full. -- Praying always with all prayer and supplication in the Spirit.
  
-Having food and raiment let us be therewith content ... They that will be rich fall into temptation and a snare, and into many foolish and hurtful lusts, which drown men in destruction and perdition. For the love of money is the root of all evil: which while some coveted after, they have erred from the faith, and pierced themselves through with many sorrows.
+This is the confidence that we have in him, that, if we ask any thing according to his will, he heareth us; and if we know that he hear us, whatsoever we ask, we know that we have the petitions that we desired of him. -- This is the will of God, even your sanctification.
  
-The cares of this world, and the deceitfulness of riches, and the lust of other things entering in, choke the word, and it becometh unfruitful.
+God hath ... called us ... unto holiness: ... who hath also given unto us his Holy Spirit.
  
-Let us lay aside every weight, and the sin which doth so easily beset us, and let us run with patience the race that is set before us.  
+Rejoice evermore. Pray without ceasing. In every thing give thanks: for this is the will of God in Christ Jesus concerning you. Quench not the Spirit.  
 
-**Luke 10:41; Luke 12:24,27,29,30; 1 Tim 6:8-10; Mark 4:19; Heb 12:1**
+**Rom 8:27; John 16:23,24; Eph 6:18; 1 John 5:14,15; 1 Thes 4:3; 1 Thes 4:7,8; 1 Thes 5:16-19**
 
 ---
 
-[Wednesday 14-June, 2023](https://t.me/s/daily_light)
+[Thursday 15-June, 2023](https://t.me/s/daily_light)
 
 > Jonathan Bagster, the son of Samuel Bagster, created the Daily Light for his own family's daily devotion in 1875
 
