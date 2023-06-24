@@ -1,15 +1,13 @@
 **Morning**
 
-**I will pray the Father, and he shall give you another Comforter, even the Spirit of truth.**
+**The ark of the covenant of the Lord went before them to search out a resting place for them.**
  
-It is expedient for you that I go away: for if I go not away, the Comforter will not come unto you; but if l depart, I will send him unto you.
+My times are in thy hand. -- He shall choose our inheritance for us. -- Lead me, O Lord, in thy righteousness; ... make thy way straight before my face.
  
-The Spirit itself beareth witness with our spirit, that we are the children of God. -- Ye have not received the spirit of bondage again to fear; but ye have received the Spirit of adoption, whereby we cry, Abba, Father. -- The Spirit ... helpeth our infirmities; for we know not what we should pray for as we ought: but the Spirit itself maketh intercession for us with groanings which cannot be uttered.
+Commit thy way unto the Lord; trust also in him; and he shalt bring it to pass. -- In all thy ways acknowledge him, and he shall direct thy paths. -- Thine ears shall hear a word behind thee, saying, This is the way, walk ye in it, when ye turn to the right hand, and when ye turn to the left.
  
-The God of hope fill you with all joy and peace in believing, that ye may abound in hope, through the power of the Holy Ghost. -- Hope maketh not ashamed; because the love of God is shed abroad in our hearts by the Holy Ghost which is given unto us.
- 
-Hereby know we that we dwell in him and he in us, because he hath given us of his Spirit.  
+The Lord is my shepherd; I shall not want. He maketh me to lie down in green pastures; he leadeth me beside the still waters. -- Like as a father pitieth his children, so the Lord pitieth them that fear him. For he knoweth our frame; he remembereth that we are dust. -- Your heavenly Father knoweth that ye have need of all these things. -- Casting all your care upon him; for he careth for you.  
 
-**John 14:16,17; John 16:7; Rom 8:16; Rom 8:15; Rom 8:26; Rom 15:13; Rom 5:5; 1 John 4:13**
+**Num 10:33; Psa 31:15; Psa 47:4; Psa 5:8; Psa 37:5; Prov 3:6; Isa 30:21; Psa 23:1,2; Psa 103:13,14; Matt 6:32; 1 Pet 5:7**
 
-[Friday 23-June, 2023](https://t.me/daily_light)
+[Saturday 24-June, 2023](https://t.me/daily_light)
