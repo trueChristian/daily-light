@@ -1,44 +1,43 @@
 {
-  "date_key": "june-24",
-  "date_name": "Saturday 24-June, 2023",
+  "date_key": "june-25",
+  "date_name": "Sunday 25-June, 2023",
   "evening": {
     "body": [
-      "In my Father's house are many mansions: if it were not so, I would have told you. I go to prepare a place for you. And if I go and prepare a place for you, I will come again, and receive you unto myself; that where I am, there ye may be also. -- To him that overcometh will I grant to sit with me in my throne.",
-      "Thus saith the high and lofty One that inhabiteth eternity, whose name is Holy; I dwell in the high and holy place, with him also that is of a contrite and humble spirit, to revive the spirit of the humble, and to revive the heart of the contrite ones.",
-      "Behold, I stand at the door, and knock: if any man hear my voice, and open the door, I will come in to him, and will sup with him, and he with me.",
-      "Look, I am with you alway, even unto the end of the world. -- How excellent is thy lovingkindness, O God! therefore the children of men put their trust under the shadow of thy wings."
+      "In him dwelleth all the fulness of the Godhead bodily. -- I have laid help upon one that is mighty; I have exalted one chosen out of the people. -- I have trodden the winepress alone; and of the people there was none with me.",
+      "Great is the mystery of godliness: God was manifest in the flesh. -- Unto us a child is born, unto us a son is given, and the government shall be upon his shoulder; and his name shall be called Wonderful, Counsellor, The mighty God, The Everlasting Father, The Prince of Peace.",
+      "The brightness of his glory, and the express image of his person, and upholding all things by the word of his power, when he had by himself purged our sins, sat down on the right hand of the majesty on high. -- Unto the Son he saith, Thy throne, O God, is for ever and ever.",
+      "Let all the angels of God worship him. Kings of kings, and Lord of lords."
     ],
-    "header": "Master, where dwellest thou? He saith unto them, Come and see.",
+    "header": "The man that is my fellow, saith the Lord of hosts.",
     "name": "Evening",
     "references": [
-      "John 14:2,3",
-      "Rev 3:21",
-      "Isa 57:15",
-      "Rev 3:20",
-      "Matt 28:20",
-      "Psa 36:7"
+      "Col 2:9",
+      "Psa 89:19",
+      "Isa 63:3",
+      "1 Tim 3:16",
+      "Isa 9:6",
+      "Heb 1:3",
+      "Heb 1:8",
+      "Heb 1:6",
+      "Rev 19:16"
     ]
   },
   "joomla": "https://git.vdm.dev/christian/mod_dailylight",
   "morning": {
     "body": [
-      "My times are in thy hand. -- He shall choose our inheritance for us. -- Lead me, O Lord, in thy righteousness; ... make thy way straight before my face.",
-      "Commit thy way unto the Lord; trust also in him; and he shalt bring it to pass. -- In all thy ways acknowledge him, and he shall direct thy paths. -- Thine ears shall hear a word behind thee, saying, This is the way, walk ye in it, when ye turn to the right hand, and when ye turn to the left.",
-      "The Lord is my shepherd; I shall not want. He maketh me to lie down in green pastures; he leadeth me beside the still waters. -- Like as a father pitieth his children, so the Lord pitieth them that fear him. For he knoweth our frame; he remembereth that we are dust. -- Your heavenly Father knoweth that ye have need of all these things. -- Casting all your care upon him; for he careth for you."
+      "As many as received him, to them gave he power to become the sons of God, even to them that believe on his name. -- Whereby are given unto us exceeding great and precious promises; that by these we might be partakers of the divine nature, having escaped the corruption that is in the world through lust.",
+      "Since the beginning of the world men have not heard, nor perceived by the ear, neither hath the eye seen, O God, beside thee, that he hath prepared for him that waiteth for him.",
+      "Now we see through a glass. darkly; but then face to face: now I know in part; but then shall I know even as also I am known. -- Christ ... shall change our vile body ... that it may be fashioned like unto his glorious body, according to the working whereby he is able even to subdue all things unto himself. -- As for me, I will behold thy face in righteousness: I shall be satisfied, when I awake, with thy likeness."
     ],
-    "header": "The ark of the covenant of the Lord went before them to search out a resting place for them.",
+    "header": "When he shall appear, we shall be like him; we shall see him as he is.",
     "name": "Morning",
     "references": [
-      "Psa 31:15",
-      "Psa 47:4",
-      "Psa 5:8",
-      "Psa 37:5",
-      "Prov 3:6",
-      "Isa 30:21",
-      "Psa 23:1,2",
-      "Psa 103:13,14",
-      "Matt 6:32",
-      "1 Pet 5:7"
+      "John 1:12",
+      "2 Pet 1:4",
+      "Isa 64:4",
+      "1 Cor 13:12",
+      "Phl 3:20,21",
+      "Psa 17:15"
     ]
   },
   "source": "https://github.com/trueChristian/daily-light",
