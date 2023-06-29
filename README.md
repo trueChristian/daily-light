@@ -1,32 +1,30 @@
 # Morning
 
-**I know that my Redeemer liveth.**
+**His commandments are not grievous.**
  
-If, when we were enemies, we were reconciled to God by the death of his Son, much more, being reconciled, we shall be saved by his life. -- This man, because he continueth ever, hath an unchangeable priesthood. Wherefore he is able also to save them to the uttermost that come unto God by him, seeing he ever liveth to make intercession for them.
+This is the will of him that sent me, that every one which seeth the Son, and believeth on him, may have everlasting life. -- Whatsoever we ask, we receive of him, because we keep his commandments, and do those things that are pleasing in his sight.
  
-Because I live, ye shall live also. -- If in this life only we have hope in Christ, we are of all men most miserable. But now is Christ risen from the dead, and become the firstfruits of them that slept.
+My yoke is easy, and my burden is light. -- If ye love me, keep my commandments. -- He that hath my commandments, and keepeth them, he it is that loveth me: and he that loveth me shall be loved of my Father, and I will love him, and will manifest myself to him.
  
-The Redeemer shall come to Zion, and unto them that turn from transgression in Jacob, saith the Lord. -- We have redemption through his blood, the forgiveness of sins, according to the riches of his grace. -- Ye were not redeemed with corruptible things, as silver and gold, from your vain conversation received by tradition from your fathers; but with the precious blood of Christ, as of a lamb without blemish and without spot.  
+Happy is the man that findeth wisdom, and the man that getteth understanding. -- Her ways are ways of pleasantness, and all her paths are peace. -- Great peace have they which love thy law and nothing shall offend them. -- I delight in the law of God after the inward man.
+ 
+This is his commandment, That we should believe on the name of his Son Jesus Christ, and love one another. -- Love worketh no ill to his neighbour: therefore love is the fulfilling of the law.  
 
-**Job 19:25; Rom 5:10; Heb 7:24,25; John 14:19; 1 Cor 15:19,20; Isa 59:20; Eph 1:7; 1 Pet 1:15,19**
+**1 John 5:3; John 6:40; 1 John 3:22; Matt 11:30; John 14:15,21; Prov 3:13; Prov 3:17; Psa 119:165; Rom 7:22; 1 John 3:23; Rom 13:10**
 
 # Evening
 
-**The Spirit speaketh expressly, that in the latter times some shall depart from the faith, giving heed to seducing spirits.**
+**Remember not the sins of my youth, nor my transgressions.**
  
-Take heed therefore how ye hear. -- Let the word of Christ dwell in you richly in all wisdom. -- Above all, taking the shield of faith, wherewith ye shall be able to quench all the fiery darts of the wicked.
+I have blotted out, as a thick cloud, thy transgressions, and, as a cloud, thy sins. -- I, even I, am he that blotteth out thy transgressions for mine own sake, and will not remember thy sins. -- Come now, and let us reason together, saith the Lord: though your sins be as scarlet, they shall be as white as snow; though they be red like crimson, they shall be as wool. -- I will forgive their iniquity, and I will remember their sin no more. -- Thou wilt cast all their sins into the depths of the sea.
  
-Great peace have they which love thy law: and nothing shall offend them. How sweet are thy words unto my taste! yea, sweeter than honey to my mouth! Through thy precepts I get understanding: therefore I hate every false way.
- 
-Thy word is a lamp unto my feet, and a light unto my path. -- I have more understanding than all my teachers: for thy testimonies are my meditation.
- 
-Satan himself is transformed into an angel of light. -- But though we, or an angel from heaven, preach any other gospel unto you than that which we have preached unto you, let him be accursed.  
+Thou hast in love to my soul delivered it from the pit of corruption: for thou hast cast all my sins behind thy back. -- Who is a God like unto thee, that pardoneth iniquity? ... he retaineth not his anger for ever, because he delighteth in mercy. -- Unto him that loved us, and washed us from our sins in his own blood, to him be glory and dominion for ever and ever. Amen.  
 
-**1 Tim 4:1; Luke 8:18; Col 3:16; Eph 6:16; Psa 119:165,103,104; Psa 119:105; Psa 119:99; 2 Cor 11:14; Gal 1:8**
+**Psa 25:7; Isa 44:22; Isa 43:25; Isa 1:18; Jer 31:34; Mic 7:19; Isa 38:17; Mic 7:18; Rev 1:5**
 
 ---
 
-[Wednesday 28-June, 2023](https://t.me/s/daily_light)
+[Thursday 29-June, 2023](https://t.me/s/daily_light)
 
 > Jonathan Bagster, the son of Samuel Bagster, created the Daily Light for his own family's daily devotion in 1875
 
