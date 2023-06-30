@@ -1,30 +1,30 @@
 # Morning
 
-**His commandments are not grievous.**
+**As many as I love, I rebuke and chasten.**
  
-This is the will of him that sent me, that every one which seeth the Son, and believeth on him, may have everlasting life. -- Whatsoever we ask, we receive of him, because we keep his commandments, and do those things that are pleasing in his sight.
+My son, despise not thou the chastening of the Lord, nor faint when thou art rebuked of him: for whom the Lord loveth he chasteneth, and scourgeth every son whom he receiveth. -- Even as a father the son in whom he delighteth. -- He maketh sore, and bindeth up: he woundeth, and his hands make whole. -- Humble yourselves therefore under the mighty hand of God, that he may exalt you in due time. -- I have chosen thee in the furnace of affliction.
  
-My yoke is easy, and my burden is light. -- If ye love me, keep my commandments. -- He that hath my commandments, and keepeth them, he it is that loveth me: and he that loveth me shall be loved of my Father, and I will love him, and will manifest myself to him.
- 
-Happy is the man that findeth wisdom, and the man that getteth understanding. -- Her ways are ways of pleasantness, and all her paths are peace. -- Great peace have they which love thy law and nothing shall offend them. -- I delight in the law of God after the inward man.
- 
-This is his commandment, That we should believe on the name of his Son Jesus Christ, and love one another. -- Love worketh no ill to his neighbour: therefore love is the fulfilling of the law.  
+He doth not afflict willingly nor grieve the children of men. -- He hath not dealt with us after our sins; nor rewarded us according to our iniquities. For as the heaven is high above the earth, so great is his mercy toward them that fear him. As far as the east is from the west, so far hath he removed our transgressions from us. Like as a father pitieth his children, so the Lord pitieth them that fear him. For he knoweth our frame; he remembereth that we are dust.  
 
-**1 John 5:3; John 6:40; 1 John 3:22; Matt 11:30; John 14:15,21; Prov 3:13; Prov 3:17; Psa 119:165; Rom 7:22; 1 John 3:23; Rom 13:10**
+**Rev 3:19; Heb 12:5,6; Prov 3:12; Job 5:18; 1 Pet 5:6; Isa 48:10; Lam 3:33; Psa 103:10-14**
 
 # Evening
 
-**Remember not the sins of my youth, nor my transgressions.**
+**God is in heaven, and thou upon earth: therefore let thy words be few.**
  
-I have blotted out, as a thick cloud, thy transgressions, and, as a cloud, thy sins. -- I, even I, am he that blotteth out thy transgressions for mine own sake, and will not remember thy sins. -- Come now, and let us reason together, saith the Lord: though your sins be as scarlet, they shall be as white as snow; though they be red like crimson, they shall be as wool. -- I will forgive their iniquity, and I will remember their sin no more. -- Thou wilt cast all their sins into the depths of the sea.
+When ye pray, use not vain repetitions, as the heathen do: for they think that they shall be heard for their much speaking. Be not ye therefore like unto them: for your Father knoweth what things ye have need of, before ye ask him.
  
-Thou hast in love to my soul delivered it from the pit of corruption: for thou hast cast all my sins behind thy back. -- Who is a God like unto thee, that pardoneth iniquity? ... he retaineth not his anger for ever, because he delighteth in mercy. -- Unto him that loved us, and washed us from our sins in his own blood, to him be glory and dominion for ever and ever. Amen.  
+They ... called on the name of Baal from morning even until noon, saying, O Baal, hear us.
+ 
+Two men went up into the temple to pray; the one a Pharisee, and the other a publican. The Pharisee stood and prayed thus with himself, God, I thank thee, that I am not as other men are, extortioners, unjust, adulterers, or even as this publican. And the publican, standing afar off, would not lift up so much as his eyes unto heaven, but smote upon his breast, saying, God be merciful to me a sinner. I tell you, this man went down to his house justified rather than the other.
+ 
+Lord, teach us to pray.  
 
-**Psa 25:7; Isa 44:22; Isa 43:25; Isa 1:18; Jer 31:34; Mic 7:19; Isa 38:17; Mic 7:18; Rev 1:5**
+**Eccl 5:2; Matt 6:7,8; 1 Kgs 18:26; Luke 18:10,11,13,14; Luke 11:1**
 
 ---
 
-[Thursday 29-June, 2023](https://t.me/s/daily_light)
+[Friday 30-June, 2023](https://t.me/s/daily_light)
 
 > Jonathan Bagster, the son of Samuel Bagster, created the Daily Light for his own family's daily devotion in 1875
 

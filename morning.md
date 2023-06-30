@@ -1,15 +1,11 @@
 **Morning**
 
-**His commandments are not grievous.**
+**As many as I love, I rebuke and chasten.**
  
-This is the will of him that sent me, that every one which seeth the Son, and believeth on him, may have everlasting life. -- Whatsoever we ask, we receive of him, because we keep his commandments, and do those things that are pleasing in his sight.
+My son, despise not thou the chastening of the Lord, nor faint when thou art rebuked of him: for whom the Lord loveth he chasteneth, and scourgeth every son whom he receiveth. -- Even as a father the son in whom he delighteth. -- He maketh sore, and bindeth up: he woundeth, and his hands make whole. -- Humble yourselves therefore under the mighty hand of God, that he may exalt you in due time. -- I have chosen thee in the furnace of affliction.
  
-My yoke is easy, and my burden is light. -- If ye love me, keep my commandments. -- He that hath my commandments, and keepeth them, he it is that loveth me: and he that loveth me shall be loved of my Father, and I will love him, and will manifest myself to him.
- 
-Happy is the man that findeth wisdom, and the man that getteth understanding. -- Her ways are ways of pleasantness, and all her paths are peace. -- Great peace have they which love thy law and nothing shall offend them. -- I delight in the law of God after the inward man.
- 
-This is his commandment, That we should believe on the name of his Son Jesus Christ, and love one another. -- Love worketh no ill to his neighbour: therefore love is the fulfilling of the law.  
+He doth not afflict willingly nor grieve the children of men. -- He hath not dealt with us after our sins; nor rewarded us according to our iniquities. For as the heaven is high above the earth, so great is his mercy toward them that fear him. As far as the east is from the west, so far hath he removed our transgressions from us. Like as a father pitieth his children, so the Lord pitieth them that fear him. For he knoweth our frame; he remembereth that we are dust.  
 
-**1 John 5:3; John 6:40; 1 John 3:22; Matt 11:30; John 14:15,21; Prov 3:13; Prov 3:17; Psa 119:165; Rom 7:22; 1 John 3:23; Rom 13:10**
+**Rev 3:19; Heb 12:5,6; Prov 3:12; Job 5:18; 1 Pet 5:6; Isa 48:10; Lam 3:33; Psa 103:10-14**
 
-[Thursday 29-June, 2023](https://t.me/daily_light)
+[Friday 30-June, 2023](https://t.me/daily_light)
