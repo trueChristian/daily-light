@@ -1,34 +1,30 @@
 # Morning
 
-**We have known and believed the love that God hath to us.**
+**Let your speech be always with grace.**
  
-God, who is rich in mercy, for his great love wherewith he loved us, even when we were dead in sins, hath quickened us together with Christ, (by grace ye are saved;) and hath raised us up together, and made us sit together in heavenly places in Christ Jesus: that in the ages to come he might shew the exceeding riches of his grace in his kindness toward us through Christ Jesus.
+A word fitly spoken is like apples of gold in pictures of silver. As an earring of gold, and an ornament of fine gold, so is a wise reprover upon an obedient ear. -- Let no corrupt communication proceed out of your mouth, but that which is good to the use of edifying, that it may minister grace unto the hearers. -- A good man out of the good treasure of the heart bringeth forth good things: and an evil man out of the evil treasure bringeth forth evil things. -- By thy words thou shalt be justified. -- The tongue of the wise is health.
  
-God so loved the world, that he gave his only begotten Son, that whosoever believeth in him should not perish, but have everlasting life. -- He that spared not his own Son, but delivered him up for us all, how shall he not with him also freely give us all things? -- The Lord is good to all: and his tender mercies are over all his works.
+They that feared the Lord spake often one to another: and the Lord hearkened, and heard it, and a book of remembrance was written before him for them that feared the Lord, and that thought upon his name.
  
-We love him, because he first loved us.
- 
-Blessed is she that believed: for there shall be a performance of those things which were told her from the Lord.  
+If thou take forth the precious from the vile, thou shalt be as my mouth. -- Therefore, as ye abound in every thing, in faith, and utterance, and knowledge, and in all diligence, ... see that ye abound in this grace also.  
 
-**1 John 4:16; Eph 2:4‑7; John 3:16; Rom 8:32; Psa 145:9; 1 John 4:19; Luke 1:45**
+**Col 4:6; Prov 25:11,12; Eph 4:29; Matt 12:35; Matt 12:37; Prov 12:18; Mal 3:16; Jer 15:19; 2 Cor 8:7**
 
 # Evening
 
-**Mind not high things, but condescend to men of low estate.**
+**Thy lovingkindness is before mine eyes.**
  
-My brethren, have not the faith of our Lord Jesus Christ, the Lord of glory, with respect of persons. Hath not God chosen the poor of this world rich in faith, and heirs of the kingdom which he hath promised to them that love him?
+The Lord is gracious, and full of compassion; slow to anger, and of great mercy. -- Your Father which is in heaven: ... maketh his sun to rise on the evil and on the good, and sendeth rain on the just and on the unjust.
  
-Let no man seek his own, but every man another's wealth. -- Having food and raiment let us be therewith content. But they that will be rich fall into temptation and a snare, and into many foolish and hurtful lusts, which drown men in destruction and perdition.
+Be ye ... followers of God, as dear children; and walk in love, as Christ also hath loved us, and hath given himself for us an offering and a sacrifice to God for a sweet‑smelling savour. -- Be ye kind to one another, tenderhearted, forgiving one another, even as God for Christ's sake hath forgiven you. -- Seeing ye have purified your souls in obeying the truth through the Spirit unto unfeigned love of the brethren, see that ye love one another with a pure heart fervently. -- The love of Christ constraineth us.
  
-God hath chosen the foolish things of the world to confound the wise: and God hath chosen the weak things of the world to confound the things which are mighty; and base things of the world, and things which are despised, hath God chosen, yea, and things which are not, to bring to nought things that are: that no flesh should glory in his presence.
- 
-Lord, my heart is not haughty, nor mine eyes lofty.  
+Love ye your enemies, and do good, and lend, hoping for nothing again; and your reward shall be great, and ye shall be the children of the Highest: for he is kind unto the unthankful and to the evil. Be ye therefore merciful, as your Father also is merciful.  
 
-**Rom 12:16; Jas 2:1,5; 1 Cor 10:24; 1 Tim 6:8,9; 1 Cor 1:27‑29; Psa 131:1**
+**Psa 26:3; Psa 145:8; Matt 5:45; Eph 5:1,2; Eph 4:32; 1 Pet 1:22; 2 Cor 5:14; Luke 6:35,36**
 
 ---
 
-[Wednesday 05-July, 2023](https://t.me/s/daily_light)
+[Thursday 06-July, 2023](https://t.me/s/daily_light)
 
 > Jonathan Bagster, the son of Samuel Bagster, created the Daily Light for his own family's daily devotion in 1875
 
