@@ -1,11 +1,15 @@
 **Morning**
 
-**Then was Jesus led up of the spirit into the wilderness to be tempted of the devil.**
+**If we confess our sins, he is faithful and just to forgive us our sins, and to cleanse us from all unrighteousness.**
  
-In the days of his flesh, when he had offered up prayers and supplications with strong crying and tears unto him that was able to save him from death, and was heard in that he feared; though he were a Son, yet learned he obedience by the things which he suffered; and being made perfect, he became the author of eternal salvation unto all them that obey him. -- We have not an high priest which cannot be touched with the feeling of our infirmities: but was in all points tempted like as we are, yet without sin.
+I acknowledge my transgressions: and my sin is ever before me. Against thee, thee only, have I sinned, and done this evil in thy sight.
  
-There hath no temptation taken you but such as is common to man: but God is faithful, who will not suffer you to be tempted above that ye are able; but will with the temptation also make a way to escape, that ye may be able to bear it. -- My grace is sufficient for thee: for my strength is made perfect in weakness.  
+And he arose, and came to his father. But when he was yet a great way off, his father saw him, and had compassion, and ran, and fell on his neck, and kissed him. -- I have blotted out as a thick cloud, thy transgressions, and, as a cloud, thy sins: return unto me; for I have redeemed thee. -- Your sins are forgiven you for his name's sake. -- God for Christ's sake hath forgiven you. -- That he might be just, and the justifier of him which believeth in Jesus.
+ 
+Then will I sprinkle clean water upon you, and ye shall be clean. -- They shall walk with me in white: for they are worthy.
+ 
+This is he that came by water and blood, even Jesus Christ: not by water only, but by water and blood.  
 
-**Matt 4:1; Heb 5:7‑9; Heb 4:15; 1 Cor 10:13; 2 Cor 12:9**
+**1 John 1:9; Psa 51:3,4; Luke 15:20; Isa 44:22; 1 John 2:12; Eph 4:32; Rom 3:26; Eze 36:25; Rev 3:4; 1 John 5:6**
 
-[Friday 07-July, 2023](https://t.me/daily_light)
+[Saturday 08-July, 2023](https://t.me/daily_light)
