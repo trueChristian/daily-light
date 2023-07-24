@@ -1,13 +1,13 @@
 **Morning**
 
-**Then cometh the end.**
+**Patient in tribulation.**
  
-Of that day and that hour knoweth no man, no, not the angels which are in heaven, neither the Son, but the Father. Take ye heed, watch and pray: for ye know not when the time is. And what I say unto you I say unto all, Watch. -- The Lord is not slack concerning his promise, as some men count slackness; but is longsuffering to us‑ward, not willing that any should perish, but that all should come to repentance. -- The coming of the Lord draweth nigh. The judge standeth before the door. -- Surely I come quickly.
+It is the Lord: let him do what seemeth him good. -- Whom, though I were righteous, yet would I not answer, but I would make supplication to my judge. -- The Lord gave, and the Lord hath taken away; blessed be the name of the Lord. -- What? shall we receive good at the hand of God, and shall we not receive evil?
  
-Seeing ... that all these things shall be dissolved, what manner of persons ought ye to be in all holy conversation and godliness.
+Jesus wept. -- A man of sorrows, and acquainted with grief. Surely he hath borne our griefs, and carried our sorrows.
  
-The end of all things is at hand: be ye therefore sober, and watch unto prayer. -- Let your loins be girded about, and your lights burning; and ye yourselves like unto men that wait for their lord, when he will return from the wedding; that when he cometh and knocketh, they may open unto him immediately.  
+Whom the Lord loveth he chasteneth, and scourgeth every son whom he receiveth. Now no chastening for the present seemeth to be joyous, but grievous: nevertheless afterward it yieldeth the peaceable fruit of righteousness unto them which are exercised thereby. -- Strengthened with all might, according to his glorious power, unto all patience and longsuffering with joyfulness. -- In the world ye shall have tribulation: but be of good cheer; I have overcome the world.  
 
-**1 Cor 15:24; Matt 13:32,33,37; 2 Pet 3:9; Jas 5:8,9; Rev 22:20; 2 Pet 3:11; 1 Pet 4:7; Luke 12:35,36**
+**Rom 12:12; 1 Sam 3:18; Job 9:15; Job 1:21; Job 2:10; John 11:35; Isa 53:3,4; Heb 12:6,11; Col L:11; John 16:33**
 
-[Sunday 23-July, 2023](https://t.me/daily_light)
+[Monday 24-July, 2023](https://t.me/daily_light)
