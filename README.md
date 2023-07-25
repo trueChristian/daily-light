@@ -1,30 +1,32 @@
 # Morning
 
-**Patient in tribulation.**
+**We know that we have passed from death unto life.**
  
-It is the Lord: let him do what seemeth him good. -- Whom, though I were righteous, yet would I not answer, but I would make supplication to my judge. -- The Lord gave, and the Lord hath taken away; blessed be the name of the Lord. -- What? shall we receive good at the hand of God, and shall we not receive evil?
+He that heareth my word and believeth on him that sent me hath everlasting life, and shall not come into condemnation; but is passed from death unto life. -- He that hath the Son hath life, and he that hath not the Son of God hath not life.
  
-Jesus wept. -- A man of sorrows, and acquainted with grief. Surely he hath borne our griefs, and carried our sorrows.
+He which stablisheth us with you in Christ and hath anointed us, is God; who hath also sealed us, and given the earnest of the Spirit in our hearts. -- Hereby we know that we are of the truth and shall assure our hearts before him. Beloved, if our heart condemn us not, then have we confidence toward God. -- We know that we are of God, and the whole world lieth in wickedness.
  
-Whom the Lord loveth he chasteneth, and scourgeth every son whom he receiveth. Now no chastening for the present seemeth to be joyous, but grievous: nevertheless afterward it yieldeth the peaceable fruit of righteousness unto them which are exercised thereby. -- Strengthened with all might, according to his glorious power, unto all patience and longsuffering with joyfulness. -- In the world ye shall have tribulation: but be of good cheer; I have overcome the world.  
+You hath he quickened, who were dead in trespasses and sin. -- Quickened ... together with Christ. -- Who hath delivered us from the power of darkness, and hath translated us into the kingdom his dear Son.  
 
-**Rom 12:12; 1 Sam 3:18; Job 9:15; Job 1:21; Job 2:10; John 11:35; Isa 53:3,4; Heb 12:6,11; Col L:11; John 16:33**
+**1 John 3:14; John 5:24; 1 John 5:12; 2 Cor 1:21,22; 1 John 3:19,21; 1 John 5:19; Eph 2:1; Eph 2:5; Col 1:13**
 
 # Evening
 
-**He staggered not at the promise of God through unbelief.**
+**Thou wilt shew me the path of life.**
  
-Have faith in God. Whosoever shall say unto this mountain, Be thou removed, and be thou cast into the sea; and shall not doubt in his heart, but shall believe that those things which he saith shall come to pass; he shall have whatsoever he saith. Therefore I say unto you, What things soever ye desire, when ye pray, believe that ye receive them, and ye shall have them. -- Without faith it is impossible to please him: for he that cometh to God, must believe that he is, and that he is a rewarder of them that diligently seek him.
+Thus saith the Lord; Behold, I set before you the way of life and the way of death. -- I will teach you the good and the right way. -- I am the way, the truth, and the life: no man cometh unto the Father, but by me. -- Follow me.
  
-He that had received the promises offered up his only begotten son, of whom it was said, That in Isaac shall thy seed be called: accounting that God was able to raise him up, even from the dead. -- Being fully persuaded that, what he had promised, he was able also to perform.
+There is a way which seemeth right unto a man, but the ends thereof are the ways of death. -- Wide is the gate, and broad is the way, that leadeth to destruction, and many there be which go in thereat: because strait is the gate, and narrow is the way, that leadeth unto life, and few there be that find it.
  
-Is any thing too hard for the Lord? -- With God all things are possible. -- Lord, increase our faith.  
+An highway shall be there, and a way, and it shall be called The way of holiness; the unclean shall not pass over it; but it shall be for those: the wayfaring men, though fools, shall not err therein. -- Then shall we know, if we follow on to know the Lord.
+ 
+In my Father’s house are many mansions: if it were not so I would have told you. I go to prepare a place for you.  
 
-**Rom 4:20; Mark 11:22‑24; Heb 11:16; Heb 11:17‑19; Rom 4:21; Gen 18:14; Matt 19:26; Luke 17:5**
+**Psa 16:11; Jer 21:8; 1 Sam 12:23; John 14:6; Matt 14:19; Prov 4:12; Matt 7:13,14; Isa 35:8; Hos 6:3; John 14:2**
 
 ---
 
-[Monday 24-July, 2023](https://t.me/s/daily_light)
+[Tuesday 25-July, 2023](https://t.me/s/daily_light)
 
 > Jonathan Bagster, the son of Samuel Bagster, created the Daily Light for his own family's daily devotion in 1875
 
