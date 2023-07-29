@@ -1,13 +1,13 @@
 **Morning**
 
-**Walk in love.**
+**Oh that thou wouldest rend the heavens, that thou wouldest come down.**
  
-A new commandment I give unto you, That ye love one another; as I have loved you, that ye also love one another. -- Above all things have fervent charity among yourselves: for charity shall cover the multitude of sins. -- Love covereth all sins.
+Make haste, my beloved, and be thou like to a roe or to a young hart upon the mountains of spices. -- We ourselves groan within ourselves, waiting for the adoption, to wit, the redemption of our body. -- Bow thy heavens, O Lord, and come down: touch the mountains, and they shall smoke.
  
-When ye stand praying, forgive, if ye have ought against any: that your Father also which is in heaven may forgive you your trespasses. -- Love ye your enemies, and do good, and lend, hoping for nothing again. -- Rejoice not when thine enemy falleth, and let not thine heart be glad when he stumbleth. -- Not rendering evil for evil, or railing for railing: but contrariwise blessing; knowing that ye are thereunto called, that ye should inherit a blessing. -- If it be possible, as much as lieth in you, live peaceably with all men. -- Be ye kind one to another, tender‑hearted, forgiving one another, even as God for Christ's sake hath forgiven you.
+This same Jesus, which is taken up from you into heaven, shall so come in like manner as ye have seen him go into heaven. -- Unto them that look for him shall he appear the second time without sin unto salvation. -- It shall be said in that day, Lo, this is our God; we have waited for him, and he will save us: this is the Lord; we have waited for him, we will be glad and rejoice in his salvation.
  
-My little children, let us not love in word, neither in tongue; but in deed and in truth.  
+He which testifieth these things saith, Surely I come quickly. Amen. Even so, come, Lord Jesus. -- That blessed hope ... the glorious appearing of the great God and our Saviour Jesus Christ. -- Our conversation is in heaven.  
 
-**Eph 5:2; John 13:34; 1 Pet 4:8; Prov 10:12; Mark 11:25; Luke 6:35; Prov 24:17; 1 Pet 3:9; Rom 12:18; Eph 4:32; 1 John 3:18**
+**Isa 64:1; Song 8:14; Rom 8:23; Psa 144:5; Acts 1:10,11; Heb 9:28; Isa 25:9; Rev 22:20; Tit 2:13; Phil 3:20**
 
-[Friday 28-July, 2023](https://t.me/daily_light)
+[Saturday 29-July, 2023](https://t.me/daily_light)
