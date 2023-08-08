@@ -1,13 +1,13 @@
 **Evening**
 
-**What think ye of Christ?**
+**Whosoever shall call upon the name of the Lord shall be saved.**
  
-Lift up your heads, O ye gates; even lift them up, ye everlasting doors; and the King of glory shall come in. Who is this King of glory? The Lord of hosts, he is the King of glory. -- He hath on his vesture and on his thigh a name written, KING OF KINGS, AND LORD OF LORDS.
+Him that cometh to me I will in no wise cast out. -- Lord, remember me when thou comest into thy kingdom. And Jesus said unto him, Verily I say unto thee, To day shalt thou be with me in paradise. -- What will ye that I shall do unto you? They say unto him, Lord, that our eyes may be opened. So Jesus had compassion on them, and touched their eyes: and immediately their eyes received sight, and they followed him.
  
-Unto you ... which believe he is precious: but unto them which be disobedient, the stone which the builders disallowed, the same is made the head of the corner. -- Christ crucified, unto the Jews a stumblingblock, and unto the Greeks foolishness; but unto them which are called, both Jews and Greeks, Christ the power of God, and the wisdom of God.
+If ye ... being evil, know how to give good gifts unto your children: how much more shall your heavenly Father give the Holy Spirit to them that ask him? -- I will put my Spirit within you. Thus saith the Lord GOD; I will yet for this be enquired of.
  
-I count all things but loss for the excellency of the knowledge of Christ Jesus my Lord: for whom I have suffered the loss of all things, and do count them but dung, that I may win Christ. -- Lord, thou knowest all things: thou knowest that I love thee.  
+This is the confidence that we have in him, that, if we ask any thing according to his will, he heareth us: and if we know that he hear us, whatsoever we ask, we know that we have the petitions that we desired of him.  
 
-**Matt 22:42; Psa 24:9,10; Rev 9:16; 1 Pet 2:7; 1 Cor 1:23,24; Phl 3:8; John 21:17**
+**Rom 10:13; John 6:37; Luke 23:42,43; Matt 20:32‑34; Luke 11:13; Eze 6:27,37; 1 John 5:14,15**
 
-[Monday 07-August, 2023](https://t.me/daily_light)
+[Tuesday 08-August, 2023](https://t.me/daily_light)
