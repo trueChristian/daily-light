@@ -1,30 +1,32 @@
 # Morning
 
-**As he which hath called you is holy, so be ye holy in all manner of conversation.**
+**God is not a man, that he should lie; neither the son of man, that he should repent.**
  
-Ye know how we exhorted ... and charged every one of you, that ye would walk worthy of God, who hath called you unto his kingdom and glory. -- Ye should shew forth the praises of him who hath called you out of darkness into his marvellous light.
+The Father of lights, with whom is no variableness, neither shadow of turning. -- Jesus Christ, the same yesterday, and today, and for ever.
  
-Ye were sometime darkness, but now are ye light in the Lord: walk as children of light: (for the fruit of the Spirit is in all goodness and righteousness and truth;) proving what is acceptable unto the Lord. And have no fellowship with the unfruitful works of darkness, but rather reprove them. -- Being filled with the fruits of righteousness, which are by Jesus Christ, unto the glory and praise of God.
+His truth shall be thy shield and buckler.
  
-Let your light so shine before men, that they may see your good works, and glorify your Father which is in heaven. -- Whether therefore ye eat, or drink, or whatsoever ye do, do all to the glory of God.  
+God, willing more abundantly to shew unto the heirs of promise the immutability of his counsel, confirmed it by an oath; that by two immutable things, in which it was impossible for God to lie, we might have a strong consolation, who have fled for refuge to lay hold upon the hope set before us.
+ 
+The faithful God, which keepeth covenant and mercy with them that love him and keep his commandments to a thousand generations. -- All the paths of the LORD are mercy and truth unto such as keep his covenant and his testimonies. -- Happy is he that hath the God of Jacob for his help, whose hope is in the LORD his God ... which keepeth truth for ever.  
 
-**1 Pet 1:15; 1 Thes 2:11,12; 1 Pet 2:9; Eph 5:8-11; Phl 1:11; Matt 5:16; 1 Cor 10:31**
+**Num 23:19; Jas 1:17; Heb 13:8; Psa 91:4; Heb 6:17,18; Deut 7:9; Psa 25:10; Psa 146:5,6**
 
 # Evening
 
-**Ask me of things to come concerning my sons, and concerning the work of my hands command ye me.**
+**If thou faint in the day of adversity, thy strength is small.**
  
-A new heart ... will I give you, and a new spirit will I put within you: and I will take away the stony heart out of your flesh, and I will give you an heart of flesh. And I will put my Spirit within you, and cause you to walk in my statutes. Thus saith the Lord God; I will yet for this be enquired of by the house of Israel, to do it for them.
+He giveth power to the faint; and to them that have no might he increaseth strength. -- My grace is sufficient for thee: for my strength is made perfect in weakness. -- He shall call upon me, and I will answer him: I will be with him in trouble; I will deliver him. -- The eternal God is thy refuge, and underneath are the everlasting arms: and he shall thrust out the enemy from before thee.
  
-If two of you shall agree on earth as touching anything that they shall ask, it shall be done for them of my Father which is in heaven. For where two or three are gathered together in my name, there am I in the midst of them.
+I looked for some to take pity, but there was none; and for comforters, but I found none.
  
-Have faith in God. Verily I say unto you, That whosoever shall say unto this mountain, Be thou removed, and be thou cast into the sea; and shall not doubt in his heart, but shall believe that those things which he saith shall come to pass; he shall have whatsoever he saith.  
+Every high priest taken from among men is ordained for men in things pertaining to God, ... who can have compassion on the ignorant, and on them that are out of the way: so also Christ, ... though he were a Son, yet learned he obedience by the things which he suffered; and being made perfect, he became the author of eternal salvation unto all them that obey him. -- Surely he hath borne our griefs, and carried our sorrows.  
 
-**Isa 45:11; Ezek 36:26,27,37; Matt 18:19,20; Mark 11:22,23**
+**Prov 24:10; Isa 40:29; 2 Cor 12:9; Psa 91:15; Deut 33:27; Psa 69:20; Heb 5:1,2,5,8,9; Isa 53:4**
 
 ---
 
-[Saturday 19-August, 2023](https://t.me/s/daily_light)
+[Sunday 20-August, 2023](https://t.me/s/daily_light)
 
 > Jonathan Bagster, the son of Samuel Bagster, created the Daily Light for his own family's daily devotion in 1875
 
