@@ -1,32 +1,32 @@
 # Morning
 
-**God is not a man, that he should lie; neither the son of man, that he should repent.**
+**Thou art my portion, O Lord.**
  
-The Father of lights, with whom is no variableness, neither shadow of turning. -- Jesus Christ, the same yesterday, and today, and for ever.
+All things are yours; ... and ye are Christ's; and Christ is God's. -- Our Saviour Jesus Christ ... gave himself for us. -- God gave him to be the head over all things to the church. -- Christ loved the church, and gave himself for it; that he might present it to himself a glorious church, not having spot, or wrinkle, or any such thing; but that it should be holy and without blemish.
  
-His truth shall be thy shield and buckler.
+My soul shall make her boast in the LORD. -- I will greatly rejoice in the LORD, my soul shall be joyful in my God; for he hath clothed me with the garments of salvation, he hath covered me with the robe of righteousness.
  
-God, willing more abundantly to shew unto the heirs of promise the immutability of his counsel, confirmed it by an oath; that by two immutable things, in which it was impossible for God to lie, we might have a strong consolation, who have fled for refuge to lay hold upon the hope set before us.
- 
-The faithful God, which keepeth covenant and mercy with them that love him and keep his commandments to a thousand generations. -- All the paths of the LORD are mercy and truth unto such as keep his covenant and his testimonies. -- Happy is he that hath the God of Jacob for his help, whose hope is in the LORD his God ... which keepeth truth for ever.  
+Whom have I in heaven but thee? and there is none upon earth that I desire beside thee. My flesh and my heart faileth: but God is the strength of my heart, and my portion for ever. -- O my soul, thou hast said unto the LORD, Thou art my Lord. The LORD is the portion of mine inheritance and of my cup: thou maintamest my lot. The lines are fallen unto me in pleasant places; yea, I have a goodly heritage.  
 
-**Num 23:19; Jas 1:17; Heb 13:8; Psa 91:4; Heb 6:17,18; Deut 7:9; Psa 25:10; Psa 146:5,6**
+**Psa 119:57; 1 Cor 3:21,23; Tit 2:13,14; Eph 1:22; Eph 5:25,27; Psa 34:2; Isa 61:10; Psa 73:25,26; Psa 16:2,5,6**
 
 # Evening
 
-**If thou faint in the day of adversity, thy strength is small.**
+**There is a way which seemeth right unto a man, but the end thereof are the ways of death.**
  
-He giveth power to the faint; and to them that have no might he increaseth strength. -- My grace is sufficient for thee: for my strength is made perfect in weakness. -- He shall call upon me, and I will answer him: I will be with him in trouble; I will deliver him. -- The eternal God is thy refuge, and underneath are the everlasting arms: and he shall thrust out the enemy from before thee.
+He that trusteth in his own heart is a fool.
  
-I looked for some to take pity, but there was none; and for comforters, but I found none.
+Thy word is a lamp unto my feet, and a light unto my path. -- Concerning the works of men, by the word of thy lips I have kept me from the paths of the destroyer.
  
-Every high priest taken from among men is ordained for men in things pertaining to God, ... who can have compassion on the ignorant, and on them that are out of the way: so also Christ, ... though he were a Son, yet learned he obedience by the things which he suffered; and being made perfect, he became the author of eternal salvation unto all them that obey him. -- Surely he hath borne our griefs, and carried our sorrows.  
+If there arise among you a prophet, or a dreamer of dreams, saying, Let us go after other gods, which thou hast not known, and let us serve them; thou shalt not hearken unto the words of that prophet: for the LORD your God proveth you, to know whether ye love the LORD your God with all your heart and with all your soul. Ye shall walk after the LORD your God, and fear him, and keep his commandments, and obey his voice, and ye shall serve him, and cleave unto him.
+ 
+I will instruct thee and teach thee in the way which thou shalt go; I will guide thee with mine eye.  
 
-**Prov 24:10; Isa 40:29; 2 Cor 12:9; Psa 91:15; Deut 33:27; Psa 69:20; Heb 5:1,2,5,8,9; Isa 53:4**
+**Prov 14:12; Psa 28:26; Psa 119:105; Psa 17:4; Deut 13:1-4; Psa 32:8**
 
 ---
 
-[Sunday 20-August, 2023](https://t.me/s/daily_light)
+[Monday 21-August, 2023](https://t.me/s/daily_light)
 
 > Jonathan Bagster, the son of Samuel Bagster, created the Daily Light for his own family's daily devotion in 1875
 
