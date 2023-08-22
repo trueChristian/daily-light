@@ -1,15 +1,13 @@
 **Evening**
 
-**There is a way which seemeth right unto a man, but the end thereof are the ways of death.**
+**God gave Solomon ... largeness of heart, even as the sand that is on the sea shore.**
  
-He that trusteth in his own heart is a fool.
+Behold, a greater than Solomon is here. -- The Prince of Peace.
  
-Thy word is a lamp unto my feet, and a light unto my path. -- Concerning the works of men, by the word of thy lips I have kept me from the paths of the destroyer.
+Scarcely for a righteous man will one die: yet peradventure for a good man some would even dare to die. But God commendeth his love toward us, in that, while we were yet sinners, Christ died for us. -- Who, being in the form of God, thought it not robbery to be equal with God: but made himself of no reputation, and took upon him the form of a servant, and was made in the likeness of men: and being found in fashion as a man, he humbled himself, and became obedient unto death, even the death of the cross. -- The love of Christ passeth knowledge.
  
-If there arise among you a prophet, or a dreamer of dreams, saying, Let us go after other gods, which thou hast not known, and let us serve them; thou shalt not hearken unto the words of that prophet: for the LORD your God proveth you, to know whether ye love the LORD your God with all your heart and with all your soul. Ye shall walk after the LORD your God, and fear him, and keep his commandments, and obey his voice, and ye shall serve him, and cleave unto him.
- 
-I will instruct thee and teach thee in the way which thou shalt go; I will guide thee with mine eye.  
+Christ the power of God, and the wisdom of God. -- In whom are hid all the treasures of wisdom and knowledge. -- The unsearchable riches of Christ. -- Of him are ye in Christ Jesus, who of God is made unto us wisdom, and righteousness, and sanctification, and redemption.  
 
-**Prov 14:12; Psa 28:26; Psa 119:105; Psa 17:4; Deut 13:1-4; Psa 32:8**
+**1 Kgs 4:29; Matt 12:42; Isa 9:6; Rom 5:7,8; Phl 2:6-8; Eph 3:19; 1 Cor 1:24; Col 2:3; Eph 3:8; 1 Cor 1:33**
 
-[Monday 21-August, 2023](https://t.me/daily_light)
+[Tuesday 22-August, 2023](https://t.me/daily_light)
