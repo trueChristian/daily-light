@@ -1,28 +1,30 @@
 # Morning
 
-**The accuser of our brethren is cast down, which accused them before our God day and night.**
+**Whoso trusteth in the Lord, happy is he.**
  
-They overcame him by the blood of the Lamb, and by the word of their testimony. -- Who shall lay any thing to the charge of God's elect? It is God that justifieth. Who is he that condemneth? It is Christ that died, yea, rather, that is risen again, who is even at the right hand of God, who also maketh intercession for us.
+[Abraham] staggered not at the promise of God through unbelief; but was strong in faith, giving glory to God; and being fully persuaded that, what he had promised, he was able also to perform. -- The children of Judah prevailed, because they relied upon the LORD God of their fathers.
  
-Having spoiled principalities and powers, he made a shew of them openly. -- That through death he might destroy him that had the power of death, that is, the devil; and deliver them who through fear of death were all their lifetime subject to bondage. -- In all these things we are more than conquerors, through him that loved us. -- Put on the whole armour of God, that ye may be able to stand against the wiles of the devil. And take the sword of the Spirit, which is the word of God. -- Thanks be to God, which giveth us the victory through our Lord Jesus Christ.  
+God is our refuge and strength, a very present help in trouble. Therefore will not we fear, though the earth be removed, and though the mountains be carried into the midst of the sea. -- It is better to trust in the LORD than to put confidence in man. It is better to trust in the LORD than to put confidence in princes. -- The steps of a good man are ordered by the LORD: and he delighteth in his way. Though he fall, he shall not be utterly cast down: for the LORD upholdeth him with his hand.
+ 
+O taste and see that the LORD is good: blessed is the man that trusteth in him. O fear the LORD, ye his saints: for there is no want to them that fear him.  
 
-**Rev 12:10; Rev 12:11; Rom 8:33,34; Col 2:15; Heb 2:14,15; Rom 8:37; Eph 6:11,17; 1 Cor 15:57**
+**Prov 16:20; Rom 4:20,21; 2 Chr 13:18; Psa 46:1,2; Psa 118:8,9; Psa 37:23,24; Psa 34:8,9**
 
 # Evening
 
-**The tree of life**.
+**I will both lay me down in peace, and sleep: for thou, Lord, only makest me dwell in safety.**
  
-God hath given to us eternal life, and this life is in his Son. -- He gave his only begotten Son, that whosoever believeth in him should not perish, but have everlasting life. -- As the Father raiseth up the dead, and quickeneth them; even so the Son quickeneth whom he will. As the Father hath life in himself; so hath he given to the Son to have life in himself.
+Thou shalt not be afraid for the terror by night. He shall cover thee with his feathers, and under his wings shalt thou trust. -- Even as a hen gathereth her chickens under her wings. -- He will not suffer thy foot to be moved: he that keepeth thee will not slumber. Behold, he that keepeth Israel shall neither slumber nor sleep. The LORD is thy keeper: the LORD is thy shade upon thy right hand.
  
-To him that overcometh will I give to eat of the tree of life, which is in the midst of the paradise of God. -- In the midst of the street of it, and on either side of the river, was there the tree of life, which bare twelve manner of fruits, and yielded her fruit every month: and the leaves of the tree were for the healing of the nations.
+I will abide in thy tabernacle for ever: I will trust in the covert of thy wings. -- The darkness hideth not from thee; but the night shineth as the day: the darkness and the light are both alike to thee.
  
-Happy is the man that findeth wisdom. Length of days is in her right hand. She is a tree of life to them that lay hold upon her: and happy is every one that retaineth her. -- Christ Jesus, ... is made unto us wisdom.  
+He that spared not his own Son, but delivered him up for us all, how shall he not with him also freely give us all things? -- Ye are Christ's; and Christ is God's. -- I will trust, and not be afraid.  
 
-**Gen 2:9; 1 John 5:11; John 3:16; John 5:21,26; Rev 2:7; Rev 22:2; Prov 3:13,16,18; 1 Cor 1:30**
+**Psa 4:8; Psa 91:5,4; Matt 23:37; Psa 121:3-5; Psa 61:4; Psa 139:12; Rom 8:32; 1 Cor 3:23; Isa 12:2**
 
 ---
 
-[Monday 28-August, 2023](https://t.me/s/daily_light)
+[Tuesday 29-August, 2023](https://t.me/s/daily_light)
 
 > Jonathan Bagster, the son of Samuel Bagster, created the Daily Light for his own family's daily devotion in 1875
 
