@@ -1,28 +1,30 @@
 # Morning
 
-**The free gift is of many offences unto justification.**
+**The fruit of the spirit is meekness.**
  
-Though your sins be as scarlet, they shall be as white as snow; though they be red like crimson, they shall be as wool. -- I, even I, am he that blotteth out thy transgressions for mine own sake, and will not remember thy sins. Put me in remembrance: let us plead together: declare thou, that thou mayest be justified. -- I have blotted out, as a thick cloud, thy transgressions, and, as a cloud, thy sins: return unto me; for I have redeemed thee.
+The meek ... shall increase their joy in the LORD, and the poor among men shall rejoice in the Holy One of Israel. -- Except ye be converted, and become as little children, ye shall not enter into the kingdom of heaven. Whosoever therefore shall humble himself as this little child, the same is greatest in the kingdom of heaven. -- The ornament of a meek and quiet spirit, ... is in the sight of God of great price. -- Charity vaunteth not itself, is not puffed up.
  
-God so loved the world, that he gave his only begotten Son, that whosoever believeth in him should not perish, but have everlasting life. -- Not as the offence, so also is the free gift. For if through the offence of one many be dead, much more the grace of God, and the gift by grace, which is by one man, Jesus Christ, hath abounded unto many. -- And such were some of you: but ye are washed, but ye are sanctified, but ye are justified in the name of the Lord Jesus, and by the Spirit of our God.  
+Follow after meekness. -- Take my yoke upon you and learn O me, for I am meek and lowly in heart. -- He was oppressed, and he was afflicted, yet he opened not his mouth: he is brought as lamb to the slaughter, and as a sheep before her shearers is dumb so he openeth not his mouth. -- Christ also suffered for us, leaving us an example, that ye should follow his steps: who did no sin neither was guile found in his mouth: who, when he was reviled reviled not again, ... but committed himself to him that judgeth righteously.  
 
-**Rom 5:16; Isa 1:18; Isa 43:25,26; Isa 44:22; John 3:16; Rom 5:15; 1 Cor 6:11**
+**Gal 5:22; Isa 29:19; Matt 8:3,4; 1 Cor 3:4; 1 Cor 13:4; 1 Tim 6:11; Matt 11:29; Isa 53:7; 1 Pet 2:21-23**
 
 # Evening
 
-**Occupy till I come.**
+**If any man will come after me, let him deny himself, and take up his cross daily, and follow me.**
  
-The Son of man is as a man taking a far journey, who left his house, and gave authority to his servants, and to every man his work, and commanded the porter to watch. -- Unto one he gave five talents, to another two, and to another one; to every man according to his several ability; and straightway took his journey.
+By honour and dishonour, by evil report and good report. -- All that will live godly in Christ Jesus shall suffer persecution. -- The offence of the cross.
  
-I must work the works of him that sent me, while it is day: the night cometh, when no man can work. -- Wist ye not that I must be about my Father's business? -- Leaving us an example, that ye should follow his steps.
+If I yet pleased men, I should not be the servant of Christ.
  
-Preach the word; be instant in season, out of season; reprove, rebuke, exhort with all longsuffering and doctrine. -- Every man's work shall be made manifest: for the day shall declare it. -- Therefore, my beloved brethren, be ye stedfast, unmoveable, always abounding in the work of the Lord, forasmuch as ye know that your labour is not in vain in the Lord.  
+If ye be reproached for the name of Christ, happy are ye: but let none of you suffer as a murderer, or as a thief, or as an evildoer, or as a busybody in other men's matters. Yet if any man suffer as a Christian, let him not be ashamed; but let him glorify God on this behalf.
+ 
+Unto you it is given in the behalf of Christ, not only to believe on him, but also to suffer for his sake. -- If one died for all, then were all dead: and that he died for all, that they which live should not henceforth live unto themselves, but unto him which died for them, and rose again. -- If we suffer, we shall also reign with him.  
 
-**Luke 19:13; Mark 13:34; Matt 25:15; John 9:4; Luke 2:49; 1 Pet 2:21; 2 Tim 4:2; 1 Cor 3:13; 1 Cor 15:58**
+**Luke 9:23; 2 Cor 6:8; 2 Tim 3:12; Gal 5:11; Gal 1:10; 1 Pet 4:14-16; Phl 1:29; 2 Cor 5:14,15; 2 Tim 2:12**
 
 ---
 
-[Thursday 31-August, 2023](https://t.me/s/daily_light)
+[Friday 01-September, 2023](https://t.me/s/daily_light)
 
 > Jonathan Bagster, the son of Samuel Bagster, created the Daily Light for his own family's daily devotion in 1875
 
