@@ -1,30 +1,30 @@
 # Morning
 
-**The fruit of the spirit is meekness.**
+**Wait on the Lord: be of good courage, and he shall strengthen thine heart.**
  
-The meek ... shall increase their joy in the LORD, and the poor among men shall rejoice in the Holy One of Israel. -- Except ye be converted, and become as little children, ye shall not enter into the kingdom of heaven. Whosoever therefore shall humble himself as this little child, the same is greatest in the kingdom of heaven. -- The ornament of a meek and quiet spirit, ... is in the sight of God of great price. -- Charity vaunteth not itself, is not puffed up.
+Hast thou not known? hast thou not heard, that the everlasting God, the LORD, the Creator of the ends of the earth, fainteth not, neither is weary? He giveth power to the faint; and to them that have no might he increaseth strength. -- Fear thou not; for I am with thee: be not dismayed; for I am thy God: I will strengthen thee; yea, I will help thee; yea, I will uphold thee with the right hand of my righteousness. -- Thou hast been a strength to the poor, a strength to the needy in distress, a refuge from the storm, a shadow from the heat, when the blast of the terrible ones is as a storm against the wall.
  
-Follow after meekness. -- Take my yoke upon you and learn O me, for I am meek and lowly in heart. -- He was oppressed, and he was afflicted, yet he opened not his mouth: he is brought as lamb to the slaughter, and as a sheep before her shearers is dumb so he openeth not his mouth. -- Christ also suffered for us, leaving us an example, that ye should follow his steps: who did no sin neither was guile found in his mouth: who, when he was reviled reviled not again, ... but committed himself to him that judgeth righteously.  
+The trying of your faith worketh patience. But let patience have her perfect work, that ye may be perfect and entire, wanting nothing. -- Cast not away therefore your confidence, which hath great recompence of reward. For ye have need of patience, that, after ye have done the will of God, ye might receive the promise.  
 
-**Gal 5:22; Isa 29:19; Matt 8:3,4; 1 Cor 3:4; 1 Cor 13:4; 1 Tim 6:11; Matt 11:29; Isa 53:7; 1 Pet 2:21-23**
+**Psa 27:14; Isa 40:28,29; Isa 41:10; Isa 25:4; Jas 1:3,4; Heb 10:35,36**
 
 # Evening
 
-**If any man will come after me, let him deny himself, and take up his cross daily, and follow me.**
+**He maketh me to lie down in green pastures.**
  
-By honour and dishonour, by evil report and good report. -- All that will live godly in Christ Jesus shall suffer persecution. -- The offence of the cross.
+The wicked are like the troubled sea, when it cannot rest. There is no peace, saith my God, to the wicked.
  
-If I yet pleased men, I should not be the servant of Christ.
+Come unto me, all ye that labour and are heavy laden, and I will give you rest. -- Rest in the LORD. -- He that is entered into his rest, he also hath ceased from his own works.
  
-If ye be reproached for the name of Christ, happy are ye: but let none of you suffer as a murderer, or as a thief, or as an evildoer, or as a busybody in other men's matters. Yet if any man suffer as a Christian, let him not be ashamed; but let him glorify God on this behalf.
+Be not carried about with divers and strange doctrines. For it is a good thing that the heart be established with grace. -- That ... we be no more children, tossed to and fro, and carried about with every wind of doctrine, by the sleight of men, and cunning craftiness, whereby they lie in wait to deceive; but speaking the truth in love, may grow up into him in all things, which is the head, even Christ.
  
-Unto you it is given in the behalf of Christ, not only to believe on him, but also to suffer for his sake. -- If one died for all, then were all dead: and that he died for all, that they which live should not henceforth live unto themselves, but unto him which died for them, and rose again. -- If we suffer, we shall also reign with him.  
+I sat down under his shadow with great delight, and his fruit was sweet to my taste. He brought me to the banqueting house, and his banner over me was love.  
 
-**Luke 9:23; 2 Cor 6:8; 2 Tim 3:12; Gal 5:11; Gal 1:10; 1 Pet 4:14-16; Phl 1:29; 2 Cor 5:14,15; 2 Tim 2:12**
+**Psa 23:2; Isa 57:20,21; Matt 11:28; Psa 37:7; Heb 4:10; Heb 13:9; Eph 4:14,15; Song 2:3,4**
 
 ---
 
-[Friday 01-September, 2023](https://t.me/s/daily_light)
+[Saturday 02-September, 2023](https://t.me/s/daily_light)
 
 > Jonathan Bagster, the son of Samuel Bagster, created the Daily Light for his own family's daily devotion in 1875
 
