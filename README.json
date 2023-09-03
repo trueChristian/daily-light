@@ -1,39 +1,40 @@
 {
-  "date_key": "september-02",
-  "date_name": "Saturday 02-September, 2023",
+  "date_key": "september-03",
+  "date_name": "Sunday 03-September, 2023",
   "evening": {
     "body": [
-      "The wicked are like the troubled sea, when it cannot rest. There is no peace, saith my God, to the wicked.",
-      "Come unto me, all ye that labour and are heavy laden, and I will give you rest. -- Rest in the LORD. -- He that is entered into his rest, he also hath ceased from his own works.",
-      "Be not carried about with divers and strange doctrines. For it is a good thing that the heart be established with grace. -- That ... we be no more children, tossed to and fro, and carried about with every wind of doctrine, by the sleight of men, and cunning craftiness, whereby they lie in wait to deceive; but speaking the truth in love, may grow up into him in all things, which is the head, even Christ.",
-      "I sat down under his shadow with great delight, and his fruit was sweet to my taste. He brought me to the banqueting house, and his banner over me was love."
+      "I fear, lest by any means, as the serpent beguiled Eve through his subtlety, so your minds should be corrupted from the simplicity that is in Christ.",
+      "My brethren, be strong in the Lord, and in the power of his might. Put on the whole armour of God, that ye may be able to stand against the wiles of the devil. Take unto you the whole armour of God, that ye may be able to withstand in the evil day, and having done all, to stand. Stand therefore, having your loins girt about with truth, and having on the breastplate of righteousness; and your feet shod with the preparation of the gospel of peace; above all, taking the shield of faith, wherewith ye shall be able to quench all the fiery darts of the wicked. And take the helmet of salvation, and the sword of the Spirit, which is the word of God. -- Lest Satan should get an advantage of us; for we are not ignorant of his devices."
     ],
-    "header": "He maketh me to lie down in green pastures.",
+    "header": "The serpent said unto the woman, Ye shall not surely die: ... your eyes shall be opened, and ye shall be as gods, knowing good and evil.",
     "name": "Evening",
     "references": [
-      "Isa 57:20,21",
-      "Matt 11:28",
-      "Psa 37:7",
-      "Heb 4:10",
-      "Heb 13:9",
-      "Eph 4:14,15",
-      "Song 2:3,4"
+      "2 Cor 11:3",
+      "Eph 6:10,11,13-17",
+      "2 Cor 2:11"
     ]
   },
   "joomla": "https://git.vdm.dev/christian/mod_dailylight",
   "morning": {
     "body": [
-      "Hast thou not known? hast thou not heard, that the everlasting God, the LORD, the Creator of the ends of the earth, fainteth not, neither is weary? He giveth power to the faint; and to them that have no might he increaseth strength. -- Fear thou not; for I am with thee: be not dismayed; for I am thy God: I will strengthen thee; yea, I will help thee; yea, I will uphold thee with the right hand of my righteousness. -- Thou hast been a strength to the poor, a strength to the needy in distress, a refuge from the storm, a shadow from the heat, when the blast of the terrible ones is as a storm against the wall.",
-      "The trying of your faith worketh patience. But let patience have her perfect work, that ye may be perfect and entire, wanting nothing. -- Cast not away therefore your confidence, which hath great recompence of reward. For ye have need of patience, that, after ye have done the will of God, ye might receive the promise."
+      "The fear of the LORD is to hate evil. -- Abhor that which is evil. -- Abstain from all appearance of evil. -- Looking diligently lest any man fail of the grace of God; lest any root of bitterness springing up trouble you, and thereby many be defiled.",
+      "If I regard iniquity in my heart, the Lord will not hear me.",
+      "Know ye not that a little leaven leaveneth the whole lump? Purge out therefore the old leaven, that ye may be a new lump, as ye are unleavened. For even Christ our passover is sacrificed for us: therefore let us keep the feast, not with old leaven, neither with the leaven of malice and wickedness; but with the unleavened bread of sincerity and truth. -- Let a man examine himself, and so let him eat of that bread, and drink of that cup.",
+      "Let every one that nameth the name of Christ depart from iniquity. -- Such an high priest became us, who is holy, harmless, undefiled, separate from sinners. -- In him is no sin."
     ],
-    "header": "Wait on the Lord: be of good courage, and he shall strengthen thine heart.",
+    "header": "Neither shall there be leaven seen with thee in all thy quarters.",
     "name": "Morning",
     "references": [
-      "Isa 40:28,29",
-      "Isa 41:10",
-      "Isa 25:4",
-      "Jas 1:3,4",
-      "Heb 10:35,36"
+      "Prov 8:13",
+      "Rom 12:9",
+      "1 Thes 5:22",
+      "Heb 12:15",
+      "Psa 66:18",
+      "1 Cor 5:6-8",
+      "1 Cor 11:28",
+      "2 Tim 2:19",
+      "Heb 7:26",
+      "1 John 3:5"
     ]
   },
   "source": "https://github.com/trueChristian/daily-light",
