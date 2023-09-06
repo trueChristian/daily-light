@@ -1,13 +1,17 @@
 **Evening**
 
-**The fountain of living waters.**
+**Watchman, what of the night?**
  
-How excellent is thy lovingkindness, O God! therefore the children of men put their trust under the shadow of thy wings. They shall be abundantly satisfied with the fatness of thy house and thou shalt make them drink of the river of thy pleasures. For with thee is the fountain of life.
+It is high time to awake out of sleep: for now is our salvation nearer than when we believed. The night is far spent, the day is at hand: let us therefore cast off the works of darkness, and let us put on the armour of light.
  
-Thus saith the Lord GOD, Behold, my servants shall eat, but ye shall be hungry: behold, my servants shall drink, but ye shall be thirsty. -- Whosoever drinketh of the water that I shall give him shall never thirst; but the water that I shall give him shall be him a well of water springing up into everlasting life. -- This spake he of the Spirit, which they that believe on him should receive.
+Learn a parable of the fig tree; When his branch is yet tender, and putteth forth leaves, ye know that summer is nigh: so likewise ye, when ye shall see all these things, know that it is near, even at the doors. Heaven and earth shall pass away, but my words shall not pass away.
  
-Ho, every one that thirsteth, come ye to the waters. -- The Spirit and the bride say, Come. And let him that heareth say, Come. And let him that is athirst come. And whosoever will, let him take the water of life freely.  
+I wait for the LORD, my soul doth wait, and in his word do I hope. My soul waiteth for the Lord more than they that watch for the morning: I say, more than they that watch for the morning.
+ 
+He which testifieth these things saith, Surely I come quickly. Amen. Even so, come, Lord Jesus.
+ 
+Watch, ... for ye know neither the day nor the hour wherein the Son of man cometh.  
 
-**Jer 2:13; Psa 36:7-9; Isa 65:13; John 4:14; John 7:39; Isa 55:1; Rev 22:17**
+**Isa 21:11; Rom 13:11,12; Matt 24:32,33,35; Psa 130:5,6; Rev 22:20; Matt 25:13**
 
-[Tuesday 05-September, 2023](https://t.me/daily_light)
+[Wednesday 06-September, 2023](https://t.me/daily_light)
