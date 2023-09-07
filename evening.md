@@ -1,17 +1,13 @@
 **Evening**
 
-**Watchman, what of the night?**
+**I am poor and needy; yet the Lord thinketh upon me.**
  
-It is high time to awake out of sleep: for now is our salvation nearer than when we believed. The night is far spent, the day is at hand: let us therefore cast off the works of darkness, and let us put on the armour of light.
+I know the thoughts that I think toward you, saith the LORD, thoughts of peace, and not of evil. -- My thoughts are not your thoughts, neither are your ways my ways, saith the LORD. For as the heavens are higher than the earth, so are my ways higher than your ways, and my thoughts than your thoughts.
  
-Learn a parable of the fig tree; When his branch is yet tender, and putteth forth leaves, ye know that summer is nigh: so likewise ye, when ye shall see all these things, know that it is near, even at the doors. Heaven and earth shall pass away, but my words shall not pass away.
+How precious ... are thy thoughts unto me, O God! how great is the sum of them! If I should count them, they are more in number than the sand: when I awake, I am still with thee. -- LORD, how great are thy works! and thy thoughts are very deep. -- Many, O LORD my God, are thy wonderful works which thou hast done, and thy thoughts which are to usward.
  
-I wait for the LORD, my soul doth wait, and in his word do I hope. My soul waiteth for the Lord more than they that watch for the morning: I say, more than they that watch for the morning.
- 
-He which testifieth these things saith, Surely I come quickly. Amen. Even so, come, Lord Jesus.
- 
-Watch, ... for ye know neither the day nor the hour wherein the Son of man cometh.  
+Not many mighty, not many noble, are called. -- Hath not God chosen the poor of this world rich in faith, and heirs of the kingdom? -- Having nothing, and yet possessing all things. -- The unsearchable riches of Christ.  
 
-**Isa 21:11; Rom 13:11,12; Matt 24:32,33,35; Psa 130:5,6; Rev 22:20; Matt 25:13**
+**Psa 40:17; Jer 29:11; Isa 55:8,9; Psa 139:17,18; Psa 92:5; Psa 40:5; 1 Cor 1:26; Jas 2:5; 2 Cor 6:10; Eph 3:8**
 
-[Wednesday 06-September, 2023](https://t.me/daily_light)
+[Thursday 07-September, 2023](https://t.me/daily_light)
