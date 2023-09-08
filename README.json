@@ -1,45 +1,44 @@
 {
-  "date_key": "september-07",
-  "date_name": "Thursday 07-September, 2023",
+  "date_key": "september-08",
+  "date_name": "Friday 08-September, 2023",
   "evening": {
     "body": [
-      "I know the thoughts that I think toward you, saith the LORD, thoughts of peace, and not of evil. -- My thoughts are not your thoughts, neither are your ways my ways, saith the LORD. For as the heavens are higher than the earth, so are my ways higher than your ways, and my thoughts than your thoughts.",
-      "How precious ... are thy thoughts unto me, O God! how great is the sum of them! If I should count them, they are more in number than the sand: when I awake, I am still with thee. -- LORD, how great are thy works! and thy thoughts are very deep. -- Many, O LORD my God, are thy wonderful works which thou hast done, and thy thoughts which are to usward.",
-      "Not many mighty, not many noble, are called. -- Hath not God chosen the poor of this world rich in faith, and heirs of the kingdom? -- Having nothing, and yet possessing all things. -- The unsearchable riches of Christ."
+      "Except a corn of wheat fall into the ground and die, it abideth alone: but if it die, it bringeth forth much fruit. -- If the firstfruit be holy the lump is also holy : and if the root be holy, so are the branches. -- Now is Christ risen from the dead, and become the firstfruits of them that slept. -- If we have been planted together in the likeness of his death we shall be also in the likeness of his resurrection. -- The Lord Jesus Christ ... shall change our vile body, that it may be fashioned like unto his glorious body, according to the working whereby he is able even to subdue all things unto himself.",
+      "The firstborn from the dead. -- If the Spirit of him that raised up Jesus from the dead dwell in you, he that raised up Christ from the dead shall also quicken our mortal bodies by his Spirit that dwelleth in you.",
+      "I am the resurrection, and the life: he that believeth in me, though he were dead, yet shall he live."
     ],
-    "header": "I am poor and needy; yet the Lord thinketh upon me.",
+    "header": "Christ the firstfruits.",
     "name": "Evening",
     "references": [
-      "Jer 29:11",
-      "Isa 55:8,9",
-      "Psa 139:17,18",
-      "Psa 92:5",
-      "Psa 40:5",
-      "1 Cor 1:26",
-      "Jas 2:5",
-      "2 Cor 6:10",
-      "Eph 3:8"
+      "John 12:24",
+      "Rom 11:16",
+      "1 Cor 15:20",
+      "Rom 6:5",
+      "Phl 3:20,21",
+      "Col 1:18",
+      "Rom 8:11",
+      "John 11:25"
     ]
   },
   "joomla": "https://git.vdm.dev/christian/mod_dailylight",
   "morning": {
     "body": [
-      "The hope which is laid up for you in heaven. -- If in this life only we have hope in Christ, we are of all men most miserable. -- We must through much tribulation enter into the kingdom of God. -- Whosoever doth not bear his cross, and come after me cannot be my disciple. -- No man should be moved by these afflictions, for yourselves know that we are appointed thereunto.",
-      "Rejoice in the Lord alway: and again I say, Rejoice. -- The God of hope fill you with all joy and peace in believing, that ye may abound in hope, through the power of the Holy Ghost. -- Blessed be the God and Father of our Lord Jesus Christ, which according to his abundant mercy hath begotten us again unto lively hope by the resurrection of Jesus Christ from the dead. -- Whom having not seen, ye love; in whom though now ye see him not, yet believing. ye rejoice with joy unspeakable and full of glory. -- By whom also we have access by faith into this grace wherein we stand, and rejoice in hope of the glory of God."
+      ".",
+      "The LORD is a God of knowledge, and by him, actions are weighed. -- That which is highly esteemed among men is abomination in the sight of God. -- The LORD seeth not as man seeth; for man looketh on the outward appearance, but the LORD looketh on the heart. -- Be not deceived, God is not mocked: for whatsoever a man soweth, that shall he also reap. For he that soweth to his flesh shall of the flesh reap corruption; but he that soweth to the Spirit shall of the spirit reap life everlasting.",
+      "What is a man profited if he shall gain the whole world, and lose his own soul? or what shall a man give in exchange for his soul? -- What things were gain to me, those I counted loss for Christ.",
+      "Behold, thou desirest truth in the inward parts. -- Thou hast proved mine heart; thou hast visited me in the night; thou hast tried me, and shalt find nothing."
     ],
-    "header": "Rejoicing in hope.",
+    "header": "Thou art weighed in the balances, and art found wanting",
     "name": "Morning",
     "references": [
-      "Col 1:5",
-      "1 Cor 15:19",
-      "Acts 14:22",
-      "Luke 14:27",
-      "1 Thes 3:3",
-      "Phl 4:4",
-      "Rom 15:13",
-      "1 Pet 1:3",
-      "1 Pet 1:8",
-      "Rom 5:2"
+      "1 Sam 2:3",
+      "Luke 16:15",
+      "1 Sam 16:7",
+      "Gal 6:7,8",
+      "Matt 16:26",
+      "Phl 3:7",
+      "Psa 51:6",
+      "Psa 17:3"
     ]
   },
   "source": "https://github.com/trueChristian/daily-light",
