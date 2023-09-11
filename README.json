@@ -1,41 +1,45 @@
 {
-  "date_key": "september-10",
-  "date_name": "Sunday 10-September, 2023",
+  "date_key": "september-11",
+  "date_name": "Monday 11-September, 2023",
   "evening": {
     "body": [
-      "When I am weak, then am I strong. -- God shall be my strength. -- He said unto me, My grace is sufficient for thee: for my strength is made perfect in weakness. Most gladly therefore will I rather glory in my infirmities, that the power of Christ may rest upon me. -- Let him take hold of my strength.",
-      "Cast thy burden upon the LORD, and he shall sustain thee. -- The arms of his hands were made strong by the hands of the mighty God of Jacob.",
-      "I will not let thee go, except thou bless me.",
-      "Thou comest to me with a sword, and with a spear, and with a shield: but I come to thee in the name of the LORD of hosts, the God of the armies of Israel, whom thou hast defied. -- Plead my cause, O LORD, with them that strive with me: fight against them that fight against me. Take hold of shield and buckler, and stand up for mine help."
+      "In the sweat of thy face shalt thou eat bread, till thou return unto the ground. -- We commanded you, that if any would not work, neither should he eat. -- Study to be quiet, and to do your own business, and to work with your own hands.",
+      "Whatsoever thy hand findeth to do, do it with thy might; for there is no work, nor device, nor knowledge, nor wisdom, in the grave, whither thou goest. -- The night cometh when no man can work.",
+      "Let us not be weary in well doing: for in due season we shall reap, if we faint not. -- Always abounding in the work of the Lord forasmuch as ye know that your labour is not in vain in the Lord.",
+      "There remaineth ... a rest to the people of God. -- Unto us, which have borne the burden and heat of the day. -- This is the rest wherewith ye may cause the weary to rest; and this is the refreshing."
     ],
-    "header": "They that wait upon the Lord shall renew their strength. (Or, change strength.)",
+    "header": "Man goeth forth unto his work and to his labour until the evening.",
     "name": "Evening",
     "references": [
-      "2 Cor 12:10",
-      "Isa 49:5",
-      "2 Cor 12:9",
-      "Isa 27:5",
-      "Psa 55:22",
-      "Gen 49:24",
-      "Gen 32:26",
-      "1 Sam 17:45",
-      "Psa 35:1,2"
+      "Gen 3:19",
+      "2 Thes 3:10",
+      "1 Thes 4:11",
+      "Eccl 9:10",
+      "John 9:4",
+      "Gal 6:9",
+      "1 Cor 15:58",
+      "Heb 4:9",
+      "Matt 20:12",
+      "Isa 28:12"
     ]
   },
   "joomla": "https://git.vdm.dev/christian/mod_dailylight",
   "morning": {
     "body": [
-      "A new heart ... will I give you and a new spirit will I put within you. -- Good and upright is the LORD: therefore will he teach sinners in the way. The meek will he guide in judgment: and the meek will he teach his way. All the paths of the LORD are mercy and truth unto such as keep his covenant and his testimonies.",
-      "That they all may be one; as thou, Father, art in me, and I in thee, that they also may be one in us: that the world may believe that thou hast sent me.",
-      "I ... beseech you that ye walk worthy of the vocation wherewith ye are called, with all lowliness and meekness, ... endeavouring to keep the unity of the Spirit in the bond of peace. There is one body, and one Spirit, even as ye are called in one hope of your calling; one Lord, one faith, one baptism, one God and Father of all, who is above all, and through all, and in you all."
+      "Thou shalt not follow a multitude to do evil.",
+      "Know ye not that the friendship of the world is enmity with God? whosoever therefore will be a friend of the world is the enemy of God.",
+      "What fellowship hath righteousness with unrighteousness? and what communion hath light with darkness? And what concord hath Christ with Belial? or what part hath he that believeth with an infidel? And what agreement hath the temple of God with idols? -- Love not the world, neither the things that are in the world. If any man love the world, the love of the Father is not in him. The world passeth away, and the lust thereof, but he that doeth the will of God abideth for ever.",
+      "In time past ye walked according to the course of this world, according to the prince of the power of the air, the spirit that now worketh in the children of disobedience. -- Ye have not so learned Christ; if so be that ye have heard him, ... as the truth is in Jesus."
     ],
-    "header": "I will give them one heart, and one way, that they may fear me forever, for the good of them, and of their children after them.",
+    "header": "Be not conformed to this world: but be ye transformed by the renewing of your mind.",
     "name": "Morning",
     "references": [
-      "Ezek 36:26",
-      "Psa 25:8-10",
-      "John 17:21",
-      "Eph 4:1-6"
+      "Exo 23:2",
+      "Jas 4:4",
+      "2 Cor 6:14-16",
+      "1 John 2:15,17",
+      "Eph 2:2",
+      "Eph 4:20,21"
     ]
   },
   "source": "https://github.com/trueChristian/daily-light",
