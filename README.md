@@ -1,32 +1,30 @@
 # Morning
 
-**I have seen his ways, and will heal him.**
+**If any man thirst, let him come unto me, and drink.**
  
-I am the LORD that healeth thee.
+My soul longeth, yea, even fainteth for the courts of the LORD: my heart and my flesh crieth out for the living God. -- O God, thou art my God; early will I seek thee: my soul thirsteth for thee, my flesh longeth for thee in a dry and thirsty land where no water is; to see thy power and thy glory, so as I have seen thee in the sanctuary.
  
-O LORD, thou hast searched me, and known me. Thou knowest my downsitting and mine uprising, thou understandest my thought afar off. Thou compassest my path and my lying down, and art acquainted with all my ways. -- Thou hast set our iniquities before thee, our secret sins in the light of thy countenance. -- All things are naked and opened unto the eyes of him with whom we have to do.
+Ho, every one that thirsteth, come ye to the waters, and he that hath no money; come ye, buy, and eat; yea, come, buy wine and milk without money and without price. -- The Spirit and the bride say, Come. And let him that heareth say, Come. And let him that is athirst come. And whosoever will, let him take the water of life freely. -- Whosoever drinketh of the water that I shall give him shall never thirst; but the water that I shall give him shall be in him a well of water springing up into everlasting life. -- My blood is drink indeed.
  
-Come now, and let us reason together, saith the LORD: though your sins be as scarlet, they shall be as white as snow; though they be red like crimson, they shall be as wool. -- He is gracious unto him, and saith, Deliver him from going down to the pit: I have found a ransom. -- He was wounded for our transgressions, he was bruised for our iniquities: the chastisement of our peace was upon him: and with his stripes we are healed. -- He hath sent me to bind up the brokenhearted. -- Thy faith hath made thee whole; go in peace, and be whole of thy plague.  
+Eat, O friends; drink, yea, drink abundantly, O beloved.  
 
-**Isa 57:18; Exo 15:26; Psa 139:1-3; Psa 90:8; Heb 4:13; Isa 1:18; Job 33:24; Isa 53:5; Isa 61:1; Mark 5:34**
+**John 7:37; Psa 84:2; Psa 63:1,2; Isa 55:1; Rev 22:17; John 4:14; John 6:55; Song 5:1**
 
 # Evening
 
-**The Lord taketh my part.**
+**Ye are the salt of the earth**.
  
-The LORD hear thee in the day of trouble; the name of the God of Jacob defend thee; send thee help from the sanctuary, and strengthen thee out of Zion. We will rejoice in thy salvation, and in the name of our God we will set up our banners. Some trust in chariots, and some in horses: but we will remember the name of the LORD our God. They are brought down and fallen: but we are risen, and stand upright.
+That which is not corruptible. -- Being born again, not of corruptible seed, but of incorruptible, by the word of God, which liveth and abideth for ever. -- He that believeth in me, though he were dead, yet shall he live. -- The children of God, being the children of the resurrection. -- The uncorruptible God.
  
-When the enemy shall come in like a flood, the Spirit of the LORD shall lift up a standard against him. -- There hath no temptation taken you but such as is common to man: but God is faithful, who will not suffer you to be tempted above that ye are able: but will with the temptation also make a way to escape, that ye may be able to bear it.
+If any man have not the Spirit of Christ, he is none of his. And if Christ be in you, the body is dead because of sin; but the Spirit is life because of righteousness. But if the Spirit of him that raised up Jesus from the dead dwell in you, he that raised up Christ from the dead shall also quicken your mortal bodies by his Spirit that dwelleth in you. -- It is sown in corruption; it is raised in incorruption.
  
-If God be for us, who can be against us? -- The LORD is on my side; I will not fear.
- 
-Our God whom we serve is able to deliver us, and he will deliver us.  
+Have salt in yourselves, and have peace one with another. -- Let no corrupt communication proceed out of your mouth, but that which is good to the use of edifying, that it may minister grace unto the hearers.  
 
-**Psa 118:7; Psa 20:1,2,5,7,8; Isa 59:19; 1 Cor 10:13; Rom 8:31; Psa 118:6; Dan 3:17**
+**Matt 5:13; 1 Pet 3:4; 1 Pet 1:23; John 11:25; Luke 20:36; Rom 1:23; Rom 5:9-11; 1 Cor 15:42; Mark 9:50; Eph 4:29**
 
 ---
 
-[Tuesday 12-September, 2023](https://t.me/s/daily_light)
+[Wednesday 13-September, 2023](https://t.me/s/daily_light)
 
 > Jonathan Bagster, the son of Samuel Bagster, created the Daily Light for his own family's daily devotion in 1875
 
