@@ -1,15 +1,13 @@
 **Evening**
 
-**A double minded man is unstable in all his ways.**
+**Weeping may endure for a night, but joy cometh in the morning.**
  
-No man, having put his hand to the plough and looking back, is fit for the kingdom of God.
+No man should be moved by these afflictions: for yourselves know that we are appointed thereunto. For verily, when we were with you, we told you before that we should suffer tribulation. -- In me ye ... have peace. In the world ye shall have tribulation: but be of good cheer; I have overcome the world.
  
-He that cometh to God must believe that he is, and that he is a rewarder of them that diligently seek him. -- Let him ask in faith, nothing wavering. For he that wavereth is like a wave of the sea driven with the wind and tossed. For let not that man think that he shall receive anything of the Lord. -- What things soever ye desire, when ye pray, believe that ye receive them, and ye shall have them.
+I shall be satisfied, when I awake, with thy likeness. -- The night is far spent, the day is at hand. -- He shall be as the light of the morning, when the sun riseth, even a morning without clouds; as the tender grass springing out of the earth by clear shining after rain.
  
-Be no more children, tossed to and fro, and carried about with every wind of doctrine, by the sleight of men, and cunning craftiness, whereby they lie in wait to deceive: but speaking the truth in love, ... grow up into him in all things which is the head, even Christ.
- 
-Abide in me. -- Be ye steadfast, unmoveable, always abounding in the work of the Lord, forasmuch as ye know that your labour is not in vain in the Lord.  
+He will swallow up death in victory; and the Lord GOD will wipe away tears from off all faces. -- There shall be no more death, neither sorrow, nor crying, neither shall there be any more pain: for the former things are passed away. -- We which are alive and remain shall be caught up together with them in the clouds, to meet the Lord in the air. Wherefore comfort one another with these words.  
 
-**Jas 1:8; Luke 9:62; Heb 11:6; Jas 1:6,7; Mark 11:24; Eph 4:14,15; John 15:4; 1 Cor 15:58**
+**Psa 30:5; 1 Thes 3:3,4; John 16:33; Psa 17:15; Rom 13:12; 2 Sam 23:4; Isa 25:8; Rev 21:4; 1 Thes 4:17,18**
 
-[Friday 15-September, 2023](https://t.me/daily_light)
+[Saturday 16-September, 2023](https://t.me/daily_light)
