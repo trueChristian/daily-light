@@ -1,43 +1,38 @@
 {
-  "date_key": "september-17",
-  "date_name": "Sunday 17-September, 2023",
+  "date_key": "september-18",
+  "date_name": "Monday 18-September, 2023",
   "evening": {
     "body": [
-      "When the ruler of the feast had tasted the water that was made wine, and knew not whence it was: he saith, ... Every man at the beginning doth set forth good wine; and when men have well drunk, then that which is worse: but thou hast kept the good wine until now.",
-      "The ear trieth words, as the mouth tasteth meat. --I believed, and therefore have I spoken. -- I know whom I have believed. -- I sat down under his shadow with great delight, and his fruit was sweet to my taste.",
-      "The goodness of God. -- He that spared not his own Son, but delivered him up for us all, how shall he not with him also freely give us all things?",
-      "As newborn babes, desire the sincere milk of the word, that ye may grow thereby: if so be ye have tasted that the Lord is gracious.",
-      "Let all those that put their trust in thee rejoice: let them ever shout for joy."
+      "If thou knewest the gift of God, and who it is that saith unto thee, Give me to drink; thou wouldest have asked of him, and he would have given thee living water. -- If any man thirst, let him come unto me and drink. This spake he of the Spirit, which they that believe on him should receive.",
+      "Prove me now herewith, saith the LORD of hosts, if I will not open you the windows of heaven, and pour you out a blessing, that there shall not be room enough to receive it. -- If ye, ... being evil, know how to give good gifts unto your children: how much more shall your heavenly Father give the Holy Spirit to them that ask him? -- Ask, and it shall be given you; seek, and ye shall find.",
+      "Because ye are sons, God hath sent forth the Spirit of his Son into your hearts, crying, Abba, Father. -- Ye have not received the spirit of bondage again to fear; but ye have received the Spirit of adoption, whereby we cry, Abba, Father."
     ],
-    "header": "O taste and see that the Lord is good: blessed is the man that trusteth in him.",
+    "header": "En hakkore. (Or, The well of him that cried.)",
     "name": "Evening",
     "references": [
-      "John 2:9,10",
-      "Job 34:3",
-      "2 Cor 4:13",
-      "2 Tim 1:12",
-      "Song 2:3",
-      "Rom 2:4",
-      "Rom 8:32",
-      "1 Pet 2:2,3",
-      "Psa 5:11"
+      "John 4:10",
+      "John 7:37,39",
+      "Mal 3:10",
+      "Luke 11:13",
+      "Luke 11:9",
+      "Gal 4:6",
+      "Rom 8:15"
     ]
   },
   "joomla": "https://git.vdm.dev/christian/mod_dailylight",
   "morning": {
     "body": [
-      "The sacrifices of God are a broken spirit: a broken and a contrite heart, O God, thou wilt not despise. -- He healeth the broken in heart, and bindeth up their wounds. -- Thus saith the high and lofty One that inhabiteth eternity, whose name is Holy; I dwell in the high and holy place, with him also that is of a contrite and humble spirit, to revive the spirit of the humble, and to revive the heart of the contrite ones. For I will not contend for ever, neither will I be always wroth: for the spirit should fail before me, and the souls which I have made.",
-      "I will seek that which was lost, and bring again that which was driven away, and will bind up that which was broken, and will strengthen that which was sick. -- Wherefore lift up the hands which hang down, and the feeble knees; and make straight paths for your feet, lest that which is lame be turned out of the way; but let it rather be healed. -- Behold, your God ... will come and save you."
+      "Then opened he their understanding, that they might understand the scriptures. -- It is given unto you to know the mysteries of the kingdom of heaven, but to them it is not given. -- I thank thee, O Father, Lord of heaven and earth, because thou hast hid these things from the wise and prudent, and hast revealed them unto babes. Even so, Father: for so it seemed good in thy sight. -- We have received, not the spirit of the world, but the spirit which is of God; that we might know the things that are freely given to us of God. -- How precious also are thy thoughts unto me, O God! how great is the sum of them! If I should count them, they are more in number than the sand. -- O the depth of the riches both of the wisdom and knowledge of God! how unsearchable are his judgments, and his ways past finding out! For who hath known the mind of the Lord? or who hath been his counsellor? For of him, and through him, and to him are all things: to whom be glory for ever. Amen."
     ],
-    "header": "A bruised reed shall he not break.",
+    "header": "Open thou mine eyes, that I may behold wondrous things out of thy law.",
     "name": "Morning",
     "references": [
-      "Psa 51:17",
-      "Psa 147:3",
-      "Isa 57:15,16",
-      "Ezek 34:16",
-      "Heb 12:12,13",
-      "Isa 35:4"
+      "Luke 24:45",
+      "Matt 13:11",
+      "Matt 11:25,26",
+      "1 Cor 2:12",
+      "Psa 139:17,18",
+      "Rom 11:33,34,36"
     ]
   },
   "source": "https://github.com/trueChristian/daily-light",
