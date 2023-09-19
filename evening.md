@@ -1,13 +1,13 @@
 **Evening**
 
-**En hakkore. (Or, The well of him that cried.)**
+**I will lift up mine eyes unto the hills, from whence cometh my help. My help cometh from the Lord.**
  
-If thou knewest the gift of God, and who it is that saith unto thee, Give me to drink; thou wouldest have asked of him, and he would have given thee living water. -- If any man thirst, let him come unto me and drink. This spake he of the Spirit, which they that believe on him should receive.
+As the mountains are round about Jerusalem, so the LORD is round about his people from henceforth even for ever.
  
-Prove me now herewith, saith the LORD of hosts, if I will not open you the windows of heaven, and pour you out a blessing, that there shall not be room enough to receive it. -- If ye, ... being evil, know how to give good gifts unto your children: how much more shall your heavenly Father give the Holy Spirit to them that ask him? -- Ask, and it shall be given you; seek, and ye shall find.
+Unto thee lift I up mine eyes, O thou that dwellest in the heavens. Behold, as the eyes of servants look unto the hand of their masters, and as the eyes of a maiden unto the hand of her mistress; so our eyes wait upon the LORD our God, until that he have mercy upon us. -- Because thou hast been my help, therefore in the shadow of thy wings will I rejoice.
  
-Because ye are sons, God hath sent forth the Spirit of his Son into your hearts, crying, Abba, Father. -- Ye have not received the spirit of bondage again to fear; but ye have received the Spirit of adoption, whereby we cry, Abba, Father.  
+O our God, wilt thou not judge them? for we have no might against this great company that cometh against us; neither know we what to do: but our eyes are upon thee. -- Mine eyes are ever toward the LORD; for he shall pluck my feet out of the net. -- Our help is in the name of the LORD, who made heaven and earth.  
 
-**Judg 15:19; John 4:10; John 7:37,39; Mal 3:10; Luke 11:13; Luke 11:9; Gal 4:6; Rom 8:15**
+**Psa 121:1,2; Psa 125:2; Psa 123:1,2; Psa 63:7; 2 Chr 20:12; Psa 25:15; Psa 124:8**
 
-[Monday 18-September, 2023](https://t.me/daily_light)
+[Tuesday 19-September, 2023](https://t.me/daily_light)
