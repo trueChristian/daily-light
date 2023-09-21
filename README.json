@@ -1,44 +1,40 @@
 {
-  "date_key": "september-20",
-  "date_name": "Wednesday 20-September, 2023",
+  "date_key": "september-21",
+  "date_name": "Thursday 21-September, 2023",
   "evening": {
     "body": [
-      "Ye know the grace of our Lord Jesus Christ, that, though he was rich, yet for your sakes he became poor, that ye through his poverty might be rich. -- Of his fulness have all we received, and grace for grace. -- My God shall supply all your need according to his riches in glory by Christ Jesus. -- God is able to make all grace abound toward you; that ye, always having all sufficiency in all things, may abound to every good work.",
-      "Hath not God chosen the poor of this world rich in faith, and heirs of the kingdom which he hath promised to them that love him? -- Not many wise men after the flesh, not many mighty, not many noble, are called: but God hath chosen the foolish things of the world to confound the wise; and God hath chosen the weak things of the world to confound the things which are mighty.",
-      "We have this treasure in earthen vessels, that the excellency of the power may be of God, and not of us."
+      "I will pray the Father, and he shall give you another Comforter, that he may abide with you for ever; even the Spirit of truth; whom the world cannot receive, because it seeth him not, neither knoweth him: but ye know him; for he dwelleth with you, and shall be in you. -- He shall not speak of himself. He shall glorify me: for he shall receive of mine, and shall shew it unto you.",
+      "The love of God is shed abroad in our hearts by the Holy Ghost which is given unto us.",
+      "He that is joined unto the Lord is one spirit. -- Know ye not that your body is the temple of the Holy Ghost which is in you, which ye have of God, and ye are not your own?",
+      "Grieve not the holy Spirit of God, whereby ye are sealed unto the day of redemption. -- The Spirit also helpeth our infirmities: for we know not what we would pray for as we ought: but the Spirit itself maketh intercession for us with groanings which cannot be uttered."
     ],
-    "header": "Poor, yet making many rich.",
+    "header": "The communion of the Holy Ghost be with you all.",
     "name": "Evening",
     "references": [
-      "2 Cor 8:9",
-      "John 1:16",
-      "Phl 4:19",
-      "2 Cor 9:8",
-      "Jas 2:5",
-      "1 Cor 1:26,27",
-      "2 Cor 4:7"
+      "John 14:16,17",
+      "John 16:13,14",
+      "Rom 5:5",
+      "1 Cor 6:17",
+      "1 Cor 6:19",
+      "Eph 4:30",
+      "Rom 8:26"
     ]
   },
   "joomla": "https://git.vdm.dev/christian/mod_dailylight",
   "morning": {
     "body": [
-      "Whoso findeth me findeth life, and shall obtain favour of the LORD.",
-      "Thus saith the LORD, Let not the wise man glory in his wisdom, neither let the mighty man glory in his might: ... but let him that glorieth glory in this, that he understandeth and knoweth me, that I am the LORD. -- The fear of the LORD is the beginning of wisdom.",
-      "What things were gain to me, those I counted loss for Christ. Yea doubtless, and I count all things but loss for the excellency of the knowledge of Christ Jesus my Lord: for whom I have suffered the loss of all things, and do count them but dung, that I may win Christ. -- In whom are hid all the treasures of wisdom and knowledge. -- Counsel is mine, and sound wisdom: I am understanding; I have strength.",
-      "Christ Jesus, ... is made unto us wisdom, and righteousness, and sanctification, and redemption.",
-      "He that winneth souls is wise."
+      "Surely the wrath of man shall praise thee: the remainder of wrath shalt thou restrain. -- Ye thought evil against me: but God meant it unto good.",
+      "All things are yours; whether ... the world, or life, or death, or things present, or things to come; all are yours; and ye are Christ's; and Christ is God's. -- All things are for your sakes, that the abundant grace might through the thanksgiving of many redound to the glory of God. For which cause we faint not; but though our outward man perish, yet the inward man is renewed day by day. For our light affliction, which is but for a moment, worketh for us a far more exceeding and eternal weight of glory.",
+      "My brethren, count it all joy when ye fall into divers temptations; knowing this, that the trying of your faith worketh patience. But let patience have her perfect work, that ye may be perfect and entire, wanting nothing."
     ],
-    "header": "Happy is the man that findeth wisdom, and the man that getteth understanding. ",
+    "header": "We know that all things work together for good to them that love God.",
     "name": "Morning",
     "references": [
-      "Prov 8:35",
-      "Jer 9:23,24",
-      "Prov 9:10",
-      "Phl 3:7,8",
-      "Col 2:3",
-      "Prov 8:14",
-      "1 Cor 1:30",
-      "Prov 1:30"
+      "Psa 76:10",
+      "Gen 50:20",
+      "1 Cor 3:21-23",
+      "2 Cor 4:15-17",
+      "Jas 1:2-4"
     ]
   },
   "source": "https://github.com/trueChristian/daily-light",
