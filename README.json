@@ -1,40 +1,51 @@
 {
-  "date_key": "september-21",
-  "date_name": "Thursday 21-September, 2023",
+  "date_key": "september-22",
+  "date_name": "Friday 22-September, 2023",
   "evening": {
     "body": [
-      "I will pray the Father, and he shall give you another Comforter, that he may abide with you for ever; even the Spirit of truth; whom the world cannot receive, because it seeth him not, neither knoweth him: but ye know him; for he dwelleth with you, and shall be in you. -- He shall not speak of himself. He shall glorify me: for he shall receive of mine, and shall shew it unto you.",
-      "The love of God is shed abroad in our hearts by the Holy Ghost which is given unto us.",
-      "He that is joined unto the Lord is one spirit. -- Know ye not that your body is the temple of the Holy Ghost which is in you, which ye have of God, and ye are not your own?",
-      "Grieve not the holy Spirit of God, whereby ye are sealed unto the day of redemption. -- The Spirit also helpeth our infirmities: for we know not what we would pray for as we ought: but the Spirit itself maketh intercession for us with groanings which cannot be uttered."
+      "Now is my soul troubled; and what shall I say? Father, save me from this hour: but for this cause came I unto this hour.",
+      "I came down from heaven, not to do mine own will, but the will of him that sent me. -- He ... became obedient unto death, even the death of the cross. -- In the days of his flesh, when he had offered up prayers and supplications with strong crying and tears unto him that was able to save him from death, and was heard in that he feared; though he were a Son, yet learned he obedience by the things which he suffered.",
+      "Thinkest thou that I cannot now pray to my Father, and he shall presently give me more than twelve legions of angels? -- Thus it is written, and thus it behooved Christ to suffer, and to rise from the dead the third day: and that repentance and remission of sins should be preached in his name among all nations, beginning at Jerusalem."
     ],
-    "header": "The communion of the Holy Ghost be with you all.",
+    "header": "O my Father, if it be possible, let this cup pass from me: nevertheless not as I will, but as thou wilt.",
     "name": "Evening",
     "references": [
-      "John 14:16,17",
-      "John 16:13,14",
-      "Rom 5:5",
-      "1 Cor 6:17",
-      "1 Cor 6:19",
-      "Eph 4:30",
-      "Rom 8:26"
+      "John 12:27",
+      "John 6:38",
+      "Phl 2:8",
+      "Heb 5:7,8",
+      "Matt 26:53",
+      "Luke 24:46,47"
     ]
   },
   "joomla": "https://git.vdm.dev/christian/mod_dailylight",
   "morning": {
     "body": [
-      "Surely the wrath of man shall praise thee: the remainder of wrath shalt thou restrain. -- Ye thought evil against me: but God meant it unto good.",
-      "All things are yours; whether ... the world, or life, or death, or things present, or things to come; all are yours; and ye are Christ's; and Christ is God's. -- All things are for your sakes, that the abundant grace might through the thanksgiving of many redound to the glory of God. For which cause we faint not; but though our outward man perish, yet the inward man is renewed day by day. For our light affliction, which is but for a moment, worketh for us a far more exceeding and eternal weight of glory.",
-      "My brethren, count it all joy when ye fall into divers temptations; knowing this, that the trying of your faith worketh patience. But let patience have her perfect work, that ye may be perfect and entire, wanting nothing."
+      "As the apple tree among the trees of the wood, so is my beloved among the sons. I sat down under his shadow with great delight, and his fruit was sweet to my taste. -- For who in the heaven can be compared unto the LORD? who among the sons of the mighty can be likened unto the LORD?",
+      "My beloved is white and ruddy, the chiefest among ten thousand. -- One pearl of great price. -- The prince of the kings of the earth.",
+      "His head is as the most fine gold, his locks are bushy, and black as a raven. -- The head over all things. -- He is the head of the body, the church.",
+      "His cheeks are as a bed of spices, as sweet flowers. -- He could not be hid.",
+      "His lips like lilies, dropping sweet smelling myrrh. -- Never man spake like this man.",
+      "His countenance is as Lebanon, excellent as the cedars. -- Make thy face to shine upon thy servant. -- LORD, lift thou up the light thy countenance upon us."
     ],
-    "header": "We know that all things work together for good to them that love God.",
+    "header": "My meditation of him shall be sweet: I will be glad in the Lord.",
     "name": "Morning",
     "references": [
-      "Psa 76:10",
-      "Gen 50:20",
-      "1 Cor 3:21-23",
-      "2 Cor 4:15-17",
-      "Jas 1:2-4"
+      "Song 2:3",
+      "Psa 89:6",
+      "Song 5:10",
+      "Matt 13:46",
+      "Rev 1:5",
+      "Song 5:11",
+      "Eph 1:22",
+      "Col 1:18",
+      "Song 5:13",
+      "Mark 7:24",
+      "Song 5:13",
+      "John 7:46",
+      "Song 5:15",
+      "Psa 31:16",
+      "Psa 4:6"
     ]
   },
   "source": "https://github.com/trueChristian/daily-light",
