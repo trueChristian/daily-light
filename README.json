@@ -1,43 +1,45 @@
 {
-  "date_key": "september-23",
-  "date_name": "Saturday 23-September, 2023",
+  "date_key": "september-24",
+  "date_name": "Sunday 24-September, 2023",
   "evening": {
     "body": [
-      ".",
-      "If in this life only we have hope in Christ, we are of all men most miserable. -- Now they desire a better country, that is, an heavenly: wherefore God is not ashamed to be called their God; for he hath prepared for them a city. -- An inheritance incorruptible, and undefiled, and that fadeth not away, reserved in heaven for you.",
-      "All things are yours; ... the world, or life, or death, or things present, or things to come; all are yours. -- Eye hath not seen, nor ear heard, neither have entered into the heart of man, the things which God hath prepared for them that love him. But God hath revealed them unto us by his Spirit.",
-      "Look to yourselves, that we lose not those things which we have wrought, but that we receive a full reward. -- Let us lay aside every weight, and the sin which doth so easily beset us, and let us run with patience the race that is set before us."
+      "The  Word was made flesh, and dwelt among us, (and we beheld his glory, the  glory as of the only begotten of the Father,) full of grace and truth. --  Thou are fairer than the children of men: grace is poured into thy  lips. -- All bare him witness, and wondered at the gracious words which  proceeded out of his mouth.",
+      "Ye have tasted that the Lord is  gracious. -- He that believeth on the Son of God hath the witness in  himself. -- We speak that we do know, and testify that we have seen.",
+      "O  taste and see that the LORD is good: blessed is the man that trusteth  in him. -- I sat down under his shadow with great delight, and his fruit  was sweet to my taste.",
+      "He said unto me, My grace is sufficient  for thee: for my strength is made perfect in weakness. -- Unto every one  of us is given grace according to the measure of the gift of Christ. --  As every man hath received the gift, even so minister the same one to  another, as good stewards of the manifold grace of God."
     ],
-    "header": "He that overcometh shall inherit all things",
+    "header": "Ye know the grace of our Lord Jesus Christ.",
     "name": "Evening",
     "references": [
-      "1 Cor 15:19",
-      "Heb 11:16",
-      "1 Pet 1:4",
-      "1 Cor 3:21,22",
-      "1 Cor 2:9,10",
-      "2 John 8",
-      "Heb 12:1"
+      "John 1:14",
+      "Psa 45:2",
+      "Luke 4:22",
+      "1 Pet 2:3",
+      "1 John 5:10",
+      "John 3:11",
+      "Psa 34:8",
+      "Song 2:3",
+      "2 Cor 12:9",
+      "Eph 4:7",
+      "1 Pet 4:10"
     ]
   },
   "joomla": "https://git.vdm.dev/christian/mod_dailylight",
   "morning": {
     "body": [
-      "Beloved, think it not strange concerning the fiery trial which is to try you, as though some strange thing happened unto you. -- If ye endure chastening, God dealeth with you as with sons; for what son is he whom the father chasteneth not? But if ye be without chastisement, whereof all are partakers, then are ye bastards, and not sons.",
-      "The LORD your God proveth you, to know whether ye love the LORD your God with all your heart and with all your soul.",
-      "The LORD will not forsake his people for his great name's sake: because it hath pleased the LORD to make you his people. -- Can a woman forget her sucking child, that she should not have compassion on the son of her womb? yea, they may forget, yet will I not forget thee. -- Happy is he that hath the God of Jacob for his help, whose hope is in the LORD his God.",
-      "Shall not God avenge his own elect, which cry day and night unto him, though he bear long with them? I tell you that he will avenge them speedily."
+      "LORD,  I have loved the habitation of thy house, and the place where thine  honour dwelleth. -- A day in thy courts is better than a thousand. I had  rather be a door keeper in the house of my God, than to dwell in the  tents of wickedness. -- Blessed is the man whom thou choosest, and  causest to approach unto thee, that he may dwell in thy courts: we shall  be satisfied with the goodness of thy house, even of thy holy temple.",
+      "The  LORD is good unto them that wait for him, to the soul that seeketh him. -- Therefore will the LORD wait that he may be gracious unto you, and  therefore will he be exalted that he may have mercy upon you: for the  LORD is a God of judgment: blessed are all they that wait for him.",
+      "Having  therefore, brethren, boldness to enter into the holiest by the blood of  Jesus, by a new and living way, which he hath consecrated for us: ...  let us draw near with a true heart in full assurance of faith, having  our hearts sprinkled from an evil conscience."
     ],
-    "header": "Our God hath not forsaken us.",
+    "header": "It is good for me to draw near to God.",
     "name": "Morning",
     "references": [
-      "1 Pet 4:12",
-      "Heb 12:7,8",
-      "Deut 13:3",
-      "1 Sam 12:22",
-      "Isa 49:15",
-      "Psa 146:5",
-      "Luke 18:7,8"
+      "Psa 26:8",
+      "Psa 84:10",
+      "Psa 65:4",
+      "Lam 3:25",
+      "Isa 30:18",
+      "Heb 10:19,20,22"
     ]
   },
   "source": "https://github.com/trueChristian/daily-light",

@@ -1,13 +1,15 @@
 **Evening**
 
-**He that overcometh shall inherit all things**.
+**Ye know the grace of our Lord Jesus Christ.**
  
-If in this life only we have hope in Christ, we are of all men most miserable. -- Now they desire a better country, that is, an heavenly: wherefore God is not ashamed to be called their God; for he hath prepared for them a city. -- An inheritance incorruptible, and undefiled, and that fadeth not away, reserved in heaven for you.
+The  Word was made flesh, and dwelt among us, (and we beheld his glory, the  glory as of the only begotten of the Father,) full of grace and truth. --  Thou are fairer than the children of men: grace is poured into thy  lips. -- All bare him witness, and wondered at the gracious words which  proceeded out of his mouth.
  
-All things are yours; ... the world, or life, or death, or things present, or things to come; all are yours. -- Eye hath not seen, nor ear heard, neither have entered into the heart of man, the things which God hath prepared for them that love him. But God hath revealed them unto us by his Spirit.
+Ye have tasted that the Lord is  gracious. -- He that believeth on the Son of God hath the witness in  himself. -- We speak that we do know, and testify that we have seen.
  
-Look to yourselves, that we lose not those things which we have wrought, but that we receive a full reward. -- Let us lay aside every weight, and the sin which doth so easily beset us, and let us run with patience the race that is set before us.  
+O  taste and see that the LORD is good: blessed is the man that trusteth  in him. -- I sat down under his shadow with great delight, and his fruit  was sweet to my taste.
+ 
+He said unto me, My grace is sufficient  for thee: for my strength is made perfect in weakness. -- Unto every one  of us is given grace according to the measure of the gift of Christ. --  As every man hath received the gift, even so minister the same one to  another, as good stewards of the manifold grace of God.  
 
-**Rev 21:7; 1 Cor 15:19; Heb 11:16; 1 Pet 1:4; 1 Cor 3:21,22; 1 Cor 2:9,10; 2 John 8; Heb 12:1**
+**2 Cor 8:9; John 1:14; Psa 45:2; Luke 4:22; 1 Pet 2:3; 1 John 5:10; John 3:11; Psa 34:8; Song 2:3; 2 Cor 12:9; Eph 4:7; 1 Pet 4:10**
 
-[Saturday 23-September, 2023](https://t.me/daily_light)
+[Sunday 24-September, 2023](https://t.me/daily_light)
