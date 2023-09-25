@@ -1,13 +1,11 @@
 **Morning**
 
-**It is good for me to draw near to God.**
+**Let patience have her perfect work, that ye may be perfect and entire, wanting nothing.**
  
-LORD,  I have loved the habitation of thy house, and the place where thine  honour dwelleth. -- A day in thy courts is better than a thousand. I had  rather be a door keeper in the house of my God, than to dwell in the  tents of wickedness. -- Blessed is the man whom thou choosest, and  causest to approach unto thee, that he may dwell in thy courts: we shall  be satisfied with the goodness of thy house, even of thy holy temple.
+Now for a season, if need be, ye are in heaviness through manifold temptations: that the trial of your faith, being much more precious than of gold that perisheth, though it be tried with fire, might be found unto praise and honour and glory at the appearing of Jesus Christ. -- We glory in tribulations also: knowing that tribulation worketh patience; and patience, experience; and experience, hope.
  
-The  LORD is good unto them that wait for him, to the soul that seeketh him. -- Therefore will the LORD wait that he may be gracious unto you, and  therefore will he be exalted that he may have mercy upon you: for the  LORD is a God of judgment: blessed are all they that wait for him.
- 
-Having  therefore, brethren, boldness to enter into the holiest by the blood of  Jesus, by a new and living way, which he hath consecrated for us: ...  let us draw near with a true heart in full assurance of faith, having  our hearts sprinkled from an evil conscience.  
+It is good that a man should both hope and quietly wait for the salvation of the LORD. -- Ye have in heaven a better and an enduring substance. Cast not away therefore your confidence, which hath great recompence of reward. For ye have need of patience, that, after ye have done the will of God, ye might receive the promise. -- Our Lord Jesus Christ himself, and God, even our Father, which hath loved us, and hath given us everlasting consolation and good hope through grace, comfort your hearts. 
 
-**Psa 73:28; Psa 26:8; Psa 84:10; Psa 65:4; Lam 3:25; Isa 30:18; Heb 10:19,20,22**
+**James 1:4; 1 Pet 1:6,7; Rom 5:3-4; Lam 3:26; Heb 10: 34-36; 2Th 2:16-17**
 
-[Sunday 24-September, 2023](https://t.me/daily_light)
+[Monday 25-September, 2023](https://t.me/daily_light)
