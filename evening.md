@@ -1,13 +1,19 @@
 **Evening**
 
-**The heavens declare the glory of God; and the firmament sheweth his handywork.**
+**What things soever the Father doeth, these also doeth the Son likewise.**
  
-The invisible things of him from the creation of the world are clearly seen, being understood by the things that are made, even his eternal power and Godhead. -- He left not himself without witness. -- Day unto day uttereth speech, and night unto night sheweth knowledge. There is no speech nor language, where their voice is not heard.
+The LORD giveth wisdom: out of his mouth cometh knowledge and understanding. -- I will give you a mouth and wisdom, which all your adversaries shall not be able to gainsay nor resist.
  
-When I consider thy heavens, the work of thy fingers, the moon and the stars, which thou hast ordained; what is man, that thou art mindful of him? and the son of man, that thou visitest him?
+Wait on the LORD: be of good courage, and he shall strengthen thine heart. -- My grace is sufficient for thee: for my strength is made perfect in weakness.
  
-There is one glory of the sun, and another glory of the moon, and another glory of the stars: for one star differeth from another star in glory. So also is the resurrection of the dead. -- They that be wise shall shine as the brightness of the firmament; and they that turn many to righteousness as the stars for ever and ever.  
+Them that are sanctified by God the Father. -- He that sanctifieth and they who are sanctified are all of one: for which cause he is not ashamed to call them brethren.
+ 
+Do not I fill heaven and earth? saith the LORD. -- The fulness of him that filleth all in all.
+ 
+I, even I, am the LORD; and beside me there is no saviour. -- This is indeed the Christ, the Saviour of the world.
+ 
+Grace, mercy, and peace, from God the Father and the Lord Jesus Christ our Saviour.  
 
-**Psa 19:1; Rom 1:20; Acts 14:17; Psa 19:2,3; Psa 8:3,4; 1 Cor 15:41,42; Dan 12:3**
+**John 5:19; Prov 2:6; Luke 21:15; Psa 27:14; 2 Cor 12:9; Jude 1; Heb 2:11; Jer 23:24; Eph 1:23; Isa 43:11; John 4:42; Tit 1:4**
 
-[Thursday 28-September, 2023](https://t.me/daily_light)
+[Friday 29-September, 2023](https://t.me/daily_light)
