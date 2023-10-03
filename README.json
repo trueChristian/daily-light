@@ -1,39 +1,37 @@
 {
-  "date_key": "october-02",
-  "date_name": "Monday 02-October, 2023",
+  "date_key": "october-03",
+  "date_name": "Tuesday 03-October, 2023",
   "evening": {
     "body": [
-      "By the grace of God I am what I am. -- Of his own will begat he us with the word of truth. -- It is not of him that willeth, nor of him that runneth, but of God that sheweth mercy. -- Where is boasting then? It is excluded. -- Christ Jesus, ... is made unto us wisdom, and righteousness, and sanctification, and redemption: ... He that glorieth let him glory in the Lord.",
-      "You hath he quickened, who were dead in trespasses and sins; wherein in time past ye walked according to the course of this world, according to the prince of the power of the air, the spirit that now worketh in the children of disobedience: among whom also we all had our conversation in times past in the lusts of our flesh, fulfilling the desires of the flesh and of the mind; and were by nature the children of wrath, even as others. -- Ye are washed, ... ye are sanctified, ... ye are justified in the name of the Lord Jesus, and by the Spirit of our God."
+      "Over the king's treasures was Azmaveth the son of Adiel: and over the storehouses ... Jehonathan: and over them that did the work of the field for tillage of the ground was Ezri: and over the vineyards was Shimei. These were the rulers of the substance which was king David's.",
+      "God hath set some in the church, first apostles, secondarily prophets, thirdly teachers, after that miracles, then gifts of healings, helps, governments, diversities of tongues. All these worketh that one and the selfsame Spirit, dividing to every man severally as he will.",
+      "As every man hath received the gift, even so minister the same one to another, as good stewards of the manifold grace of God. If any man speak, let him speak as the oracles of God; if any man minister, let him do it as of the ability which God giveth: that God in all things may be glorified through Jesus Christ, to whom be praise and dominion for ever and ever."
     ],
-    "header": "Who maketh thee to differ from another? and what hast thou that thou didst not receive?",
+    "header": "There are differences of administrations, but the same Lord.",
     "name": "Evening",
     "references": [
-      "1 Cor 15:10",
-      "Jas 1:18",
-      "Rom 9:16",
-      "Rom 3:27",
-      "1 Cor 1:30,31",
-      "Eph 2:1-3",
-      "1 Cor 6:11"
+      "1 Chr 27:25-27,31",
+      "1 Cor 12:28,11",
+      "1 Pet 4:10,11"
     ]
   },
   "joomla": "https://git.vdm.dev/christian/mod_dailylight",
   "morning": {
     "body": [
-      "As far as the east is from the west, so far hath he removed our transgressions from us. -- In those days, and in that time, saith the LORD, the iniquity of Israel shall be sought for, and there shall be none; and the sins of Judah, and they shall not be found: for I will pardon them whom I reserve. -- Thou wilt cast all their sins into the depths of the sea. -- Who is a God like unto thee, that pardoneth iniquity?",
-      "All we like sheep have gone astray; we have turned every one to his own way; and the LORD hath laid on him the iniquity of us all. -- He shall bear their iniquities. Therefore will I divide him a portion with the great, and he shall divide the spoil with the strong, because he hath poured out his soul unto death; and he was numbered with the transgressors; and he bare the sin of many, and made intercession for the transgressors. -- The Lamb of God, which taketh away the sin of the world."
+      "Many waters cannot quench love, neither can the floods drown it. Love is strong as death. -- Greater love hath no man than this, that a man lay down his life for his friends.",
+      "Who his own self bare our sins in his own body on the tree, that we, being dead to sins, should live unto righteousness: by whose stripes ye were healed. -- In whom we have redemption through his blood, the forgiveness of sins, according to the riches of his grace.",
+      "Ye are washed, ... ye are sanctified, ... ye are justified in the name of the Lord Jesus, and by the Spirit of our God. -- Ye are a chosen generation, a royal priesthood, a holy nation, a peculiar people; that ye should shew forth the praises of him who hath called you out of darkness into his marvellous light. -- I beseech you ... brethren, by the mercies of God, that ye present your bodies a living sacrifice, holy, acceptable unto God, which is your reasonable service."
     ],
-    "header": "The goat shall bear upon him all their iniquities unto a land not inhabited: and he shall let go the goat in the wilderness.",
+    "header": "Unto him that loved us, and washed us from our sins in his own blood.",
     "name": "Morning",
     "references": [
-      "Psa 103:12",
-      "Jer 50:20",
-      "Mic 7:19",
-      "Mic 7:18",
-      "Isa 53:6",
-      "Isa 53:11,12",
-      "John 1:29"
+      "Song 8:7,6",
+      "John 15:13",
+      "1 Pet 2:24",
+      "Eph 1:7",
+      "1 Cor 6:11",
+      "1 Pet 2:9",
+      "Rom 12:1"
     ]
   },
   "source": "https://github.com/trueChristian/daily-light",
