@@ -1,37 +1,46 @@
 {
-  "date_key": "october-03",
-  "date_name": "Tuesday 03-October, 2023",
+  "date_key": "october-04",
+  "date_name": "Wednesday 04-October, 2023",
   "evening": {
     "body": [
-      "Over the king's treasures was Azmaveth the son of Adiel: and over the storehouses ... Jehonathan: and over them that did the work of the field for tillage of the ground was Ezri: and over the vineyards was Shimei. These were the rulers of the substance which was king David's.",
-      "God hath set some in the church, first apostles, secondarily prophets, thirdly teachers, after that miracles, then gifts of healings, helps, governments, diversities of tongues. All these worketh that one and the selfsame Spirit, dividing to every man severally as he will.",
-      "As every man hath received the gift, even so minister the same one to another, as good stewards of the manifold grace of God. If any man speak, let him speak as the oracles of God; if any man minister, let him do it as of the ability which God giveth: that God in all things may be glorified through Jesus Christ, to whom be praise and dominion for ever and ever."
+      "There fell some of Manasseh to David. And they helped David against the band of the rovers: for they were all mighty men of valour. -- The manifestation of the spirit is given to every man to profit withal.",
+      "Of the children of Issachar, which were men that had understanding of the times, to know what Israel ought to do. -- To one is given by the Spirit ... the word of wisdom, to another the word of knowledge by the same Spirit.",
+      "Of Zebulun, such as went forth to battle, expert in war, with all instruments of war, fifty thousand, which could keep rank: they were not of double heart. -- A double minded man is unstable in all his ways.",
+      "There should be no schism in the body; but ... the members should have the same care one for another. And whether one member suffer, all the members suffer with it; or one member be honoured, all the members rejoice with it.",
+      "One Lord, one faith, one baptism."
     ],
-    "header": "There are differences of administrations, but the same Lord.",
+    "header": "There are diversities of operations, but it is the same God which worketh all in all.",
     "name": "Evening",
     "references": [
-      "1 Chr 27:25-27,31",
-      "1 Cor 12:28,11",
-      "1 Pet 4:10,11"
+      "1 Chr 12:19,21",
+      "1 Cor 12:7",
+      "1 Chr 12:32",
+      "1 Cor 12:8",
+      "1 Chr 12:33",
+      "Jas 1:8",
+      "1 Cor 12:25,26",
+      "Eph 4:5"
     ]
   },
   "joomla": "https://git.vdm.dev/christian/mod_dailylight",
   "morning": {
     "body": [
-      "Many waters cannot quench love, neither can the floods drown it. Love is strong as death. -- Greater love hath no man than this, that a man lay down his life for his friends.",
-      "Who his own self bare our sins in his own body on the tree, that we, being dead to sins, should live unto righteousness: by whose stripes ye were healed. -- In whom we have redemption through his blood, the forgiveness of sins, according to the riches of his grace.",
-      "Ye are washed, ... ye are sanctified, ... ye are justified in the name of the Lord Jesus, and by the Spirit of our God. -- Ye are a chosen generation, a royal priesthood, a holy nation, a peculiar people; that ye should shew forth the praises of him who hath called you out of darkness into his marvellous light. -- I beseech you ... brethren, by the mercies of God, that ye present your bodies a living sacrifice, holy, acceptable unto God, which is your reasonable service."
+      "Not unto us, O LORD, not unto us, but unto thy name give glory. -- Lord, when saw we thee a hungred, and fed thee? or thirsty, and gave thee drink? -- In lowliness of mind, let each esteem other better than themselves. -- Be clothed with humility.",
+      "[Jesus] was transfigured before them: and his face did shine as the sun, and his raiment was white as the light. -- All that sat in the council, looking stedfastly on Stephen, saw his face as it had been the face of an angel. -- The glory which thou gavest me, I have given them. -- We all, with open face beholding as in a glass the glory of the Lord, are changed into the same image from glory to glory, even as by the Spirit of the Lord.",
+      "Ye are the light of the world. A city that is set on a hill cannot be hid. Neither do men light a candle, and put it under a bushel, but on a candlestick; and it giveth light unto all that are in the house."
     ],
-    "header": "Unto him that loved us, and washed us from our sins in his own blood.",
+    "header": "Moses wist not that the skin of his face shone while he talked with him.",
     "name": "Morning",
     "references": [
-      "Song 8:7,6",
-      "John 15:13",
-      "1 Pet 2:24",
-      "Eph 1:7",
-      "1 Cor 6:11",
-      "1 Pet 2:9",
-      "Rom 12:1"
+      "Psa 115:1",
+      "Matt 25:37",
+      "Phl 2:3",
+      "1 Pet 5:5",
+      "Matt 17:2",
+      "Acts 6:15",
+      "John 17:22",
+      "2 Cor 3:18",
+      "Matt 5:14,15"
     ]
   },
   "source": "https://github.com/trueChristian/daily-light",
