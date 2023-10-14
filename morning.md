@@ -1,11 +1,11 @@
 **Morning**
 
-**From the first day that thou didst set thine heart to understand, and to chasten thyself before thy God, thy words were heard.**
+**Christ both died, and rose, and revived, that he might be Lord both of the dead and living.**
  
-Thus saith the high and lofty One that inhabiteth eternity, whose name is Holy; I dwell in the high and holy place, with him also that is of a contrite and humble spirit, to revive the spirit of the humble, and to revive the heart of the contrite ones. -- The sacrifices of God are a broken spirit: a broken and a contrite heart, O God, thou wilt not despise. -- Though the LORD be high, yet hath he respect unto the lowly: but the proud he knoweth afar off. -- Humble yourselves therefore under the mighty hand of God, that he may exalt you in due time. -- God resisteth the proud, but giveth grace unto the humble. Submit yourselves therefore to God.
+It pleased the LORD to bruise him; he hath put him to grief: when thou shalt make his soul an offering for sin, he shall see his seed, he shall prolong his days, and the pleasure of the LORD shall prosper in his hand. He shall see of the travail of his soul, and shall be satisfied: by his knowledge shall my righteous servant justify many; for he shall bear their iniquities. -- Ought not Christ to have suffered these things, and to enter into his glory? -- We thus judge, that if one died for all, then were all dead: and that he died for all, that they which live should not henceforth live unto themselves, but unto him which died for them, and rose again.
  
-Thou, Lord, art good, and ready to forgive; and plenteous in mercy unto all them that call upon thee. Give ear, O LORD, unto my prayer; and attend to the voice of my supplications. In the day of my trouble I will call upon thee: for thou wilt answer me.  
+Let all the house of Israel know assuredly, that God hath made that same Jesus, whom ye have crucified, both Lord and Christ. -- Who verily was foreordained before the foundation of the world, but was manifest in these last times for you, who by him do believe in God.  
 
-**Dan 10:12; Isa 57:15; Psa 51:17; Psa 138:6; Prov 5:6; Jas 4:6; Jas 4:7; Psa 86:5-7**
+**Rom 14:9; Isa 53:10,11; Luke 24:26; 2 Cor 5:14,15; Acts 2:36; 1 Pet 1:20,21**
 
-[Friday 13-October, 2023](https://t.me/daily_light)
+[Saturday 14-October, 2023](https://t.me/daily_light)
