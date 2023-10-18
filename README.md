@@ -1,30 +1,34 @@
 # Morning
 
-**In thy name shall they rejoice all the day; and in thy righteousness shall they be exalted.**
+**One of the soldiers with a spear pierced his side, and forthwith came there out blood and water.**
  
-In the LORD have I righteousness and strength: even to him shall men come; and all that are incensed against him shall be ashamed. In the LORD shall all the seed of Israel be justified, and shall glory. -- Be glad in the LORD, and rejoice, ye righteous: and shout for joy, all ye that are upright in heart.
+Behold the blood of the covenant, which the LORD hath made with you. -- The life of the flesh is in the blood: and I have given it to you upon the altar to make an atonement for your souls. -- It is not possible that the blood of bulls and of goats should take away sins.
  
-The righteousness of God without the law is manifested, being witnessed by the law and the prophets; even the righteousness of God which is by faith of Jesus Christ unto all and upon all them that believe. To declare ... at this time his righteousness: that he might be just, and the justifier of him which believeth in Jesus.
+Jesus said unto them, This is my blood of the new testament, which is shed for many. -- By his own blood he entered in once into the holy place, having obtained eternal redemption for us. -- Peace through the blood of his cross.
  
-Rejoice in the Lord alway: and again I say, Rejoice. -- Whom having not seen, ye love; in whom, though now ye see him not, yet believing, ye rejoice with joy unspeakable and full of glory.  
+Ye know that ye were not redeemed with corruptible things, as silver and gold, ... but with the precious blood of Christ, as of a lamb without blemish and without spot, ... manifest in these last times for you.
+ 
+Then will I sprinkle clean water upon you and ye shall be clean: ... from all your idols, will I cleanse you. -- Let us draw near with a true heart in full assurance of faith, having our hearts sprinkled from an evil conscience.  
 
-**Psa 89:16; Isa 45:24,25; Psa 32:11; Rom 3:21,22,26; Phl 4:4; 1 Pet 1:8**
+**John 19:34; Exo 24:8; Lev 17:11; Heb 10:4; Mark 14:24; Heb 9:12; Col 1:20; 1 Pet 1:18-20; Ezek 36:25; Heb 10:22**
 
 # Evening
 
-**Thine is the kingdom, and the power, and the glory, for ever.**
+**Amen.**
  
-The LORD reigneth, he is clothed with majesty: thy throne is established of old: thou art from everlasting.
+Amen: the LORD God ... say so too. -- He who blesseth himself in the earth shall bless himself in the God of truth (Heb. The Amen) and he that sweareth in the earth shall swear by the God of truth (The Amen).
  
-The LORD is ... great in power. -- If God be for us, who can be against us? -- Our God whom we serve is able to deliver us, and he will deliver us. -- My Father, which gave them me, is greater than all; and no man is able to pluck them out of my Father's hand. -- Greater is he that is in you, than he that is in the world.
+When God made promise to Abraham, because he could swear by no greater, he sware by himself. For men verily swear by the greater: and an oath for confirmation is to them an end of all strife. Wherein God, willing more abundantly to shew unto the heirs of promise the immutability of his counsel, confirmed it by an oath: that by two immutable things, in which it was impossible for God to lie, we might have a strong consolation, who have fled for refuge to lay hold upon the hope set before us.
  
-Not unto us, O LORD, not unto us, but unto thy name give glory. -- Thine, O LORD, is the greatness, and the power, and the glory, and the victory, and the majesty: for all that is in the heaven and in the earth is thine; thine is the kingdom, O LORD, and thou art exalted as head above all. Now therefore, our God, we thank thee and praise thy glorious name. But who am I, and what is my people, that we should be able to offer so willingly after this sort? for all things come of thee, and of thine own have we given thee.  
+These things saith the Amen, the faithful and true witness. -- For all the promises of God in him are yea, and in him Amen, unto the glory of God by us.
+ 
+Blessed be the LORD God, the God of Israel, who only doeth wondrous things. And blessed be his glorious name for ever. Amen, and Amen.  
 
-**Matt 6:13; Psa 93:1,2; Nah 1:3; Rom 8:31; Dan 3:17; John 10:29; 1 John 4:4; Psa 115:1; 1 Chr 29:11,13,14**
+**Matt 6:13; 1 Kgs 1:36; Isa 65:16; Heb 6:13,16-18; Rev 3:14; 2 Cor 1:20; Psa 72:18,19**
 
 ---
 
-[Tuesday 17-October, 2023](https://t.me/s/daily_light)
+[Wednesday 18-October, 2023](https://t.me/s/daily_light)
 
 > Jonathan Bagster, the son of Samuel Bagster, created the Daily Light for his own family's daily devotion in 1875
 
