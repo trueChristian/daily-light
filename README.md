@@ -1,32 +1,30 @@
 # Morning
 
-**The Lord shall be thy confidence, and shall keep thy foot from being taken.**
+**I delight in the law of God after the inward man.**
  
-Surely the wrath of man shall praise thee: the remainder of wrath shalt thou restrain. -- The king's heart is in the hand of the LORD, as the rivers of water: he turneth it whithersoever he will. -- When a man's ways please the LORD, he maketh even his enemies to be at peace with him.
+O how love I thy law! it is my meditation all the day. -- Thy words were found, and I did eat them; and thy word was unto me the joy and rejoicing of mine heart. -- I sat down under his shadow with great delight, and his fruit was sweet to my taste. -- I have esteemed the words of his mouth more than my necessary food.
  
-I wait for the LORD, my soul doth wait, and in his word do I hope. My soul waiteth for the Lord more than they that wait for the morning: I say, more than they that watch for the morning. -- I sought the LORD, and he heard me, and delivered me from all my fears.
+I delight to do thy will, O my God: yea, thy law is within my heart. -- My meat is to do the will of him that sent me, and to finish his work.
  
-The eternal God is thy refuge, and underneath are the everlasting arms: and he shall thrust out the enemy from before thee; and shall say, Destroy them. -- Blessed is the man that trustesth in the LORD, and whose hope the LORD is.
- 
-What shall we then say to these things? If God be for us, who can be against us?  
+The statutes of the LORD are right, rejoicing the heart: the commandment of the LORD is pure enlightening the eyes. More to be desired are they than gold, yea, than much fine gold: sweeter also than honey and the honeycomb. -- Be ye doers of the word, and not hearers only, deceiving your own selves. For if any be a hearer of the word, and not a doer, he is like unto a man beholding his natural face in a glass.  
 
-**Prov 3:26; Psa 76:10; Prov 21:1; Prov 16:7; Psa 130:5,6; Psa 34:4; Deut 33:27; Jer 17:7; Rom 8:31**
+**Rom 7:22; Psa 119:97; Jer 15:16; Song 2:3; Job 23:12; Psa 40:8; John 4:34; Psa 19:8,10; Jas 1:22,23**
 
 # Evening
 
-**Consolation in Christ, ... comfort of love, ... fellowship of the Spirit.**
+**The Lord thy God accept thee.**
  
-Man that is born of a woman is of few days, and full of trouble. He cometh forth like a flower, and is cut down; he fleeth also as a shadow, and continueth not. -- My flesh and my heart faileth: but God is the strength of my heart, and my portion for ever.
+Wherewith shall I come before the LORD, and bow myself before the high God? shall I come before him with burnt offerings, with calves of a year old? Will the LORD be pleased with thousands of rams, or with ten thousands of rivers of oil? shall I give my firstborn for my transgression, the fruit of my body for the sin of my soul? He hath shewed thee, O man, what is good; and what doth the LORD require of thee, but to do justly, and to love mercy, and to walk humbly with thy God?
  
-The Father ... shall give you another Comforter, that he may abide with you for ever: the Holy Ghost, whom the Father will send in my name. -- Blessed be God, even the Father of our Lord Jesus Christ, the Father of mercies, and the God of all comfort; who comforteth us in all our tribulation, that we may be able to comfort them which are in any trouble, by the comfort wherewith we ourselves are comforted of God.
+We are all as an unclean thing, and all our righteousnesses are as filthy rags. -- There is none righteous, no, not one. For all have sinned, and come short of the glory of God; being justified freely by his grace through the redemption that is in Christ Jesus: whom God hath set forth to be a propitiation through faith in his blood. To declare ... at this time his righteousness: that he might be just, and the justifier of him which believeth in Jesus.
  
-If we believe that Jesus died and rose again, even so them which sleep in Jesus will God bring with him. And so shall we ever be with the Lord. Wherefore comfort one another with these words.  
+Accepted in the Beloved. -- Ye are complete in him.  
 
-**Phl 2:1; Job 14:1,2; Psa 73:26; John 14:16,26; 2 Cor 1:3,4; 1 Thes 4:14,17,18**
+**2 Sam 24:23; Mic 6:6-8; Isa 64:6; Rom 3:10,23-26; Eph 1:6; Col 2:10**
 
 ---
 
-[Thursday 19-October, 2023](https://t.me/s/daily_light)
+[Friday 20-October, 2023](https://t.me/s/daily_light)
 
 > Jonathan Bagster, the son of Samuel Bagster, created the Daily Light for his own family's daily devotion in 1875
 
