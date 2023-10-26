@@ -1,13 +1,13 @@
 **Evening**
 
-**The end of all things is at hand.**
+**Take heed to your spirit.**
  
-I saw a great white throne, and him that sat on it, from whose face the earth and the heaven fled away. -- The heavens and the earth, which are now, ... are kept in store, reserved unto fire against the day of judgment.
+Master, we saw one casting out devils in thy name; and we forbad him, because he followeth not with us. And Jesus said unto him, Forbid him not: for he that is not against us is for us. Lord, wilt thou that we command fire to come down from heaven, and consume them, even as Elias did? But he ... rebuked them, and said, Ye know not what manner of spirit ye are of.
  
-God is our refuge and strength, a very present help in trouble. Therefore will not we fear, though the earth be removed, and though the mountains be carried into the midst of the sea; though the waters thereof roar and be troubled, though the mountains shake with the swelling thereof. -- Ye shall hear of wars and rumours of wars: see that ye be not troubled.
+Eldad and Medad do prophesy in the camp. And Joshua the son of Nun ... answered and said, My lord Moses, forbid them. And Moses said unto him, Enviest thou for my sake? would God that all the LORD'S people were prophets, and that the LORD would put his spirit upon them!
  
-We have a building of God, an house not made with hands, eternal in the heavens. -- We ... look for new heavens and a new earth, wherein dwelleth righteousness. Wherefore, beloved, seeing that ye look for such things, be diligent that ye may be found of him in peace, without spot, and blameless.  
+The fruit of the Spirit is love, joy, peace, longsuffering, gentleness, goodness, faith, meekness, temperance. -- And they that are Christ's have crucified the flesh with the affections and lusts. If we live in the Spirit, let us also walk in the Spirit. Let us not be desirous of vain glory, provoking one another, envying one another.  
 
-**1 Pet 4:7; Rev 20:11; 2 Pet 3:7; Psa 46:1-3; Matt 24:6; 2 Cor 5:1; 2 Pet 3:13,14**
+**Mal 2:15; Luke 9:49,50,54,55; Num 11:27-29; Gal 5:22,23; Gal 5:24-27**
 
-[Wednesday 25-October, 2023](https://t.me/daily_light)
+[Thursday 26-October, 2023](https://t.me/daily_light)

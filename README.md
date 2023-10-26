@@ -1,30 +1,30 @@
 # Morning
 
-**Lo, I am with you alway, even unto the end of the world.**
+**The Lord reigneth.**
  
-If two of you shall agree on earth as touching any thing that they shall ask, it shall be done for them of my Father which is in heaven. For where two or three are gathered together in my name, there am I in the midst of them. -- He that hath my commandments, and keepeth them, he it is that loveth me: and he that loveth me shall be loved of my Father, and I will love him, and will manifest myself to him.
+Fear ye not me? saith the LORD: will ye not tremble at my presence, which have placed the sand for the bound of the sea by a perpetual decree, that it cannot pass it: and though the waves thereof toss themselves, yet can they not prevail; though they roar, yet can they not pass over it? -- Promotion cometh neither from the east, nor from the west, nor from the south. But God is the judge: he putteth down one, and setteth up another.
  
-Lord, how is it that thou wilt manifest thyself unto us, and not unto the world? ... If a man love me, he will keep my words: and my Father will love him, and we will come unto him, and make our abode with him.
+He changeth the times and the seasons: he removeth kings, and setteth up kings: he giveth wisdom unto the wise, and knowledge to them that know understanding. -- Ye shall hear of wars and rumours of wars: see that ye be not troubled.
  
-Unto him that is able to keep you from falling, and to present you faultless before the presence of his glory with exceeding joy, to the only wise God our Saviour, be glory and majesty, dominion and power, both now and ever. Amen.  
+If God be for us, who can be against us? -- Are not two sparrows sold for a farthing? and one of them shall not fall on the ground without your Father. The very hairs of your head are all numbered. Fear ye not therefore, ye are of more value than many sparrows.  
 
-**Matt 28:20; Mark 18:19,20; John 14:21; John 14:22,23; Jude 24,25**
+**Psa 99:1; Jer 5:22; Psa 75:6,7; Dan 2:21; Matt 24:6; Rom 8:31; Matt 10:29-31**
 
 # Evening
 
-**The end of all things is at hand.**
+**Take heed to your spirit.**
  
-I saw a great white throne, and him that sat on it, from whose face the earth and the heaven fled away. -- The heavens and the earth, which are now, ... are kept in store, reserved unto fire against the day of judgment.
+Master, we saw one casting out devils in thy name; and we forbad him, because he followeth not with us. And Jesus said unto him, Forbid him not: for he that is not against us is for us. Lord, wilt thou that we command fire to come down from heaven, and consume them, even as Elias did? But he ... rebuked them, and said, Ye know not what manner of spirit ye are of.
  
-God is our refuge and strength, a very present help in trouble. Therefore will not we fear, though the earth be removed, and though the mountains be carried into the midst of the sea; though the waters thereof roar and be troubled, though the mountains shake with the swelling thereof. -- Ye shall hear of wars and rumours of wars: see that ye be not troubled.
+Eldad and Medad do prophesy in the camp. And Joshua the son of Nun ... answered and said, My lord Moses, forbid them. And Moses said unto him, Enviest thou for my sake? would God that all the LORD'S people were prophets, and that the LORD would put his spirit upon them!
  
-We have a building of God, an house not made with hands, eternal in the heavens. -- We ... look for new heavens and a new earth, wherein dwelleth righteousness. Wherefore, beloved, seeing that ye look for such things, be diligent that ye may be found of him in peace, without spot, and blameless.  
+The fruit of the Spirit is love, joy, peace, longsuffering, gentleness, goodness, faith, meekness, temperance. -- And they that are Christ's have crucified the flesh with the affections and lusts. If we live in the Spirit, let us also walk in the Spirit. Let us not be desirous of vain glory, provoking one another, envying one another.  
 
-**1 Pet 4:7; Rev 20:11; 2 Pet 3:7; Psa 46:1-3; Matt 24:6; 2 Cor 5:1; 2 Pet 3:13,14**
+**Mal 2:15; Luke 9:49,50,54,55; Num 11:27-29; Gal 5:22,23; Gal 5:24-27**
 
 ---
 
-[Wednesday 25-October, 2023](https://t.me/s/daily_light)
+[Thursday 26-October, 2023](https://t.me/s/daily_light)
 
 > Jonathan Bagster, the son of Samuel Bagster, created the Daily Light for his own family's daily devotion in 1875
 
