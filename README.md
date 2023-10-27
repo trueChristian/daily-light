@@ -1,30 +1,28 @@
 # Morning
 
-**The Lord reigneth.**
+**Himself took our infirmities, and bare our sicknesses.**
  
-Fear ye not me? saith the LORD: will ye not tremble at my presence, which have placed the sand for the bound of the sea by a perpetual decree, that it cannot pass it: and though the waves thereof toss themselves, yet can they not prevail; though they roar, yet can they not pass over it? -- Promotion cometh neither from the east, nor from the west, nor from the south. But God is the judge: he putteth down one, and setteth up another.
+Then shall the priest command to take for him that is to be cleansed two birds alive and clean, and cedar wood, and scarlet, and hyssop: and the priest shall command that one of the birds be killed in an earthen vessel over running water: as for the living bird, he shall take it, and the cedar wood, and the scarlet, and the hyssop, and shall dip them and the living bird in the blood of the bird that was killed over the running water: and he shall sprinkle upon him that is to be cleansed from the leprosy seven times, and shall pronounce him clean, and shall let the living bird loose into the open field.
  
-He changeth the times and the seasons: he removeth kings, and setteth up kings: he giveth wisdom unto the wise, and knowledge to them that know understanding. -- Ye shall hear of wars and rumours of wars: see that ye be not troubled.
- 
-If God be for us, who can be against us? -- Are not two sparrows sold for a farthing? and one of them shall not fall on the ground without your Father. The very hairs of your head are all numbered. Fear ye not therefore, ye are of more value than many sparrows.  
+Behold a man full of leprosy: who seeing Jesus fell on his face, and besought him, saying, Lord, if thou wilt, thou canst make me clean. -- And Jesus, moved with compassion, put forth his hand, and touched him, and saith unto him, I will; be thou clean. And as soon as he had spoken, immediately the leprosy departed from him, and he was cleansed.  
 
-**Psa 99:1; Jer 5:22; Psa 75:6,7; Dan 2:21; Matt 24:6; Rom 8:31; Matt 10:29-31**
+**Matt 8:17; Lev 14:4-7; Luke 5:12; Mark 1:41,42**
 
 # Evening
 
-**Take heed to your spirit.**
+**He whom thou blessest is blessed.**
  
-Master, we saw one casting out devils in thy name; and we forbad him, because he followeth not with us. And Jesus said unto him, Forbid him not: for he that is not against us is for us. Lord, wilt thou that we command fire to come down from heaven, and consume them, even as Elias did? But he ... rebuked them, and said, Ye know not what manner of spirit ye are of.
+Blessed are the poor in spirit: for their's is the kingdom of heaven.
  
-Eldad and Medad do prophesy in the camp. And Joshua the son of Nun ... answered and said, My lord Moses, forbid them. And Moses said unto him, Enviest thou for my sake? would God that all the LORD'S people were prophets, and that the LORD would put his spirit upon them!
+Blessed are they that mourn: for they shall be comforted. Blessed are the meek: for they shall inherit the earth. Blessed are they which do hunger and thirst after righteousness: for they shall be filled. Blessed are the merciful: for they shall obtain mercy. Blessed are the pure in heart: for they shall see God. Blessed are the peacemakers: for they shall be called the children of God. Blessed are they which are persecuted for righteousness' sake: for their's is the kingdom of heaven. Blessed are ye, when men shall revile you, and persecute you, and shall say all manner of evil against you falsely, for my sake. Rejoice, and be exceeding glad: for great is your reward in heaven. -- Blessed are they that hear the word of God, and keep it.
  
-The fruit of the Spirit is love, joy, peace, longsuffering, gentleness, goodness, faith, meekness, temperance. -- And they that are Christ's have crucified the flesh with the affections and lusts. If we live in the Spirit, let us also walk in the Spirit. Let us not be desirous of vain glory, provoking one another, envying one another.  
+Blessed are they that do his commandments, that they may have right to the tree of life, and may enter in through the gates into the city.  
 
-**Mal 2:15; Luke 9:49,50,54,55; Num 11:27-29; Gal 5:22,23; Gal 5:24-27**
+**Num 22:6; Matt 5:3-12; Luke 11:28; Rev 22:14**
 
 ---
 
-[Thursday 26-October, 2023](https://t.me/s/daily_light)
+[Friday 27-October, 2023](https://t.me/s/daily_light)
 
 > Jonathan Bagster, the son of Samuel Bagster, created the Daily Light for his own family's daily devotion in 1875
 
