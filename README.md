@@ -1,30 +1,30 @@
 # Morning
 
-**He is altogether lovely.**
+**It is good that a man should both hope and quietly wait for the salvation of the Lord.**
  
-My meditation of him shall be sweet. -- My beloved is ... the chiefest among ten thousand. -- A chief corner stone, elect, precious: and he that believeth on him shall not be confounded. -- Thou art fairer than the children of men: grace is poured into thy lips. -- God ... hath highly exalted him, and given him a name which is above every name. -- It pleased the Father that in him should all fulness dwell.
+Hath God forgotten to be gracious? hath he in anger shut up his tender mercies? -- I said in my haste, I am cut off from before thine eyes: nevertheless thou heardest the voice of my supplications when I cried unto thee.
  
-Whom having not seen, ye love; in whom, though now ye see him not, yet believing, ye rejoice with joy unspeakable and full of glory.
+Shall not God avenge his own elect, which cry day and night unto him, though he bear long with them? I tell you that he will avenge them speedily. -- Wait on the LORD, and he shall save thee. -- Rest in the LORD, and wait patiently for him: fret not thyself because of him who prospereth in his way, because of the man who bringeth wicked devices to pass.
  
-I count all things but loss, for the excellency of the knowledge of Christ Jesus my Lord: for whom I have suffered the loss of all things, and do count them but dung, that I may win Christ, and be found in him, not having mine own righteousness which is of the law, but that which is through the faith of Christ, the righteousness which is of God by faith.  
+Ye shall not need to fight in this battle: set yourselves, stand ye still, and see the salvation of the LORD.
+ 
+Let us not be weary in well doing: ... in due season we shall reap, if we faint not. -- Behold, the husbandman waiteth for the precious fruit of the earth, and hath long patience for it, until he receive the early and latter rain.  
 
-**Song 5:16; Psa 104:34; Song 5:10; 1 Pet 2:6; Psa 45:2; Phl 2:9; Col 1:19; 1 Pet 1:8; Phl 3:8,9**
+**Lam 3:26; Psa 77:9; Psa 31:22; Luke 18:7,8; Prov 20:22; Psa 37:7; 2 Chr 20:17; Gal 6:9; Jas 5:7**
 
 # Evening
 
-**David encouraged himself in the Lord his God.**
+**Take us the foxes, the little foxes, that spoil the vines: for our vines have tender grapes.**
  
-Lord, to whom shall we go? thou hast the words of eternal life. -- I know whom I have believed, and am persuaded that he is able to keep that which I have committed unto him against that day.
+Who can understand his errors? cleanse thou me from secret faults. -- Looking diligently lest any man fail of the grace of God; lest any root of bitterness springing up trouble you, and thereby many be defiled. -- Ye did run well; who did hinder you that ye should not obey the truth?
  
-In my distress I called upon the LORD, and cried unto my God: he heard my voice out of his temple, and my cry came before him, even into his ears. They prevented me in the day of my calamity: but the LORD was my stay. He brought me forth also into a large place; he delivered me, because he delighted in me.
- 
-I will bless the LORD at all times: his praise shall continually be in my mouth. My soul shall make her boast in the LORD: the humble shall hear thereof, and be glad. O magnify the LORD with me, and let us exalt his name together. I sought the LORD, and he heard me, and delivered me from all my fears. O taste and see that the LORD is good: blessed is the man that trusteth in him.  
+He which hath begun a good work in you will perform it until the day of Jesus Christ: only let your conversation be as it becometh the gospel of Christ. -- The tongue is a little member, and boasteth great things. Behold, how great a matter a little fire kindleth! And the tongue is a fire, a world of iniquity: so is the tongue among our members, that it defileth the whole body, and setteth on fire the course of nature; and it is set on fire of hell. The tongue can no man tame; it is an unruly evil, full of deadly poison. -- Let your speech be alway with grace, seasoned with salt.  
 
-**1 Sam 30:6; John 6:68; 2 Tim 1:12; Psa 18:6,18,19; Psa 34:1-4,8**
+**Song 2:15; Psa 19:12; Heb 12:15; Gal 5:7; Phl 1:6,27; Jas 3:5,6; Col 4:6**
 
 ---
 
-[Sunday 29-October, 2023](https://t.me/s/daily_light)
+[Monday 30-October, 2023](https://t.me/s/daily_light)
 
 > Jonathan Bagster, the son of Samuel Bagster, created the Daily Light for his own family's daily devotion in 1875
 
