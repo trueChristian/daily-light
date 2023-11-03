@@ -1,13 +1,13 @@
 **Morning**
 
-**Ever follow that which is good.**
+**The ways of the Lord are right, and the just shall walk in them: but the transgressors shall fall therein.**
  
-For even hereunto were ye called: because Christ also suffered for us, leaving us an example, that ye should follow his steps: who did no sin, neither was guile found in his mouth: who, when he was reviled, reviled not again; ... but committed himself to him that judgeth righteously. -- Consider him that endured such contradiction of sinners against himself, lest ye be wearied and faint in your minds.
+Unto you ... which believe he is precious: but unto them which be disobedient, ... a stone of stumbling, and a rock of offence. -- The way of the LORD is strength to the upright: but destruction shall be to the workers of iniquity.
  
-Let us lay aside every weight, and the sin which doth so easily beset us, and let us run with patience the race that is set before us, looking unto Jesus the author and finisher of our faith; who for the joy that was set before him endured the cross, despising the shame, and is set down at the right hand of the throne of God.
+He that hath ears to hear, let him hear. -- Whoso is wise, and will observe these things, even they shall understand the lovingkindness of the LORD. -- The light of the body is the eye: if therefore thine eye be single, thy whole body shall be full of light. -- If any man will do his will, he shall know of the doctrine, whether it be of God. -- Whosoever hath, to him shall be given, and he shall have more abundance.
  
-Finally, brethren, whatsoever things are true, whatsoever things are honest, whatsoever things are just, whatsoever things are pure, whatsoever things are lovely, whatsoever things are of good report: if there be any virtue, and if there be any praise, think on these things.  
+He that is of God heareth God's words: ye therefore hear them not, because ye are not of God. -- Ye will not come unto me, that ye might have life. -- My sheep hear my voice, and I know them, and they follow me.  
 
-**1 Thes 5:15; 1 Pet 2:21-23; Heb 12:3; Heb 12:1,2; Phl 4:8**
+**Hos 14:9; 1 Pet 2:7,8; Prov 10:29; Mark 11:15; Psa 107:43; Matt 6:22; John 7:17; Matt 13:12; John 8:47; John 5:40; John 10:27**
 
-[Thursday 02-November, 2023](https://t.me/daily_light)
+[Friday 03-November, 2023](https://t.me/daily_light)
