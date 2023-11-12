@@ -1,13 +1,15 @@
 **Evening**
 
-**Ye are washed, ... ye are sanctified, ... ye are justified.**
+**Is it well with thee? And she answered, it is well.**
  
-The blood of Jesus Christ his Son cleanseth us from all sin. -- The chastisement of our peace was upon him; and with his stripes we are healed.
+We having the same spirit of faith.
  
-Christ ... loved the church, and gave himself for it; that he might sanctify and cleanse it with the washing of water by the word, that he might present it to himself a glorious church, not having spot, or wrinkle, or any such thing; but that it should be holy and without blemish. -- To her was granted that she should be arrayed in fine linen, clean and white: for the fine linen is the righteousness of saints. -- Let us draw near with a true heart in full assurance of faith, having our hearts sprinkled from an evil conscience, and our bodies washed with pure water.
+As chastened, and not killed; as sorrowful, yet alway rejoicing; as poor, yet making many rich; as having nothing, and yet possessing all things.
  
-Who shall lay any thing to the charge of God's elect? It is God that justifieth. -- Blessed is he whose transgression is forgiven. Blessed is the man unto whom the LORD imputeth not iniquity, and in whose spirit there is no guile.  
+We are troubled on every side, yet not distressed; we are perplexed, but not in despair; persecuted, but not forsaken; cast down, but not destroyed; always bearing about in the body the dying of the Lord Jesus, that the life also of Jesus might be made manifest in our body. For which cause we faint not, but though our outward man perish, yet the inward man is renewed day by day. For our light affliction, which is but for a moment, worketh for us a far more exceeding and eternal weight of glory; while we look not at the things which are seen, but at the things which are not seen.
+ 
+Beloved, I wish above all things that thou mayest prosper and be in health, even as thy soul prospereth.  
 
-**1 Cor 6:11; 1 John 1:7; Isa 53:5; Eph 5:25-27; Rev 19:8; Heb 10:22; Rom 8:33; Psa 32:1,2**
+**2 Kgs 4:26; 2 Cor 4:13; 2 Cor 6:9,10; 2 Cor 4:8-10,16-18; 21 John 2**
 
-[Saturday 11-November, 2023](https://t.me/daily_light)
+[Sunday 12-November, 2023](https://t.me/daily_light)
