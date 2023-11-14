@@ -1,30 +1,34 @@
 # Morning
 
-**Christ loved the church, and gave himself for it; that he might sanctify and cleanse it with the washing of water by the word.**
+**Thou art my help and my deliverer; make no tarrying, O my God.**
  
-Walk in love, as Christ also hath loved us, and hath given himself for us an offering and a sacrifice to God for a sweetsmelling savour.
+The steps of a good man are ordered by the LORD: and he delighteth in his way. Though he fall, he shall not be utterly cast down: for the LORD upholdeth him with his hand. -- In the fear of the LORD is strong confidence: and his children shall have a place of refuge. -- Who art thou, that thou shouldest be afraid of a man that shall die, and of the son of man which shall be made as grass; and forgettest the LORD thy maker?
  
-Being born again, not of corruptible seed, but of incorruptible, by the word of God, which liveth and abideth for ever. -- Sanctify them through thy truth: thy word is truth. -- Except a man be born of water and of the Spirit, he cannot enter into the kingdom of God. -- Not by works of righteousness which we have done, but according to his mercy he saved us, by the washing of regeneration, and renewing of the Holy Ghost. -- Thy word hath quickened me.
+I am with thee to deliver thee. -- Be strong and of a good courage, fear not, nor be afraid of them: for the LORD thy God, he it is that doth go with thee; he will not fail thee, nor forsake thee.
  
-The law of the LORD is perfect, converting the soul: the testimony of the LORD is sure, making wise the simple. The statutes of the LORD are right, rejoicing the heart: the commandment of the LORD is pure, enlightening the eyes.  
+I will sing of thy power; yea, I will sing aloud of thy mercy in the morning: for thou hast been my defence and refuge in the day of my trouble. -- Thou art my hiding place; thou shalt preserve me from trouble; thou shalt compass me about with songs of deliverance.  
 
-**Eph 5:25,26; Eph 5:2; 1 Pet 1:23; John 17:17; John 3:5; Tit 3:5; Psa 119:50; Psa 19:7,8**
+**Psa 40:17; Psa 37:23,24; Prov 14:26; Isa 51:12,13; Jer 1:8; Deut 31:6; Psa 59:16; Psa 32:7**
 
 # Evening
 
-**Through him we both have access by one Spirit unto the Father.**
+**How wilt thou do in the swellings of Jordan?**
  
-I in them, and thou in me, that they may be made perfect in one.
+For Jordan overfloweth all his banks all the time of harvest.
  
-Whatsoever ye shall ask in my name, that will I do, that the Father may be glorified in the Son. If ye shall ask any thing in my name, I will do it. And I will pray the Father, and he shall give you another Comforter, that he may abide with you for ever; even the Spirit of truth; whom the world cannot receive, because it seeth him not, neither knoweth him: but ye know him; for he dwelleth with you, and shall be in you. -- There is one body, and one Spirit, even as ye are called in one hope of your calling; one LORD, one faith, one baptism, one God and Father of all, who is above all, and through all, and in you all. -- When ye pray, say, Our Father which art in heaven.
+The priests that bare the ark of the covenant of the LORD stood firm on dry ground in the midst of Jordan, and all the Israelites passed over on dry ground, until all the people were passed clean over Jordan.
  
-Having therefore, brethren, boldness to enter into the holiest by the blood of Jesus, by a new and living way ... let us draw near.  
+We see Jesus, who was made a little lower than the angels, for the suffering of death, crowned with glory and honour; that he by the grace of God should taste death for every man.
+ 
+Though I walk through the valley of the shadow of death, I will fear no evil: for thou art with me; thy rod and thy staff they comfort me. -- When thou passest through the waters, I will be with thee; and through the rivers, they shall not overflow thee.
+ 
+Fear not; I am the first and the last: I am he that liveth, and was dead; and, behold, I am alive for evermore, Amen; and have the keys of hell and of death.  
 
-**Eph 2:18; John 17:23; John 14:13,14,16,17; Eph 4:4-6; Luke 11:2; Heb 10:19,20,22**
+**Jer 12:5; Josh 3:15; Josh 3:17; Heb 2:9; Psa 23:4; Isa 43:2; Rev 1:17,18**
 
 ---
 
-[Monday 13-November, 2023](https://t.me/s/daily_light)
+[Tuesday 14-November, 2023](https://t.me/s/daily_light)
 
 > Jonathan Bagster, the son of Samuel Bagster, created the Daily Light for his own family's daily devotion in 1875
 
