@@ -1,15 +1,11 @@
 **Morning**
 
-**Sanctify them through thy truth: thy word is truth.**
+**Thy thoughts are very deep.**
  
-Now ye are clean through the word which I have spoken unto you. -- Let the word of Christ dwell in you richly in all wisdom.
+We ... do not cease to pray for you, and to desire that ye might be filled with the knowledge of his will in all wisdom and spiritual understanding. -- That ye, being rooted and grounded in love, may be able to comprehend with all saints what is the breadth, and length, and depth, and height; and to know the love of Christ, which passeth knowledge, that ye might be filled with all the fulness of God.
  
-Wherewithal shall a young man cleanse his way? by taking heed thereto according to thy word. With my whole heart have I sought thee: O let me not wander from thy commandments.
- 
-When wisdom entereth into thine heart, and knowledge is pleasant unto thy soul: discretion shall preserve thee, understanding shall keep thee.
- 
-My foot hath held his steps, his way have I kept, and not declined. Neither have I gone back from the commandment of his lips; I have esteemed the words of his mouth more than my necessary food. -- I have more understanding than all my teachers: for thy testimonies are my meditation. -- If ye continue in my word, then are ye my disciples indeed; and ye shall know the truth, and the truth shall make you free.  
+O the depth of the riches both of the wisdom and knowledge of God! how unsearchable are his judgments, and his ways past finding out! -- My thoughts are not your thoughts, neither are your ways my ways, saith the LORD. For as the heavens are higher than the earth, so are my ways higher than your ways, and my thoughts than your thoughts. -- Many, O LORD my God, are thy wonderful works which thou hast done, and thy thoughts which are to us ward: they cannot be reckoned up in order unto thee: if I would declare and speak of them, they are more than can be numbered.  
 
-**John 17:17; John 15:3; Col 3:16; Psa 119:9,10; Prov 2:10,11; Job 23:11,12; Psa 119:99; John 8:31,32**
+**Psa 92:5; Col 1:9; Eph 3:17-19; Rom 11:33; Isa 55:8,9; Psa 40:5**
 
-[Thursday 16-November, 2023](https://t.me/daily_light)
+[Friday 17-November, 2023](https://t.me/daily_light)
