@@ -1,15 +1,13 @@
 **Morning**
 
-**Praying in the Holy Ghost.**
+**Whoso hearkeneth unto me shall dwell safely, and shall be quiet from fear of evil.**
  
-God is a Spirit: and they that worship him must worship him in spirit and in truth. -- We ... have access by one Spirit unto the Father.
+LORD, thou hast been our dwelling place in all generations. -- He that dwelleth in the secret place of the most High shall abide under the shadow of the Almighty. -- His truth shall be thy shield and buckler.
  
-O my Father, if it be possible, let this cup pass from me: nevertheless not as I will, but as thou wilt.
+Your life is hid with Christ in God. -- He that toucheth you toucheth the apple of his eye. -- Fear ye not, stand still, and see the salvation of the LORD. The LORD shall fight for you, and ye shall hold your peace. -- God is our refuge and strength, a very present help in trouble. Therefore will not we fear.
  
-The Spirit ... helpeth our infirmities: for we know not what we should pray for as we ought: but the Spirit itself maketh intercession for us with groanings which cannot be uttered. And he that searcheth the hearts knoweth what is the mind of the Spirit, because he maketh intercession for the saints according to the will of God. -- This is the confidence that we have in him, that, if we ask any thing according to his will, he heareth us. -- When he, the Spirit of truth, is come, he will guide you into all truth.
- 
-Praying always with all prayer and supplication in the Spirit, and watching thereunto with all perseverance and supplication.  
+Jesus spake unto them, saying, Be of good cheer; it is I; be not afraid. -- Why are ye troubled? and why do thoughts arise in your hearts? Behold my hands and my feet, that it is I myself: handle me, and see ; for a spirit hath not flesh and bones, as ye see me have. -- I know whom I have believed, and am persuaded that he is able to keep that which I have committed unto him against that day.  
 
-**Jude 20; John 4:24; Eph 2:18; Matt 26:39; Rom 8:26,27; 1 John 5:14; John 16:13; Eph 6:18**
+**Prov 1:33; Psa 90:1; Psa 91:1; Psa 91:4; Col 3:3; Zech 2:8; Exo 14:13,14; Psa 46:1,2; Matt 14:27; Luke 24:38,39; 2 Tim 1:12**
 
-[Wednesday 22-November, 2023](https://t.me/daily_light)
+[Thursday 23-November, 2023](https://t.me/daily_light)
