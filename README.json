@@ -1,43 +1,38 @@
 {
-  "date_key": "november-24",
-  "date_name": "Friday 24-November, 2023",
+  "date_key": "november-25",
+  "date_name": "Saturday 25-November, 2023",
   "evening": {
     "body": [
-      "He knoweth the way that I take. -- O LORD, thou hast searched me, and known me. Thou knowest my downsitting, and mine uprising; thou understandest my thought afar off. Thou compassest my path, and my lying down, and art acquainted with all my ways. Whither shall I go from thy spirit? or whither shall I flee from thy presence? If I take the wings of the morning, and dwell in the uttermost parts of the sea; even there shall thy hand lead me, and thy right hand shall hold me.",
-      "Elias was a man subject to like passions as we are. -- The fear of man bringeth a snare: but whoso putteth his trust in the Lord shall be safe. -- Though he fall, he shall not be utterly cast down: for the LORD upholdeth him with his hand. -- A just man falleth seven times, and riseth up again.",
-      "Let us not be weary in well doing: for in due season we shall reap, if we faint not. -- The spirit indeed is willing, but the flesh is weak. -- Like as a father pitieth his children, so the LORD pitieth them that fear him."
+      "Manasseh did that which was evil in the sight of the LORD, after the abominations of the heathen, and he reared up altars for Baal. And he built altars for all the host of heaven in the two courts of the house of the LORD. -- And he made his son pass through the fire, and observed times, and used enchantments, and dealt with familiar spirits and wizards: he wrought much wickedness in the sight of the LORD, to provoke him to anger. -- And when he was in affliction, he besought the LORD his God, and humbled himself greatly before the God of his fathers, and prayed unto him: and he was intreated of him, and heard his supplication.",
+      "Come now, and let us reason together, saith the LORD: though your sins be as scarlet, they shall be as white as snow; though they be red like crimson, they shall be as wool. -- The Lord is longsuffering to us ward, not willing that any should perish."
     ],
-    "header": "What doest thou here, Elijah?",
+    "header": "Whosoever shall call on the name of the Lord shall he saved.",
     "name": "Evening",
     "references": [
-      "Job 23:10",
-      "Psa 139:1-3,7,9,10",
-      "Jas 5:17",
-      "Prov 29:25",
-      "Psa 37:24",
-      "Prov 24:16",
-      "Gal 6:9",
-      "Matt 26:41",
-      "Psa 103:13,14"
+      "2 Kgs 21:1,2,3,5,6",
+      "2 Chr 33:12,13",
+      "Isa 1:18",
+      "2 Pet 3:9"
     ]
   },
   "joomla": "https://git.vdm.dev/christian/mod_dailylight",
   "morning": {
     "body": [
-      "Both he that sanctifieth and they who are sanctified are all of one: for which cause he is not ashamed to call them brethren: saying, I will declare thy name unto my brethren; in the midst of the church will I sing praise unto thee. -- In Jesus Christ neither circumcision availeth any thing, nor uncircumcision; but faith which worketh by love. -- Ye are my friends, if ye do whatsoever I command you. Blessed are they that hear the word of God, and keep it.",
-      "Not every one that saith unto me, Lord, Lord, shall enter into the kingdom of heaven; but he that doeth the will of my Father which is in heaven. -- My meat is to do the will of him that sent me. If we say that we have fellowship with him, and walk in darkness, we lie, and do not the truth. -- Whoso keepeth his word, in him verily is the love of God perfected; hereby know we that we are in him."
+      "Ye cannot serve God and Mammon. -- When ye were the servants of sin, ye were free from righteousness. What fruit had ye then in those things whereof ye are now ashamed? for the end of those things is death. But now being made free from sin, and become servants to God, ye have your fruit unto holiness, and the end everlasting life.",
+      "Christ is the end of the law for righteousness to every one that believeth.",
+      "If any man serve me, let him follow me; and where I am, there shall also my servant be: if any man serve me, him will my Father honour. -- Take my yoke upon you, and learn of me: for I am meek and lowly in heart: and ye shall find rest unto your souls. For my yoke is easy, and my burden is light.",
+      "O LORD our God, other lords beside thee have had dominion over us: but by thee only will we make mention of thy name. -- I will run the way of thy commandments, when thou shalt enlarge my heart."
     ],
-    "header": "My mother and my brethren are these which hear the word of God, and do it.",
+    "header": "Being made free from sin, ye became the servants of righteousness.",
     "name": "Morning",
     "references": [
-      "Heb 2:11,12",
-      "Gal 5:6",
-      "John 15:14",
-      "Luke 11:28",
-      "Matt 7:21",
-      "John 4:34",
-      "1 John 1:6",
-      "1 John 2:5"
+      "Matt 6:24",
+      "Rom 6:20-22",
+      "Rom 10:4",
+      "John 12:26",
+      "Matt 11:29,30",
+      "Isa 26:13",
+      "Psa 119:32"
     ]
   },
   "source": "https://github.com/trueChristian/daily-light",
