@@ -1,34 +1,41 @@
 {
-  "date_key": "november-28",
-  "date_name": "Tuesday 28-November, 2023",
+  "date_key": "november-29",
+  "date_name": "Wednesday 29-November, 2023",
   "evening": {
     "body": [
-      "O death, where is thy sting? O grave, where is thy victory? Thanks be to God, which giveth us the victory through our Lord Jesus Christ. -- For which cause we faint not; but though our outward man perish, yet the inward man is renewed day by day.",
-      "We know that if our earthly house of this tabernacle were dissolved, we have a building of God, an house not made with hands, eternal in the heavens. Therefore we are always confident, knowing that, whilst we are at home in the body, we are absent from the Lord. We are willing rather to be absent from the body, and to be present with the Lord.",
-      "Let not your heart be troubled: ye believe in God, believe also in me. In my Father's house are many mansions: if it were not so, I would have told you. I go to prepare a place for you."
+      "What doth it profit, my brethren, though a man say he hath faith, and have not works? can faith save him? Faith, if it hath not works, is dead, being alone.",
+      "By faith Abraham, when he was tried, offered up Isaac: and he that had received the promises offered up his only begotten son. Accounting that God was able to raise him up, even from the dead. -- Was not Abraham our father justified by works, when he had offered Isaac his son upon the altar? Ye see then how that by works a man is justified, and not by faith only.",
+      "Whoso looketh into the perfect law of liberty, and continueth therein, he being not a forgetful hearer, but a doer of the work, this man shall be blessed in his deed.",
+      "By their fruits ye shall know them. Not every one that saith unto me, Lord, Lord, shall enter into the kingdom of heaven; but he that doeth the will of my Father which is in heaven. -- If ye know these things, happy are ye if ye do them."
     ],
-    "header": "As the children are partakers of flesh and blood, he also himself likewise took part of the same; that he might deliver them who through fear of death were all their lifetime subject to bondage.",
+    "header": "Do ye now believe?",
     "name": "Evening",
     "references": [
-      "1 Cor 15:55,57",
-      "2 Cor 4:16",
-      "2 Cor 5:1,6-8",
-      "John 14:1-3"
+      "Jas 2:14,17",
+      "Heb 11:17-19",
+      "Jas 2:21,24",
+      "Jas 1:25",
+      "Matt 7:20,21",
+      "John 13:17"
     ]
   },
   "joomla": "https://git.vdm.dev/christian/mod_dailylight",
   "morning": {
     "body": [
-      "Not every one that saith, ... Lord, Lord, shall enter into the kingdom of heaven; but he that doeth the will of my Father which is in heaven. -- Holiness, without which no man shall see the Lord. -- Add to your faith virtue; and to virtue knowledge; and to knowledge temperance; and to temperance patience; and to patience godliness; and to godliness brotherly kindness; and to brotherly kindness charity. For if these things be in you, and abound, they make you that ye shall neither be barren nor unfruitful in the knowledge of our Lord Jesus Christ. But he that lacketh these things is blind, and cannot see afar off, and hath forgotten that he was purged from his old sins. Wherefore the rather, brethren, give diligence to make your calling and election sure: for if ye do these things, ye shall never fall.",
-      "By grace are ye saved through faith; and that not of yourselves; it is the gift of God: not of works, lest any man should boast."
+      "One thing have I desired of the LORD, that will I seek after; that I may dwell in the house of the LORD all the days of my life, to behold the beauty of the LORD, and to enquire in his temple.",
+      "Blessed are they which do hunger and thirst after righteousness: for they shall be filled. -- He hath filled the hungry with good things; and the rich he hath sent empty away.",
+      "He satisfieth the longing soul, and filleth the hungry soul with goodness. -- I am the bread of life: he that cometh to me shall never hunger; and he that believeth on me shall never thirst.",
+      "How excellent is thy lovingkindness, O God! therefore the children of men put their trust under the shadow of thy wings. They shall be abundantly satisfied with the fatness of thy house; and thou shalt make them drink of the river of thy pleasures. For with thee is the fountain of life: in thy light shall we see light."
     ],
-    "header": "As the body without the spirit is dead, so faith without works is dead also.",
+    "header": "We shall be satisfied with the goodness of thy house.",
     "name": "Morning",
     "references": [
-      "Matt 7:21",
-      "Heb 12:14",
-      "2 Pet 1:5-10",
-      "Eph 2:8,9"
+      "Psa 27:4",
+      "Matt 5:6",
+      "Luke 1:53",
+      "Psa 107:9",
+      "John 6:35",
+      "Psa 36:7-9"
     ]
   },
   "source": "https://github.com/trueChristian/daily-light",
