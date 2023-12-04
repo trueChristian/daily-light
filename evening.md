@@ -1,11 +1,15 @@
 **Evening**
 
-**Our bodies washed with pure water.**
+**I would not live alway.**
  
-Thou shalt ... make a laver of brass, ... and thou shalt put it between the tabernacle of the congregation and the altar, and thou shalt put water therein. For Aaron and his sons shall wash their hands and their feet thereat: when they go into the tabernacle of the congregation, they shall wash with water, that they die not; ... they shall wash their hands and their feet, that they die not. -- Your body is the temple of the Holy Ghost which is in you. -- If any man defile the temple of God, him shall God destroy; for the temple of God is holy, which temple ye are.
+And I said, O that I had wings like a dove, for then would I fly away, and be at rest. I would hasten my escape from the windy storm and tempest.
  
-In my flesh shall I see God: whom I shall see for myself, and mine eyes shall behold, and not another. -- There shall in no wise enter into it any thing that defileth. -- Thou art of purer eyes than to behold evil, and canst not look on iniquity. -- I beseech you, therefore, brethren, by the mercies of God, that ye present your bodies a living sacrifice, holy, acceptable unto God, which is your reasonable service.  
+In this we groan, earnestly desiring to be clothed upon with our house which is from heaven. For we that are in this tabernacle do groan, being burdened: not for that we would be unclothed, but clothed upon, that mortality might be swallowed up of life. -- Having a desire to depart, and to be with Christ; which is far better.
+ 
+Let us run with patience the race that is set before us. Looking unto Jesus the author and finisher of our faith; who, for the joy that was set before him, endured the cross, despising the shame, and is set down at the right hand of the throne of God. For consider him that endured such contradiction of sinners against himself, lest ye be wearied and faint in your minds.
+ 
+Let not your heart be troubled, neither let it be afraid.  
 
-**Heb 10:22; Exo 30:18-21; 1 Cor 6:19; 1 Cor 3:17; Job 19:26,27; Rev 21:27; Hab 1:13; Rom 12:1**
+**Job 7:16; Psa 55:6,8; 2 Cor 5:2,4; Phl 1:23; Heb 12:1-3; John 14:27**
 
-[Sunday 03-December, 2023](https://t.me/daily_light)
+[Monday 04-December, 2023](https://t.me/daily_light)
