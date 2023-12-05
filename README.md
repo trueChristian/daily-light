@@ -1,32 +1,30 @@
 # Morning
 
-**Where shall wisdom be found?**
+**It is good for me that I have been afflicted; that I might learn thy statutes.**
  
-If any of you lack wisdom, let him ask of God, that giveth to all men liberally, and upbraideth not; and it shall be given him. But let him ask in faith, nothing wavering. -- Trust in the LORD with all thine heart; and lean not unto thine own understanding. In all thy ways acknowledge him, and he shall direct thy paths. -- The only wise God. -- Be not wise in thine own eyes.
+Though he were a Son, yet learned he obedience by the things which he suffered. -- We suffer with him, that we may be also glorified together. For I reckon that the sufferings of this present time are not worthy to be compared with the glory which shall be revealed in us.
  
-Ah, Lord God! behold, I cannot speak: for I am a child. But the Lord said unto me, Say not, I am a child: for thou shalt go to all that I shall send thee, and whatsoever I command thee thou shalt speak. Be not afraid of their faces: for I am with thee to deliver thee, saith the LORD.
+He knoweth the way that I take: when he hath tried me, I shall come forth as gold. My foot hath held his steps, his way have I kept, and not declined.
  
-Whatsoever ye shall ask the Father in my name, he will give it you. Hitherto have ye asked nothing in my name: ask, and ye shall receive, that your joy may be full. -- All things whatsoever ye shall ask in prayer, believing, ye shall receive.  
+Thou shalt remember all the way which the LORD thy God led thee these forty years in the wilderness, to humble thee, and to prove thee, to know what was in thine heart, whether thou wouldest keep his commandments, or no. Thou shalt also consider in thine heart, that, as a man chasteneth his son, so the LORD thy God chasteneth thee. Therefore thou shalt keep the commandments of the LORD thy God, to walk in his ways, and to fear him.  
 
-**Job 28:12; Jas 1:5,6; Prov 3:5,6; 1 Tim 1:17; Prov 3:7; Jer 1:6-8; John 16:23,24; Matt 21:22**
+**Psa 119:71; Heb 5:8; Rom 8:17,18; Job 23:10,11; Deut 8:2,5,6**
 
 # Evening
 
-**I would not live alway.**
+**By strength shall no man prevail.**
  
-And I said, O that I had wings like a dove, for then would I fly away, and be at rest. I would hasten my escape from the windy storm and tempest.
+Then said David to the Philistine, Thou comest to me with a sword, and with a spear, and with a shield: but I come to thee in the name of the Lord of hosts, the God of the armies of Israel, whom thou hast defied. And David put his hand in his bag, and took thence a stone, and slang it. So David prevailed over the Philistine with a sling and with a stone.
  
-In this we groan, earnestly desiring to be clothed upon with our house which is from heaven. For we that are in this tabernacle do groan, being burdened: not for that we would be unclothed, but clothed upon, that mortality might be swallowed up of life. -- Having a desire to depart, and to be with Christ; which is far better.
+There is no king saved by the multitude of an host: a mighty man is not delivered by much strength. Behold, the eye of the Lord is upon them that fear him, upon them that hope in his mercy. -- Both riches and honour come of thee, and thou reignest over all; and in thine hand is power and might; and in thine hand it is to make great, and to give strength unto all.
  
-Let us run with patience the race that is set before us. Looking unto Jesus the author and finisher of our faith; who, for the joy that was set before him, endured the cross, despising the shame, and is set down at the right hand of the throne of God. For consider him that endured such contradiction of sinners against himself, lest ye be wearied and faint in your minds.
- 
-Let not your heart be troubled, neither let it be afraid.  
+I glory in my infirmities, that the power of Christ may rest upon me. Therefore I take pleasure in infirmities, in reproaches, in necessities, in persecutions, in distresses for Christ's sake: for when I am weak, then am I strong.  
 
-**Job 7:16; Psa 55:6,8; 2 Cor 5:2,4; Phl 1:23; Heb 12:1-3; John 14:27**
+**1 Sam 2:9; 1 Sam 17:45,49,50; Psa 33:16,18; 1 Chr 29:12; 2 Cor 12:9,10**
 
 ---
 
-[Monday 04-December, 2023](https://t.me/s/daily_light)
+[Tuesday 05-December, 2023](https://t.me/s/daily_light)
 
 > Jonathan Bagster, the son of Samuel Bagster, created the Daily Light for his own family's daily devotion in 1875
 

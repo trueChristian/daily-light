@@ -1,15 +1,13 @@
 **Evening**
 
-**I would not live alway.**
+**By strength shall no man prevail.**
  
-And I said, O that I had wings like a dove, for then would I fly away, and be at rest. I would hasten my escape from the windy storm and tempest.
+Then said David to the Philistine, Thou comest to me with a sword, and with a spear, and with a shield: but I come to thee in the name of the Lord of hosts, the God of the armies of Israel, whom thou hast defied. And David put his hand in his bag, and took thence a stone, and slang it. So David prevailed over the Philistine with a sling and with a stone.
  
-In this we groan, earnestly desiring to be clothed upon with our house which is from heaven. For we that are in this tabernacle do groan, being burdened: not for that we would be unclothed, but clothed upon, that mortality might be swallowed up of life. -- Having a desire to depart, and to be with Christ; which is far better.
+There is no king saved by the multitude of an host: a mighty man is not delivered by much strength. Behold, the eye of the Lord is upon them that fear him, upon them that hope in his mercy. -- Both riches and honour come of thee, and thou reignest over all; and in thine hand is power and might; and in thine hand it is to make great, and to give strength unto all.
  
-Let us run with patience the race that is set before us. Looking unto Jesus the author and finisher of our faith; who, for the joy that was set before him, endured the cross, despising the shame, and is set down at the right hand of the throne of God. For consider him that endured such contradiction of sinners against himself, lest ye be wearied and faint in your minds.
- 
-Let not your heart be troubled, neither let it be afraid.  
+I glory in my infirmities, that the power of Christ may rest upon me. Therefore I take pleasure in infirmities, in reproaches, in necessities, in persecutions, in distresses for Christ's sake: for when I am weak, then am I strong.  
 
-**Job 7:16; Psa 55:6,8; 2 Cor 5:2,4; Phl 1:23; Heb 12:1-3; John 14:27**
+**1 Sam 2:9; 1 Sam 17:45,49,50; Psa 33:16,18; 1 Chr 29:12; 2 Cor 12:9,10**
 
-[Monday 04-December, 2023](https://t.me/daily_light)
+[Tuesday 05-December, 2023](https://t.me/daily_light)
