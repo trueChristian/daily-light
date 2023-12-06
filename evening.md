@@ -1,13 +1,13 @@
 **Evening**
 
-**By strength shall no man prevail.**
+**The spirit indeed is willing, but the flesh is weak.**
  
-Then said David to the Philistine, Thou comest to me with a sword, and with a spear, and with a shield: but I come to thee in the name of the Lord of hosts, the God of the armies of Israel, whom thou hast defied. And David put his hand in his bag, and took thence a stone, and slang it. So David prevailed over the Philistine with a sling and with a stone.
+In the way of thy judgments, O LORD, have we waited for thee; the desire of our soul is to thy name, and to the remembrance of thee. With my soul have I desired thee in the night; yea, with my spirit within me will I seek thee early.
  
-There is no king saved by the multitude of an host: a mighty man is not delivered by much strength. Behold, the eye of the Lord is upon them that fear him, upon them that hope in his mercy. -- Both riches and honour come of thee, and thou reignest over all; and in thine hand is power and might; and in thine hand it is to make great, and to give strength unto all.
+I know that in me, (that is, in my flesh) dwelleth no good thing: for to will is present with me; but how to perform that which is good I find not. For I delight in the law of God after the inward man: but I see another law in my members, warring against the law of my mind, and bringing me into captivity to the law of sin which is in my members. -- The flesh lusteth against the Spirit, and the Spirit against the flesh: and these are contrary the one to the other: so that ye cannot do the things that ye would.
  
-I glory in my infirmities, that the power of Christ may rest upon me. Therefore I take pleasure in infirmities, in reproaches, in necessities, in persecutions, in distresses for Christ's sake: for when I am weak, then am I strong.  
+I can do all things through Christ which strengtheneth me. -- Our sufficiency is of God. -- My grace is sufficient for thee.  
 
-**1 Sam 2:9; 1 Sam 17:45,49,50; Psa 33:16,18; 1 Chr 29:12; 2 Cor 12:9,10**
+**Matt 26:41; Isa 26:8,9; Rom 7:18,22,23; Gal 5:17; Phl 4:13; 2 Cor 3:5; 2 Cor 12:9**
 
-[Tuesday 05-December, 2023](https://t.me/daily_light)
+[Wednesday 06-December, 2023](https://t.me/daily_light)
