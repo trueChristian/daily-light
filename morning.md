@@ -1,11 +1,13 @@
 **Morning**
 
-**The Lord is in the midst of thee.**
+**Be strong in the grace that is in Christ Jesus.**
  
-Fear thou not; for I am with thee: be not dismayed; for I am thy God: I will strengthen thee; yea, I will help thee; yea, I will uphold thee with the right hand of my righteousness. -- Strengthen ye the weak hands, and confirm the feeble knees. Say to them that are of a fearful heart, Be strong, fear not: behold, your God will come with vengeance, even God with a recompence; He will come and save you. -- The LORD thy God in the midst of thee is mighty; he will save, he will rejoice over thee with joy; he will rest in his love, he will joy over thee with singing. -- Wait on the LORD: be of good courage, and he shall strengthen thine heart.
+Strengthened with all might, according to his glorious power. -- As ye have therefore received Christ Jesus the Lord, so walk ye in him: rooted and built up in him, and stablished in the faith, as ye have been taught, abounding therein with thanksgiving. -- Trees of righteousness, the planting of the LORD, that he might be glorified. -- Built upon the foundation of the apostles and prophets, Jesus Christ himself being the chief corner stone; in whom all the building fitly framed together groweth unto a holy temple in the Lord: in whom ye also are builded together for a habitation of God through the Spirit.
  
-I heard a great voice out of heaven, saying, Behold, the tabernacle of God is with men, and he will dwell with them, and they shall be his people, and God himself shall be with them, and be their God. And God shall wipe away all tears from their eyes; and there shall be no more death, neither sorrow, nor crying, neither shall there be any more pain.  
+I commend you to God, and to the word of his grace, which is able to build you up, and to give you an inheritance among all them which are sanctified. -- Being filled with the fruits of righteousness, which are by Jesus Christ, unto the glory and praise of God.
+ 
+Fight the good fight of faith. -- In nothing terrified by your adversaries.  
 
-**Zeph 3:15; Isa 41:10; Isa 35:3,4; Zeph 3:17; Psa 27:14; Rev 21:3,4**
+**2 Tim 21; Col 1:11; Col 2:6,7; Isa 61:3; Eph 2:20,22; Acts 20:32; Phl 1:11; 1 Tim 6:12; Phl 1:28**
 
-[Tuesday 12-December, 2023](https://t.me/daily_light)
+[Wednesday 13-December, 2023](https://t.me/daily_light)
