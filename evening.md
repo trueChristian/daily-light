@@ -1,13 +1,13 @@
 **Evening**
 
-**Son, go work to day in my vineyard.**
+**The deep things of God.**
  
-Thou are no more a servant, but a son; and if a son, then an heir of God through Christ.
+Henceforth I call you not servants; for the servant knoweth not what his lord doeth; but I have called you friends; for all things that I have heard of my Father I have made known unto you. -- It is given unto you to know the mysteries of the kingdom of heaven.
  
-Reckon ye ... yourselves to be dead indeed unto sin, but alive unto God through Jesus Christ our Lord. Let not sin therefore reign in your mortal body, that ye should obey it in the lusts thereof. Neither yield ye your members as instruments of unrighteousness unto sin; but yield yourselves unto God, as those that are alive from the dead, and your members as instruments of righteousness unto God. -- As obedient children, not fashioning yourselves according to the former lusts in your ignorance: but as he which hath called you is holy, so be ye holy in all manner of conversation; because it is written, Be ye holy; for I am holy. -- Sanctified, and meet for the master's use, and prepared unto every good work.
+We have received, not the spirit of the world, but the Spirit which is of God; that we might know the things that are freely given to us of God.
  
-Therefore, my beloved brethren, be ye stedfast, unmoveable, always abounding in the work of the Lord, forasmuch as ye know that your labour is not in vain in the Lord.  
+For this cause I bow my knees unto the Father of our Lord Jesus Christ, of whom the whole family in heaven and earth is named, that he would grant you, according to the riches of his glory, to be strengthened with might by his Spirit in the inner man; that ye, being rooted and grounded in love, may be able to comprehend with all saints what is the breadth, and length, and depth, and height; and to know the love of Christ, which passeth knowledge, that ye might be filled with all the fulness of God.  
 
-**Matt 21:28; Gal 4:7; Rom 6:11-13; 1 Pet 1:14,15; 2 Tim 2:21; 1 Cor 15:58**
+**1 Cor 2:10; John 15:15; Matt 13:11; 1 Cor 2:12; Eph 3:14-19**
 
-[Friday 15-December, 2023](https://t.me/daily_light)
+[Saturday 16-December, 2023](https://t.me/daily_light)

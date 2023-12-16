@@ -1,30 +1,30 @@
 # Morning
 
-**Bear ye one another's burdens, and so fulfil the law of Christ.**
+**Having loved his own which were in the world, he loved them unto the end.**
  
-Look not every man on his own things, but every man also on the things of others. Let this mind be in you, which was also in Christ Jesus: who ... took upon him the form of a servant. -- Even the Son of man came not to be ministered unto, but to minister, and to give his life a ransom for many. -- He died for all, that they which live should not henceforth live unto themselves, but unto him which died for them, and rose again.
+I pray for them: I pray not for the world, but for them which thou hast given me; for they are thine. And all mine are thine, and thine are mine; and I am glorified in them. I pray not that thou shouldest take them out of the world, but that thou shouldest keep them from the evil. They are not of the world, even as I am not of the world.
  
-When Jesus ... saw her weeping, and the Jews also weeping which came with her, he groaned in the spirit, and was troubled. -- Jesus wept. -- Rejoice with them that do rejoice, and weep with them that weep.
+As the Father hath loved me, so have I loved you: continue ye in my love. -- Greater love hath no man than this, that a man lay down his life for his friends. Ye are my friends, if ye do whatsoever I command you. -- A new commandment I give unto you, That ye love one another; as I have loved you, that ye also love one another.
  
-Be ye all of one mind, having compassion one of another, love as brethren, be pitiful, be courteous: not rendering evil for evil or railing for railing: but contrariwise blessing; knowing that ye are thereunto called, that ye should inherit a blessing.  
+He which hath begun a good work in you will perform it until the day of Jesus Christ. -- Christ ... loved the church, and gave himself for it; that he might sanctify and cleanse it with the washing of water by the word.  
 
-**Gal 6:2; Phl 2:4,5,7; Mark 10:45; 2 Cor 5:15; John 11:33; John 11:35; Rom 12:15; 1 Pet 3:8,9**
+**John 13:1; John 17:9,10,15,16; John 15:9; John 15:13,14; John 13:34; Phl 1:6; Eph 5:25,26**
 
 # Evening
 
-**Son, go work to day in my vineyard.**
+**The deep things of God.**
  
-Thou are no more a servant, but a son; and if a son, then an heir of God through Christ.
+Henceforth I call you not servants; for the servant knoweth not what his lord doeth; but I have called you friends; for all things that I have heard of my Father I have made known unto you. -- It is given unto you to know the mysteries of the kingdom of heaven.
  
-Reckon ye ... yourselves to be dead indeed unto sin, but alive unto God through Jesus Christ our Lord. Let not sin therefore reign in your mortal body, that ye should obey it in the lusts thereof. Neither yield ye your members as instruments of unrighteousness unto sin; but yield yourselves unto God, as those that are alive from the dead, and your members as instruments of righteousness unto God. -- As obedient children, not fashioning yourselves according to the former lusts in your ignorance: but as he which hath called you is holy, so be ye holy in all manner of conversation; because it is written, Be ye holy; for I am holy. -- Sanctified, and meet for the master's use, and prepared unto every good work.
+We have received, not the spirit of the world, but the Spirit which is of God; that we might know the things that are freely given to us of God.
  
-Therefore, my beloved brethren, be ye stedfast, unmoveable, always abounding in the work of the Lord, forasmuch as ye know that your labour is not in vain in the Lord.  
+For this cause I bow my knees unto the Father of our Lord Jesus Christ, of whom the whole family in heaven and earth is named, that he would grant you, according to the riches of his glory, to be strengthened with might by his Spirit in the inner man; that ye, being rooted and grounded in love, may be able to comprehend with all saints what is the breadth, and length, and depth, and height; and to know the love of Christ, which passeth knowledge, that ye might be filled with all the fulness of God.  
 
-**Matt 21:28; Gal 4:7; Rom 6:11-13; 1 Pet 1:14,15; 2 Tim 2:21; 1 Cor 15:58**
+**1 Cor 2:10; John 15:15; Matt 13:11; 1 Cor 2:12; Eph 3:14-19**
 
 ---
 
-[Friday 15-December, 2023](https://t.me/s/daily_light)
+[Saturday 16-December, 2023](https://t.me/s/daily_light)
 
 > Jonathan Bagster, the son of Samuel Bagster, created the Daily Light for his own family's daily devotion in 1875
 
