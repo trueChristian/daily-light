@@ -1,40 +1,38 @@
 {
-  "date_key": "december-17",
-  "date_name": "Sunday 17-December, 2023",
+  "date_key": "december-18",
+  "date_name": "Monday 18-December, 2023",
   "evening": {
     "body": [
-      "Be not deceived: evil communications corrupt good manners.",
-      "Know ye not that a little leaven leaveneth the whole lump? Purge out therefore the old leaven. I wrote unto you in an epistle not to company with fornicators. Yet not altogether with the fornicators of this world, or with the covetous, or extortioners, or with idolators; for then must we needs go out of the world. I have written unto you not to keep company, if any man that is called a brother be a fornicator, or covetous, or an idolater, or a railer, or a drunkard, or an extortioner; with such an one no not to eat. -- That ye may be blameless and harmless, the sons of God, without rebuke, in the midst of a crooked and perverse nation, among whom ye shine as lights in the world.",
-      "In a great house there are not only vessels of gold and of silver, but also of wood and of earth; and some to honour, and some to dishonour."
+      "Where the Spirit of the Lord is, there is liberty. -- The law of the Spirit of life in Christ Jesus hath made me free from the law of sin and death. -- If the Son ... shall make you free, ye shall be free indeed.",
+      "Brethren, we are not children of the bondwoman, but of the free. -- Knowing that a man is not justified by the works of the law, but by the faith of Jesus Christ, even we have believed in Jesus Christ, that we might be justified by the faith of Christ, and not by the works of the law: for by the works of the law shall no flesh be justified.",
+      "Whoso looketh into the perfect law of liberty, and continueth therein, he being not a forgetful hearer, but a doer of the work, this man shall be blessed in his deed. -- Stand fast therefore in the liberty wherewith Christ hath made us free, and be not entangled again with the yoke of bondage."
     ],
-    "header": "Have no fellowship with the unfruitful works of darkness, but rather reprove them.",
+    "header": "Ye shall know the truth, and the truth shall make you free.",
     "name": "Evening",
     "references": [
-      "1 Cor 15:33",
-      "1 Cor 5:6,7,9-11",
-      "Phl 2:15",
-      "2 Tim 2:20"
+      "2 Cor 3:17",
+      "Rom 8:2",
+      "John 8:36",
+      "Gal 4:31",
+      "Gal 2:16",
+      "Jas 1:25",
+      "Gal 5:1"
     ]
   },
   "joomla": "https://git.vdm.dev/christian/mod_dailylight",
   "morning": {
     "body": [
-      "It is the Spirit that quickeneth. -- The Spirit also helpeth our infirmities: for we know not what we should pray for as we ought: but the Spirit itself maketh intercession for us with groanings which cannot be uttered. And he that searcheth the hearts knoweth what is the mind of the Spirit, because he maketh intercession for the saints according to the will of God. -- Praying always with all prayer and supplication in the Spirit, and watching thereunto with all perseverance.",
-      "I will never forget thy precepts: for with them thou hast quickened me. -- The words that I speak unto you, they are spirit, and they are life. -- The letter killeth, but the spirit giveth life. -- If ye abide in me, and my words abide in you, ye shall ask what ye will, and it shall be done unto you. -- This is the confidence that we have in him, that, if we ask any thing according to his will, he heareth us.",
-      "No man can say that Jesus is the Lord, but by the Holy Ghost."
+      "Be careful for nothing; but in every thing by prayer and supplication with thanksgiving let your requests be made known unto God. And the peace of God, which passeth all understanding, shall keep your hearts and minds through Christ Jesus. -- Ye have not received the spirit of bondage again to fear; but ye have received the Spirit of adoption, whereby we cry, Abba, Father.",
+      "I said not unto the seed of Jacob, Seek ye me in vain. -- Having therefore, ... boldness to enter into the holiest by the blood of Jesus, by a new and living way, which he hath consecrated for us, through the veil, that is to say, his flesh; and having an high priest over the house of God; let us draw near with a true heart in full assurance of faith, having our hearts sprinkled from an evil conscience, and our bodies washed with pure water. -- We may boldly say, The Lord is my helper, and I will not fear what man shall do unto me."
     ],
-    "header": "Quicken us, and we will call upon thy name.",
+    "header": "Let us come boldly unto the throne of grace that we may obtain mercy, and find grace to help in time of need.",
     "name": "Morning",
     "references": [
-      "John 6:63",
-      "Rom 8:26,27",
-      "Eph 6:18",
-      "Psa 119:93",
-      "John 6:63",
-      "2 Cor 3:6",
-      "John 15:7",
-      "1 John 5:14",
-      "1 Cor 12:3"
+      "Phl 4:6,7",
+      "Rom 8:15",
+      "Isa 45:19",
+      "Heb 10:19,22",
+      "Heb 13:6"
     ]
   },
   "source": "https://github.com/trueChristian/daily-light",
