@@ -1,38 +1,41 @@
 {
-  "date_key": "december-18",
-  "date_name": "Monday 18-December, 2023",
+  "date_key": "december-19",
+  "date_name": "Tuesday 19-December, 2023",
   "evening": {
     "body": [
-      "Where the Spirit of the Lord is, there is liberty. -- The law of the Spirit of life in Christ Jesus hath made me free from the law of sin and death. -- If the Son ... shall make you free, ye shall be free indeed.",
-      "Brethren, we are not children of the bondwoman, but of the free. -- Knowing that a man is not justified by the works of the law, but by the faith of Jesus Christ, even we have believed in Jesus Christ, that we might be justified by the faith of Christ, and not by the works of the law: for by the works of the law shall no flesh be justified.",
-      "Whoso looketh into the perfect law of liberty, and continueth therein, he being not a forgetful hearer, but a doer of the work, this man shall be blessed in his deed. -- Stand fast therefore in the liberty wherewith Christ hath made us free, and be not entangled again with the yoke of bondage."
+      "I have compassion on the multitude, because they continue with me now three days, and have nothing to eat: ... I will not send them away fasting, lest they faint in the way. -- We have not an high priest which cannot be touched with the feeling of our infirmities.",
+      "They brought young children to him, and he took them up in his arms, put his hands upon them, and blessed them.",
+      "I have gone astray like a lost sheep; seek thy servant. -- The Son of man is come to seek and to save that which was lost. -- Ye were as sheep going astray; but are now returned unto the Shepherd and Bishop of your souls.",
+      "Fear not, little flock; for it is your Father's good pleasure to give you the kingdom. -- I will feed my flock, and I will cause them to lie down, saith the Lord GOD."
     ],
-    "header": "Ye shall know the truth, and the truth shall make you free.",
+    "header": "He shall feed his flock like a shepherd: he shall gather the lambs with his arm, and carry them in his bosom, and shall gently lead those that are with young.",
     "name": "Evening",
     "references": [
-      "2 Cor 3:17",
-      "Rom 8:2",
-      "John 8:36",
-      "Gal 4:31",
-      "Gal 2:16",
-      "Jas 1:25",
-      "Gal 5:1"
+      "Matt 15:32",
+      "Heb 4:15",
+      "Mark 10:13,16",
+      "Psa 119:176",
+      "Luke 19:10",
+      "1 Pet 2:25",
+      "Luke 12:32",
+      "Ezek 34:15"
     ]
   },
   "joomla": "https://git.vdm.dev/christian/mod_dailylight",
   "morning": {
     "body": [
-      "Be careful for nothing; but in every thing by prayer and supplication with thanksgiving let your requests be made known unto God. And the peace of God, which passeth all understanding, shall keep your hearts and minds through Christ Jesus. -- Ye have not received the spirit of bondage again to fear; but ye have received the Spirit of adoption, whereby we cry, Abba, Father.",
-      "I said not unto the seed of Jacob, Seek ye me in vain. -- Having therefore, ... boldness to enter into the holiest by the blood of Jesus, by a new and living way, which he hath consecrated for us, through the veil, that is to say, his flesh; and having an high priest over the house of God; let us draw near with a true heart in full assurance of faith, having our hearts sprinkled from an evil conscience, and our bodies washed with pure water. -- We may boldly say, The Lord is my helper, and I will not fear what man shall do unto me."
+      "Who is among you that feareth the LORD, that obeyeth the voice of his servant, that walketh in darkness, and hath no light? let him trust in the name of the LORD, and stay upon his God. -- Though he fall, he shall not be utterly cast down: for the LORD upholdeth him with his hand. -- The commandment is a lamp, and the law is light.",
+      "Rejoice not against me, O mine enemy: when I fall, I shall arise; when I sit in darkness, the LORD shall be a light unto me. I will bear the indignation of the LORD, because I have sinned against him, until he plead my cause, and execute judgment for me: he will bring me forth to the light, and I shall behold his righteousness.",
+      "The light of the body is the eye: if therefore thine eye be single, thy whole body shall be full of light. But if thine eye be evil, thy whole body shall be full of darkness. If therefore the light that is in thee be darkness, how great is that darkness!"
     ],
-    "header": "Let us come boldly unto the throne of grace that we may obtain mercy, and find grace to help in time of need.",
+    "header": "Unto the upright there ariseth light in the darkness.",
     "name": "Morning",
     "references": [
-      "Phl 4:6,7",
-      "Rom 8:15",
-      "Isa 45:19",
-      "Heb 10:19,22",
-      "Heb 13:6"
+      "Isa 50:10",
+      "Psa 37:24",
+      "Prov 6:23",
+      "Mic 7:8,9",
+      "Matt 6:22,23"
     ]
   },
   "source": "https://github.com/trueChristian/daily-light",
