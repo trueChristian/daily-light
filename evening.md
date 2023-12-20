@@ -1,15 +1,17 @@
 **Evening**
 
-**He shall feed his flock like a shepherd: he shall gather the lambs with his arm, and carry them in his bosom, and shall gently lead those that are with young.**
+**If the Lord would make windows in heaven might this thing be?**
  
-I have compassion on the multitude, because they continue with me now three days, and have nothing to eat: ... I will not send them away fasting, lest they faint in the way. -- We have not an high priest which cannot be touched with the feeling of our infirmities.
+Have faith in God. -- Without faith it is impossible to please God. -- With God all things are possible.
  
-They brought young children to him, and he took them up in his arms, put his hands upon them, and blessed them.
+Is my hand shortened at all, that it cannot redeem? or have I no power to deliver?
  
-I have gone astray like a lost sheep; seek thy servant. -- The Son of man is come to seek and to save that which was lost. -- Ye were as sheep going astray; but are now returned unto the Shepherd and Bishop of your souls.
+My thoughts are not your thoughts, neither are your ways my ways, saith the LORD. For as the heavens are higher than the earth, so are my ways higher than your ways, and my thoughts than your thoughts. -- Prove me now herewith, saith the LORD of hosts, if I will not open you the windows of heaven, and pour you out a blessing, that there shall not be room enough to receive it.
  
-Fear not, little flock; for it is your Father's good pleasure to give you the kingdom. -- I will feed my flock, and I will cause them to lie down, saith the Lord GOD.  
+Behold, the LORD's hand is not shortened, that it cannot save; neither his ear heavy, that it cannot hear. -- LORD, it is nothing with thee to help, whether with many or with them that have no power.
+ 
+We should not trust in ourselves, but in God which raiseth the dead.  
 
-**Isa 40:11; Matt 15:32; Heb 4:15; Mark 10:13,16; Psa 119:176; Luke 19:10; 1 Pet 2:25; Luke 12:32; Ezek 34:15**
+**2 Kgs 7:2; Mark 11:22; Heb 11:6; Matt 19:26; Isa 50:2; Isa 55:8,9; Mal 3:10; Isa 59:1; 2 Chr 14:11; 2 Cor 1:9**
 
-[Tuesday 19-December, 2023](https://t.me/daily_light)
+[Wednesday 20-December, 2023](https://t.me/daily_light)
