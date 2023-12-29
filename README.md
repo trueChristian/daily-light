@@ -1,38 +1,30 @@
 # Morning
 
-**Thy sins be forgiven thee.**
+**Understanding what the will of the Lord is.**
  
-I will forgive their iniquity, and I will remember their sin no more. -- Who can forgive sins but God only?
+This is the will of God, even your sanctification. -- Acquaint now thyself with him, and be at peace: thereby good shall come unto thee. -- This is life eternal, that they might know thee the only true God, and Jesus Christ, whom thou hast sent. -- We know that the Son of God is come, and hath given us an understanding, that we may know him that is true, and we are in him that is true, even in his Son Jesus Christ. This is the true God, and eternal life.
  
-I, even I, am he that blotteth out thy transgressions for mine own sake, and will not remember thy sins. -- Blessed is he whose transgression is forgiven, whose sin is covered. Blessed is the man unto whom the LORD imputeth not iniquity. -- Who is a God like unto thee, that pardoneth iniquity?
- 
-God for Christ's sake hath forgiven you. -- The blood of Jesus Christ his Son cleanseth us from all sin. If we say that we have no sin, we deceive ourselves, and the truth is not in us. If we confess our sins, he is faithful and just to forgive us our sins, and to cleanse us from all unrighteousness.
- 
-As far as the east is from the west, so far hath he removed our transgressions from us. -- Sin shall not have dominion over you: for ye are not under the law, but under grace. Being then made free from sin, ye became the servants of righteousness.  
+We ... do not cease to pray for you, and to desire that ye might be filled with the knowledge of his will in all wisdom and spiritual understanding. -- The God of our Lord Jesus Christ, the Father of glory, ... give unto you the spirit of wisdom and revelation in the knowledge of him: the eyes of your understanding being enlightened; that ye may know what is the hope of his calling, and what the riches of the glory of his inheritance in the saints, and what is the exceeding greatness of his power to us ward who believe.  
 
-**Mark 2:5; Jer 31:34; Mark 27; Isa 43:25; Psa 32:1,2; Mic 7:18; Eph 4:32; 1 John 1:7-9; Psa 103:12; Rom 6:14,18**
+**Eph 5:17; 1 Thes 4:3; Job 22:21; John 17:3; 1 John 5:20; Col 1:9; Eph 1:17-19**
 
 # Evening
 
-**We would see Jesus.**
+**Draw nigh to God, and he will draw nigh to you.**
  
-O LORD, we have waited for thee; the desire of our soul is to thy name, and to the remembrance of thee.
+Enoch walked with God. -- Can two walk together, except they be agreed? -- It is good for me to draw near to God.
  
-The LORD is nigh unto all them that call upon him, to all that call upon him in truth.
+The LORD is with you, while ye be with him: and if ye seek him, he will be found of you: but if ye forsake him, he will forsake you. When they in their trouble did turn unto the LORD God of Israel, and sought him, he was found of them.
  
-Where two or three are gathered together in my name, there am I in the midst of them. -- I will not leave you comfortless: I will come to you. -- Lo, I am with you alway, even unto the end of the world.
+For I know the thoughts that I think toward you, saith the LORD, thoughts of peace, and not of evil, to give you an expected end. Then shall ye call upon me, and ye shall go and pray unto me, and I will hearken unto you. And ye shall seek me, and find me, when ye shall search for me with all your heart.
  
-Let us run with patience the race that is set before us, looking unto Jesus the author and finisher of our faith.
- 
-Now we see through a glass, darkly; but then face to face. -- Having a desire to depart, and to be with Christ; which is far better.
- 
-Beloved, now are we the sons of God; and it doth not yet appear what we shall be: but we know that, when he shall appear, we shall be like him; for we shall see him as he is. And every man that hath this hope in him purifieth himself, even as he is pure.  
+Having therefore, brethren, boldness to enter into the holiest by the blood of Jesus, by a new and living way, ... and having an high priest over the house of God; let us draw near with a true heart in full assurance of faith.  
 
-**John 12:21; Isa 26:8; Psa 145:18; Matt 18:20; John 14:18; Matt 28:20; Heb 12:1,2; 1 Cor 13:12; Phl 1:23; 1 John 3:2,3**
+**James 4:8; Gen 5:24; Amos 3:3; Psa 73:28; 2 Chr 15:2,4; Jer 29:11-13; Heb 10:19-22**
 
 ---
 
-[Thursday 28-December, 2023](https://t.me/s/daily_light)
+[Friday 29-December, 2023](https://t.me/s/daily_light)
 
 > Jonathan Bagster, the son of Samuel Bagster, created the Daily Light for his own family's daily devotion in 1875
 
