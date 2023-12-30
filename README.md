@@ -1,30 +1,30 @@
 # Morning
 
-**Understanding what the will of the Lord is.**
+**Blameless in the day of our Lord Jesus Christ.**
  
-This is the will of God, even your sanctification. -- Acquaint now thyself with him, and be at peace: thereby good shall come unto thee. -- This is life eternal, that they might know thee the only true God, and Jesus Christ, whom thou hast sent. -- We know that the Son of God is come, and hath given us an understanding, that we may know him that is true, and we are in him that is true, even in his Son Jesus Christ. This is the true God, and eternal life.
+You, that were sometime alienated and enemies in your mind by wicked works, yet now hath he reconciled in the body of his flesh through death, to present you holy and unblameable and unreproveable in his sight: if ye continue in the faith grounded and settled, and be not moved away from the hope of the gospel. -- That ye may be blameless and harmless, the sons of God, without rebuke, in the midst of a crooked and perverse nation, among whom ye shine as lights in the world.
  
-We ... do not cease to pray for you, and to desire that ye might be filled with the knowledge of his will in all wisdom and spiritual understanding. -- The God of our Lord Jesus Christ, the Father of glory, ... give unto you the spirit of wisdom and revelation in the knowledge of him: the eyes of your understanding being enlightened; that ye may know what is the hope of his calling, and what the riches of the glory of his inheritance in the saints, and what is the exceeding greatness of his power to us ward who believe.  
+Wherefore, beloved, seeing that ye look for such things, be diligent that ye may be found of him in peace, without spot, and blameless. -- Sincere and without offence till the day of Christ.
+ 
+Now unto him that is able to keep you from falling, and to present you faultless before the presence of his glory with exceeding joy, to the only wise God our Saviour, be glory and majesty, dominion and power, both now and ever.  
 
-**Eph 5:17; 1 Thes 4:3; Job 22:21; John 17:3; 1 John 5:20; Col 1:9; Eph 1:17-19**
+**1 Cor 1:8; Col 1:21-23; Phl 2:15; 2 Pet 3:14; Phl 1:10; Jude 24,25**
 
 # Evening
 
-**Draw nigh to God, and he will draw nigh to you.**
+**He will keep the feet of his saints.**
  
-Enoch walked with God. -- Can two walk together, except they be agreed? -- It is good for me to draw near to God.
+If we say that we have fellowship with him, and walk in darkness, we lie, and do not the truth: but if we walk in the light, as he is in the light, we have fellowship one with another, and the blood of Jesus Christ his Son cleanseth us from all sin. -- He that is washed needeth not save to wash his feet, but is clean every whit.
  
-The LORD is with you, while ye be with him: and if ye seek him, he will be found of you: but if ye forsake him, he will forsake you. When they in their trouble did turn unto the LORD God of Israel, and sought him, he was found of them.
+I have taught thee in the way of wisdom; I have led thee in right paths. When thou goest, thy steps shall not be straitened; and when thou runnest, thou shalt not stumble. Enter not into the path of the wicked, and go not in the way of evil men. Avoid it, pass not by it, turn from it, and pass away. Let thine eyes look right on, and let thine eyelids look straight before thee. Ponder the path of thy feet, and let all thy ways be established. Turn not to the right hand nor to the left: remove thy foot from evil.
  
-For I know the thoughts that I think toward you, saith the LORD, thoughts of peace, and not of evil, to give you an expected end. Then shall ye call upon me, and ye shall go and pray unto me, and I will hearken unto you. And ye shall seek me, and find me, when ye shall search for me with all your heart.
- 
-Having therefore, brethren, boldness to enter into the holiest by the blood of Jesus, by a new and living way, ... and having an high priest over the house of God; let us draw near with a true heart in full assurance of faith.  
+The Lord shall deliver me from every evil work, and will preserve me unto his heavenly kingdom: to whom be glory for ever and ever. Amen.  
 
-**James 4:8; Gen 5:24; Amos 3:3; Psa 73:28; 2 Chr 15:2,4; Jer 29:11-13; Heb 10:19-22**
+**1 Sam 2:9; 1 John 1:6,7; John 13:10; Prov 4:11,12,14,15,25-27; 2 Tim 4:18**
 
 ---
 
-[Friday 29-December, 2023](https://t.me/s/daily_light)
+[Saturday 30-December, 2023](https://t.me/s/daily_light)
 
 > Jonathan Bagster, the son of Samuel Bagster, created the Daily Light for his own family's daily devotion in 1875
 
