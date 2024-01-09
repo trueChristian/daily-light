@@ -1,13 +1,13 @@
 **Morning**
 
-**They that know thy name will put their trust in thee: for thou, Lord, hast not forsaken them that seek thee.**
+**Thou hast given a banner to them that fear thee, that it may be displayed because of the truth.**
  
-The name of the Lord is a strong tower: the righteous runneth into it, and is safe. -- I will trust, and not be afraid: for the Lord JEHOVAH is my strength and my song; he also is become my salvation.
+Jehovah Nissi (The Lord my banner). -- When the enemy shall come in like a flood, the Spirit of the Lord shall lift up a standard against him.
  
-I have been young, and now am old; yet have I not seen the righteous forsaken, nor his seed begging bread. -- For the Lord loveth judgment, and forsaketh not his saints, they are preserved for ever: but the seed of the wicked shall be cut off. -- The Lord will not forsake his people for his great name's sake: because it hath pleased the Lord to make you his people. -- Who delivered us from so great a death, and doth deliver: in whom we trust that he will yet deliver us.
+We will rejoice in thy salvation, and in the name of our God we will set up our banners. -- The Lord hath brought forth our righteousness: come, and let us declare in Zion the work of the Lord our God. -- We are more than conquerors through him that loved us. -- Thanks be to God, which giveth us the victory through our Lord Jesus Christ. -- The captain of our salvation.
  
-Be content with such things as ye have: for he hath said, I will never leave thee, nor forsake thee. So that we may boldly say, The Lord is my helper, I will not fear what man shall do unto me.  
+My brethren, be strong in the Lord, and in the power of his might. -- Valiant for the truth. -- Fight the Lord's battles. -- Be strong, all ye people of the land, saith the Lord, and work: fear ye not. -- Lift up your eyes, and look on the fields; for they are white already to harvest. -- Yet a little while, and he that shall come will come, and will not tarry.  
 
-**Psa 9:10; Prov 18:10; Isa 12:2; Psa 37:25; Psa 37:28; 1 Sam 12:22; 2 Cor 1:10; Heb 13:5,6**
+**Psa 60:4; Exo 17:15 ; Isa 59:19; Psa 20:5; Jer 51:10; Rom 8:37; 1 Cor 15:57; Heb 2:10; Eph 6:10; Jer 9:3; 1 Sam 18:17; Hag 2:4,5; John 4:35; Heb 10:37**
 
-[Monday 08-January, 2024](https://t.me/daily_light)
+[Tuesday 09-January, 2024](https://t.me/daily_light)
