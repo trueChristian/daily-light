@@ -1,13 +1,13 @@
 **Morning**
 
-**Thou hast given a banner to them that fear thee, that it may be displayed because of the truth.**
+**I pray God your whole spirit and soul and body be preserved blameless unto the coming of our Lord Jesus Christ.**
  
-Jehovah Nissi (The Lord my banner). -- When the enemy shall come in like a flood, the Spirit of the Lord shall lift up a standard against him.
+Christ loved the church, and gave himself for it; that he might present it to himself a glorious church, not having spot, or wrinkle, or any such thing; but that it should be holy and without blemish. -- Whom we preach, warning every man, and teaching every man in all wisdom; that we may present every man perfect in Christ Jesus.
  
-We will rejoice in thy salvation, and in the name of our God we will set up our banners. -- The Lord hath brought forth our righteousness: come, and let us declare in Zion the work of the Lord our God. -- We are more than conquerors through him that loved us. -- Thanks be to God, which giveth us the victory through our Lord Jesus Christ. -- The captain of our salvation.
+The peace of God ... passeth all understanding. -- Let the peace of God rule in your hearts, to the which also ye are called in one body.
  
-My brethren, be strong in the Lord, and in the power of his might. -- Valiant for the truth. -- Fight the Lord's battles. -- Be strong, all ye people of the land, saith the Lord, and work: fear ye not. -- Lift up your eyes, and look on the fields; for they are white already to harvest. -- Yet a little while, and he that shall come will come, and will not tarry.  
+Our Lord Jesus Christ himself and God, even our Father, which hath loved us, and hath given us everlasting consolation and good hope through grace, comfort your hearts, and stablish you in every good word and work. -- Who shall also confirm you unto the end, that ye may be blameless in the day of our Lord Jesus Christ.  
 
-**Psa 60:4; Exo 17:15 ; Isa 59:19; Psa 20:5; Jer 51:10; Rom 8:37; 1 Cor 15:57; Heb 2:10; Eph 6:10; Jer 9:3; 1 Sam 18:17; Hag 2:4,5; John 4:35; Heb 10:37**
+**1 Thes 5:23; Eph 5:25,27; Col 1:28; Phl 4:7; Col 3:15; 2 Thes 2:16,17; 1 Cor 1:8**
 
-[Tuesday 09-January, 2024](https://t.me/daily_light)
+[Wednesday 10-January, 2024](https://t.me/daily_light)
