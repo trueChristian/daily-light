@@ -1,34 +1,32 @@
 # Morning
 
-**My Father is greater than I.**
+**My soul cleaveth unto the dust: quicken thou me according to thy word.**
  
-When ye pray, say, Our Father which art in heaven. -- My Father, and your Father; ... my God and your God. As the Father gave me commandment, even so I do. -- The words that I speak unto you I speak not of myself: but the Father that dwelleth in me, he doeth the works.
+If ye ... be risen with Christ, seek those things which are above, where Christ sitteth on the right hand of God. Set your affection on things above, not on things on the earth. For your life is hid with Christ in God. -- Our conversation is in heaven; from whence also we look for the Saviour, the Lord Jesus Christ: who shall change our vile body, that it may be fashioned like unto his glorious body, according to the working whereby he is able even to subdue all things unto himself.
  
-The Father loveth the Son, and hath given all things into his hand. -- Thou hast given him power over all flesh, that he should give eternal life to as many as thou hast given him.
- 
-Lord, shew us the Father, and it sufficeth us. Jesus saith unto him, Have I been so long time with you, and yet hast thou not known me, Philip? he that hath seen me hath seen the Father; and how sayest thou then, Shew us the Father? Believest thou not that I am in the Father, and the Father in me? -- I and my Father are one. -- As the Father hath loved me, so have I loved you: continue ye in my love. If ye keep my commandments, ye shall abide in my love; even as I have kept my Father's cornmandments, and abide in his love.  
+The flesh lusteth against the Spirit, and the Spirit against the flesh; and these are contrary the one to the other: so that ye cannot do the things that ye would. -- Brethren, we are debtors, not to the flesh, to live after the flesh. For if ye live after the flesh, ye shall die: but if ye through the Spirit do mortify the deeds of the body, ye shall live. -- Dearly beloved, I beseech you as strangers and pilgrims, abstain from fleshly lusts, which war against the soul.  
 
-**John 14:28; Luke 11:2; John 20:17; John 14:31; John 14:10; John 3:35; John 17:2; John 14:8; -john 10:30 ; John 15:9,10**
+**Psa 119:25; Col 3:1; Phl 3:20,21; Gal 5:17; Rom 8:12,13; 1 Pet 2:11**
 
 # Evening
 
-**[The woman's seed] shall bruise thy head, and thou shalt bruise his heel.**
+**The measure of faith.**
  
-His visage was so marred more than any man, and his form more than the sons of men. -- He was wounded for our transgressions, he was bruised for our iniquities: the chastisement of our peace was upon him; and with his stripes we are healed.
+Him that is weak in the faith. -- Strong in faith, giving glory to God.
  
-This is your hour, and the power of darkness. -- Thou couldest have no power at all against me, except it were given thee from above.
+O thou of little faith, wherefore didst thou doubt? -- Great is thy faith: be it unto thee even as thou wilt.
  
-The Son of God was manifested, that he might destroy the works of the devil. -- He cast out many devils; and suffered not the devils to speak, because they knew him.
+Believe ye that I am able to do this? They said unto him, Yea, Lord ... According to your faith be it unto you.
  
-All power is given unto me in heaven and in earth. -- In my name shall they cast out devils.
+Lord, increase our faith. -- Building up yourselves on your most holy faith. -- Rooted and built up in him, and established in the faith. -- He which stablisheth us with you in Christ, ... is God. -- The God of all grace ... after that ye have suffered a while, make you perfect, stablish, strengthen, settle you.
  
-The God of peace shall bruise Satan under your feet shortly.  
+We ... that are strong ought to bear the infirmities of the weak, and not to please ourselves. -- Let us not ... judge one another ... but judge this rather, that no man put a stumblingblock or an occasion to fall in his brother’s way.  
 
-**Gen 3:15; Isa; 52:14; Isa 53:5; Luke 22:5; John 19:11; 1 John 3:8; Mark 1:34; Matt 28:18; Mark 16:17; Rom 16:20**
+**Rom 12:3; Rom 14:1; Rom 4:20; Matt 14:31; Matt 15:28; Matt 9:28,29; Luke 17:5; Jude 20; Col 2:7; 2 Cor 1:21; 1 Pet 5:10; Rom 15:1; Rom 14:13**
 
 ---
 
-[Sunday 14-January, 2024](https://t.me/s/daily_light)
+[Monday 15-January, 2024](https://t.me/s/daily_light)
 
 > Jonathan Bagster, the son of Samuel Bagster, created the Daily Light for his own family's daily devotion in 1875
 
