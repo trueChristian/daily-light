@@ -1,17 +1,13 @@
 **Evening**
 
-**The measure of faith.**
+**Write the  things which thou hast seen, and the things which are, and the things which shall be hereafter.**
  
-Him that is weak in the faith. -- Strong in faith, giving glory to God.
+Holy men of God spake as they were moved by the Holy Ghost. -- That which we have seen and heard declare we unto you, that ye also may have fellowship with us: and truly our fellowship is with the Father, and with his Son Jesus Christ.
  
-O thou of little faith, wherefore didst thou doubt? -- Great is thy faith: be it unto thee even as thou wilt.
+Behold my hands and my feet, that it is I myself: handle me, and see; for a spirit hath not flesh and bones, as ye see me have. And when he had thus spoken, he shewed them his hands and his feet. -- He that saw it bare record, and his record is true: and he knoweth that he saith true, that ye might believe.
  
-Believe ye that I am able to do this? They said unto him, Yea, Lord ... According to your faith be it unto you.
- 
-Lord, increase our faith. -- Building up yourselves on your most holy faith. -- Rooted and built up in him, and established in the faith. -- He which stablisheth us with you in Christ, ... is God. -- The God of all grace ... after that ye have suffered a while, make you perfect, stablish, strengthen, settle you.
- 
-We ... that are strong ought to bear the infirmities of the weak, and not to please ourselves. -- Let us not ... judge one another ... but judge this rather, that no man put a stumblingblock or an occasion to fall in his brother’s way.  
+We have not followed cunningly devised fables, when we made known unto you the power and coming of our Lord Jesus Christ, but were eyewitnesses of his majesty. -- That your faith should not stand in the wisdom of men, but in the power of God.  
 
-**Rom 12:3; Rom 14:1; Rom 4:20; Matt 14:31; Matt 15:28; Matt 9:28,29; Luke 17:5; Jude 20; Col 2:7; 2 Cor 1:21; 1 Pet 5:10; Rom 15:1; Rom 14:13**
+**Rev 1:19; 2 Pet 1:21; 1 John 1:3; Luke 24:39,40; John 19:35; 2 Pet 1:16; 1 Cor 2:5**
 
-[Monday 15-January, 2024](https://t.me/daily_light)
+[Tuesday 16-January, 2024](https://t.me/daily_light)

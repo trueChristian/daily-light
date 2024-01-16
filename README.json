@@ -1,45 +1,39 @@
 {
-  "date_key": "january-15",
-  "date_name": "Monday 15-January, 2024",
+  "date_key": "january-16",
+  "date_name": "Tuesday 16-January, 2024",
   "evening": {
     "body": [
-      "Him that is weak in the faith. -- Strong in faith, giving glory to God.",
-      "O thou of little faith, wherefore didst thou doubt? -- Great is thy faith: be it unto thee even as thou wilt.",
-      "Believe ye that I am able to do this? They said unto him, Yea, Lord ... According to your faith be it unto you.",
-      "Lord, increase our faith. -- Building up yourselves on your most holy faith. -- Rooted and built up in him, and established in the faith. -- He which stablisheth us with you in Christ, ... is God. -- The God of all grace ... after that ye have suffered a while, make you perfect, stablish, strengthen, settle you.",
-      "We ... that are strong ought to bear the infirmities of the weak, and not to please ourselves. -- Let us not ... judge one another ... but judge this rather, that no man put a stumblingblock or an occasion to fall in his brother’s way."
+      "Holy men of God spake as they were moved by the Holy Ghost. -- That which we have seen and heard declare we unto you, that ye also may have fellowship with us: and truly our fellowship is with the Father, and with his Son Jesus Christ.",
+      "Behold my hands and my feet, that it is I myself: handle me, and see; for a spirit hath not flesh and bones, as ye see me have. And when he had thus spoken, he shewed them his hands and his feet. -- He that saw it bare record, and his record is true: and he knoweth that he saith true, that ye might believe.",
+      "We have not followed cunningly devised fables, when we made known unto you the power and coming of our Lord Jesus Christ, but were eyewitnesses of his majesty. -- That your faith should not stand in the wisdom of men, but in the power of God."
     ],
-    "header": "The measure of faith.",
+    "header": "Write the  things which thou hast seen, and the things which are, and the things which shall be hereafter.",
     "name": "Evening",
     "references": [
-      "Rom 14:1",
-      "Rom 4:20",
-      "Matt 14:31",
-      "Matt 15:28",
-      "Matt 9:28,29",
-      "Luke 17:5",
-      "Jude 20",
-      "Col 2:7",
-      "2 Cor 1:21",
-      "1 Pet 5:10",
-      "Rom 15:1",
-      "Rom 14:13"
+      "2 Pet 1:21",
+      "1 John 1:3",
+      "Luke 24:39,40",
+      "John 19:35",
+      "2 Pet 1:16",
+      "1 Cor 2:5"
     ]
   },
   "joomla": "https://git.vdm.dev/christian/mod_dailylight",
   "morning": {
     "body": [
-      "If ye ... be risen with Christ, seek those things which are above, where Christ sitteth on the right hand of God. Set your affection on things above, not on things on the earth. For your life is hid with Christ in God. -- Our conversation is in heaven; from whence also we look for the Saviour, the Lord Jesus Christ: who shall change our vile body, that it may be fashioned like unto his glorious body, according to the working whereby he is able even to subdue all things unto himself.",
-      "The flesh lusteth against the Spirit, and the Spirit against the flesh; and these are contrary the one to the other: so that ye cannot do the things that ye would. -- Brethren, we are debtors, not to the flesh, to live after the flesh. For if ye live after the flesh, ye shall die: but if ye through the Spirit do mortify the deeds of the body, ye shall live. -- Dearly beloved, I beseech you as strangers and pilgrims, abstain from fleshly lusts, which war against the soul."
+      "The Father loveth the Son, and hath given all things into his hand. -- God hath highly exalted him, and given him a name which is above every name: that at the name of Jesus every knee should bow, of things in heaven, and things in earth, and things under the earth; and that every tongue should confess that Jesus Christ is Lord, to the glory of God the Father. -- Far above all principality, and power, and might, and dominion, and every name that is named, not only in this world, but also in that which is to come. -- By him were all things created, that are in heaven, and that are in earth, visible and invisible, whether they be thrones, or dominions, or principalities, or powers: all things were created by him, and for him.",
+      "Christ both died, and rose, and revived, that he might be Lord both of the dead and living. -- And ye are complete in him, which is the head of all principality and power. -- Of his fulness have all we received."
     ],
-    "header": "My soul cleaveth unto the dust: quicken thou me according to thy word.",
+    "header": "It pleased the Father, that in him should all fulness dwell.",
     "name": "Morning",
     "references": [
-      "Col 3:1",
-      "Phl 3:20,21",
-      "Gal 5:17",
-      "Rom 8:12,13",
-      "1 Pet 2:11"
+      "John 3:35",
+      "Phl 2:9",
+      "Eph 1:21",
+      "Col 1:16",
+      "Rom 14:9",
+      "Col 2:10",
+      "Rom 1:16"
     ]
   },
   "source": "https://github.com/trueChristian/daily-light",
