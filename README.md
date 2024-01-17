@@ -1,28 +1,30 @@
 # Morning
 
-**It pleased the Father, that in him should all fulness dwell.**
+**Thou hast in love to my soul delivered it from the pit of corruption.**
  
-The Father loveth the Son, and hath given all things into his hand. -- God hath highly exalted him, and given him a name which is above every name: that at the name of Jesus every knee should bow, of things in heaven, and things in earth, and things under the earth; and that every tongue should confess that Jesus Christ is Lord, to the glory of God the Father. -- Far above all principality, and power, and might, and dominion, and every name that is named, not only in this world, but also in that which is to come. -- By him were all things created, that are in heaven, and that are in earth, visible and invisible, whether they be thrones, or dominions, or principalities, or powers: all things were created by him, and for him.
+God sent his only begotten Son into the world, that we might live through him. Herein is love, not that we loved God, but that he loved us, and sent his Son to be the propitiation for our sins.
  
-Christ both died, and rose, and revived, that he might be Lord both of the dead and living. -- And ye are complete in him, which is the head of all principality and power. -- Of his fulness have all we received.  
+Who is a God like unto thee, that pardoneth iniquity, and passeth by the transgression of the remnant of his heritage? he retaineth not his anger for ever, because he delighteth in mercy. He will turn again, he will have compassion upon us; he will subdue our iniquities; and thou wilt cast all their sins into the depths of the sea. -- O Lord my God, I cried unto thee, and thou hast healed me. O Lord, thou hast brought up my soul from the grave: thou hast kept me alive, that I should not go down to the pit. -- When my soul fainted within me I remembered the Lord: and my prayer came in unto thee, into thine holy temple. -- I waited patiently for the Lord. He brought me up ... out of an horrible pit, out of the miry clay, and set my feet upon a rock.  
 
-**Col 1:19; John 3:35; Phl 2:9; Eph 1:21; Col 1:16; Rom 14:9; Col 2:10; Rom 1:16**
+**Isa 38:17; 1 John 4:9,10; Mic 7:18,19; Psa 30:2,3; Jon 2:7; Psa 40:1,2**
 
 # Evening
 
-**Write the  things which thou hast seen, and the things which are, and the things which shall be hereafter.**
+**The things which are.**
  
-Holy men of God spake as they were moved by the Holy Ghost. -- That which we have seen and heard declare we unto you, that ye also may have fellowship with us: and truly our fellowship is with the Father, and with his Son Jesus Christ.
+Now we see through a glass, darkly. -- Now we see not yet all things put under him.
  
-Behold my hands and my feet, that it is I myself: handle me, and see; for a spirit hath not flesh and bones, as ye see me have. And when he had thus spoken, he shewed them his hands and his feet. -- He that saw it bare record, and his record is true: and he knoweth that he saith true, that ye might believe.
+We have ... a more sure word of prophecy; whereunto ye do well that ye take heed, as unto a light that shineth in a dark place, until the day dawn, and the day star arise in your hearts. -- Thy word is a lamp unto my feet, and a light unto my path.
  
-We have not followed cunningly devised fables, when we made known unto you the power and coming of our Lord Jesus Christ, but were eyewitnesses of his majesty. -- That your faith should not stand in the wisdom of men, but in the power of God.  
+Beloved, remember ye the words which were spoken before of the apostles of our Lord Jesus Christ; how that they told you there should be mockers in the last time, who should walk after their own ungodly lusts. -- The Spirit speaketh expressly, that in the latter times some shall depart from the faith, giving heed to seducing spirits, and doctrines of devils.
+ 
+Little children, it is the last time. -- The night is far spent, the day is at hand: let us therefore cast off the works of darkness, and let us put on the armour of light.  
 
-**Rev 1:19; 2 Pet 1:21; 1 John 1:3; Luke 24:39,40; John 19:35; 2 Pet 1:16; 1 Cor 2:5**
+**Rev 1:19; 1 Cor 13:12; Heb 2:8; 2 Pet 1:19; Psa 119:105; Jude 17,18; 1 Tim 4:1; 1 John 2:18; Rom 13:12**
 
 ---
 
-[Tuesday 16-January, 2024](https://t.me/s/daily_light)
+[Wednesday 17-January, 2024](https://t.me/s/daily_light)
 
 > Jonathan Bagster, the son of Samuel Bagster, created the Daily Light for his own family's daily devotion in 1875
 
