@@ -1,40 +1,40 @@
 {
-  "date_key": "january-17",
-  "date_name": "Wednesday 17-January, 2024",
+  "date_key": "january-18",
+  "date_name": "Thursday 18-January, 2024",
   "evening": {
     "body": [
-      "Now we see through a glass, darkly. -- Now we see not yet all things put under him.",
-      "We have ... a more sure word of prophecy; whereunto ye do well that ye take heed, as unto a light that shineth in a dark place, until the day dawn, and the day star arise in your hearts. -- Thy word is a lamp unto my feet, and a light unto my path.",
-      "Beloved, remember ye the words which were spoken before of the apostles of our Lord Jesus Christ; how that they told you there should be mockers in the last time, who should walk after their own ungodly lusts. -- The Spirit speaketh expressly, that in the latter times some shall depart from the faith, giving heed to seducing spirits, and doctrines of devils.",
-      "Little children, it is the last time. -- The night is far spent, the day is at hand: let us therefore cast off the works of darkness, and let us put on the armour of light."
+      "As it is written, Eye hath not seen, nor ear heard, neither have entered into the heart of man, the things which God hath prepared for them that love him. But God hath revealed them unto us by his Spirit. -- The Spirit of truth ... will shew you things to come.",
+      "Behold, he cometh with clouds; and every eye shall see him, and they also which pierced him: and all kindreds of the earth shall wail because of him. Even so, Amen.",
+      "I would not have you to be ignorant, brethren, concerning them which are asleep, that ye sorrow not, even as others which have no hope. For if we believe that Jesus died and rose again, even so them also which sleep in Jesus will God bring with him. For the Lord himself shall descend from heaven, with a shout, with the voice of the archangel, and with the trump of God: and the dead in Christ shall rise first: then we which are alive and remain shall be caught up together with them in the clouds, to meet the Lord in the air: and so shall we ever be with the Lord."
     ],
-    "header": "The things which are.",
+    "header": "Things which shall be hereafter.",
     "name": "Evening",
     "references": [
-      "1 Cor 13:12",
-      "Heb 2:8",
-      "2 Pet 1:19",
-      "Psa 119:105",
-      "Jude 17,18",
-      "1 Tim 4:1",
-      "1 John 2:18",
-      "Rom 13:12"
+      "1 Cor 2:9,10",
+      "John 16:13",
+      "Rev 1:7",
+      "1 Thes 4:13,14,16,17"
     ]
   },
   "joomla": "https://git.vdm.dev/christian/mod_dailylight",
   "morning": {
     "body": [
-      "God sent his only begotten Son into the world, that we might live through him. Herein is love, not that we loved God, but that he loved us, and sent his Son to be the propitiation for our sins.",
-      "Who is a God like unto thee, that pardoneth iniquity, and passeth by the transgression of the remnant of his heritage? he retaineth not his anger for ever, because he delighteth in mercy. He will turn again, he will have compassion upon us; he will subdue our iniquities; and thou wilt cast all their sins into the depths of the sea. -- O Lord my God, I cried unto thee, and thou hast healed me. O Lord, thou hast brought up my soul from the grave: thou hast kept me alive, that I should not go down to the pit. -- When my soul fainted within me I remembered the Lord: and my prayer came in unto thee, into thine holy temple. -- I waited patiently for the Lord. He brought me up ... out of an horrible pit, out of the miry clay, and set my feet upon a rock."
+      "Jesus ... made a little lower than the angels for the suffering of death, ... that he by the grace of God should taste death for every man. -- One died for all. -- As by one man's disobedience many were made sinners, so by the obedience of one shall many be made righteous.",
+      "The first man Adam was made a living soul; the last Adam was made a quickening spint. -- That was not first which is spiritual, but that which is natural; and afterward that which is spiritual. -- God said, Let us make man in our image, after our likeness. So God created man in his own image, in the image of God created he him. -- God ... hath in these last days spoken unto us by his Son, the brightness of his glory, and the express image of his person. -- Thou hast given him power over all flesh.",
+      "The first man is of the earth, earthy: the second man is the Lord from heaven. As is the earthy, such are they also that are earthy: and as is the heavenly, such are they also that are heavenly."
     ],
-    "header": "Thou hast in love to my soul delivered it from the pit of corruption.",
+    "header": "Him that was to come.",
     "name": "Morning",
     "references": [
-      "1 John 4:9,10",
-      "Mic 7:18,19",
-      "Psa 30:2,3",
-      "Jon 2:7",
-      "Psa 40:1,2"
+      "Heb 2:9",
+      "2 Cor 5:14",
+      "Rom 5:19",
+      "1 Cor 15:45",
+      "1 Cor 15:46",
+      "Gen 1:26,27",
+      "Heb 1:1",
+      "John 17:2",
+      "1 Cor 15:47,48"
     ]
   },
   "source": "https://github.com/trueChristian/daily-light",
