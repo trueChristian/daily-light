@@ -1,11 +1,13 @@
 **Morning**
 
-**Hope maketh not ashamed.**
+**The Lord is at hand.**
  
-I am the Lord: ... they shall not be ashamed that wait for me. -- Blessed is the man that trusteth in the Lord, and whose hope the Lord is. -- Thou wilt keep him in perfect peace, whose mind is stayed on thee: because he trusteth in thee. Trust ye in the Lord for ever: for in the Lord JEHOVAH is everlasting strength. -- My soul, wait thou only upon God; for my expectation is from him. He only is my rock and my salvation: he is my defense; I shall not be moved. -- I am not ashamed, for I know whom I have believed.
+The Lord himself shall descend from heaven with a shout, with the voice of the archangel, and with the trump of God: and the dead in Christ shall rise first: then we which are alive and remain, shall be caught up together with them in the clouds, to meet the Lord in the air: and so shall we ever be with the Lord. Wherefore comfort one another with these words. -- He which testifieth these things saith, Surely I come quickly; Amen. Even so, come, Lord Jesus.
  
-God, willing more abundantly to shew unto the heirs of promise the immutability of his counsel, confirmed it by an oath: that by two immutable things, in which it was impossible for God to lie, we might have a strong consolation, who have fled for refuge to lay hold upon the hope set before us; which hope we have as an anchor of the soul, both sure and stedfast, and which entereth into that within the veil; whither the forerunner is for us entered, even Jesus.  
+Wherefore, beloved, seeing that ye look for such things, be diligent that ye may be found of him in peace, without spot, and blameless. -- Abstain from all appearance of evil. And the very God of peace sanctify you wholly; and I pray God your whole spirit and soul and body be preserved blameless unto the coming of our Lord Jesus Christ. Faithful is he that calleth you, who also will do it.
+ 
+Be ye also patient; stablish your hearts; for the coming of the Lord draweth nigh.  
 
-**Rom 5:5; Isa 49:23; Jer 17:7; Isa 26:3,4; Psa 62:5,6; 2 Tim 1:12; Heb 6:17**
+**Phl 4:5; 1 Thes 4:16; Rev 22:20; 2 Pet 3:14; 1 Thes 5:22; Jas 5:8**
 
-[Tuesday 23-January, 2024](https://t.me/daily_light)
+[Wednesday 24-January, 2024](https://t.me/daily_light)
