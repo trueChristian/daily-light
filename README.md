@@ -1,30 +1,28 @@
 # Morning
 
-**The Lord is at hand.**
+**The righteousness of God which is by faith of Jesus Christ unto all and upon all them that believe.**
  
-The Lord himself shall descend from heaven with a shout, with the voice of the archangel, and with the trump of God: and the dead in Christ shall rise first: then we which are alive and remain, shall be caught up together with them in the clouds, to meet the Lord in the air: and so shall we ever be with the Lord. Wherefore comfort one another with these words. -- He which testifieth these things saith, Surely I come quickly; Amen. Even so, come, Lord Jesus.
+He hath made him to be sin for us, who knew no sin; that we might be made the righteousness of God in him. -- Christ hath redeemed us from the curse of the law, being made a curse for us. -- Who of God is made unto us wisdom, and righteousness, and sanctification, and redemption. -- Not by works of righteousness which we have done, but according to his mercy he saved us, by the washing of regeneration, and renewing of the Holy Ghost; which he shed on us abundantly through Jesus Christ our Saviour.
  
-Wherefore, beloved, seeing that ye look for such things, be diligent that ye may be found of him in peace, without spot, and blameless. -- Abstain from all appearance of evil. And the very God of peace sanctify you wholly; and I pray God your whole spirit and soul and body be preserved blameless unto the coming of our Lord Jesus Christ. Faithful is he that calleth you, who also will do it.
- 
-Be ye also patient; stablish your hearts; for the coming of the Lord draweth nigh.  
+I count all things but loss for the excellency of the knowledge of Christ Jesus my Lord: for whom I have suffered the loss of all things, and do count them but dung, that I may win Christ, and be found in him, not having mine own righteousness, which is of the law, but that which is through the faith of Christ, the righteousness which is of God by faith.  
 
-**Phl 4:5; 1 Thes 4:16; Rev 22:20; 2 Pet 3:14; 1 Thes 5:22; Jas 5:8**
+**Rom 3:22; 2 Cor 5:21; Gal 3:13; 1 Cor 1:30; Tit 3:5,6; Phl 3:8,9**
 
 # Evening
 
-**The choice vine.**
+**The spirit of adoption, whereby we cry, Abba, Father.**
  
-My wellbeloved hath a vineyard in a very fruitful hill: and he fenced it, and gathered out the stones thereof, and planted it with the choicest vine, ... and he looked that it should bring forth grapes, and it brought forth wild grapes. -- Yet I had planted thee a noble vine, wholly a right seed: how then art thou turned into the degenerate plant of a strange vine unto me.
+Jesus ... lifted up his eyes to heaven, and said, Father, ... Holy Father, ... O righteous Father. -- He said, Abba, Father. -- Because ye are sons, God hath sent forth the Spirit of his Son into your hearts, crying, Abba, Father. -- For through him we both have access by one Spirit unto the Father. Now therefore ye are no more strangers and foreigners, but fellowcitizens with the saints and of the household of God.
  
-The works of the flesh are manifest, which are these; Adultery, fornication, uncleanness, ... envyings, murders, drunkenness, revellings, and such like: ... but the fruit of the Spirit is love, joy, peace, longsuffering, gentleness, goodness, faith, meekness, temperance.
+Doubtless thou art our father, ... thou, O Lord, art our father, our redeemer; thy name is from everlasting.
  
-I am the true vine, and my Father is the husbandman. Every branch in me that beareth not fruit he taketh away: and every branch that beareth fruit, he purgeth it, that it may bring forth more fruit. Abide in me, and I in you ... Herein is my Father glorified, that ye bear much fruit; so shall ye be my disciples.  
+I will arise and go to my father, and will say unto him, Father, I have sinned against heaven, and before thee, and am no more worthy to be called thy son: make me as one of thy hired servants. And he arose, and came to his father. Be ye therefore followers of God, as dear children.  
 
-**Gen 49:11; Isa 5:1,2; Jer 2:21; Gal 5:19,21; John 15:1,2,4,8**
+**Rom 8:15; John 17:1,11,25; Mark 14:36; Gal 4:6; Eph 2:18,19; Isa 63:16; Luke 15:18; Eph 5:1**
 
 ---
 
-[Wednesday 24-January, 2024](https://t.me/s/daily_light)
+[Thursday 25-January, 2024](https://t.me/s/daily_light)
 
 > Jonathan Bagster, the son of Samuel Bagster, created the Daily Light for his own family's daily devotion in 1875
 
