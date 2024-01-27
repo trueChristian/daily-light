@@ -1,13 +1,15 @@
 **Evening**
 
-**The Lord Jesus Christ ... shall change our vile body, that it may be fashioned like unto his glorious body.**
+**I have set before you life and death, blessing and cursing: therefore choose life.**
  
-Upon the likeness of the throne was the likeness as the appearance of a man above upon it. And I saw as the colour of amber, as the appearance of fire round about within it, from the appearance of his loins even upward, and from the appearance of his loins even downward, I saw as it were the appearance of fire, and it had brightness round about. This was the appearance of the likeness of the glory of the Lord.
+For I have no pleasure in the death of him that dieth, saith the Lord GOD: wherefore turn yourselves, and live ye.
  
-We all, with open face, beholding as in a glass the glory of the Lord, are changed into the same image from glory to glory, even as by the Spirit of the Lord. -- It doth not yet appear what we shall be: but we know that, when he shall appear, we shall be like him; for we shall see him as he is.
+If I had not come and spoken unto them, they had not had sin but now they have no cloke for their sin. That servant, which knew his lord's will, and prepared not himself, neither did according to his will, shall be beaten with many stripes.
  
-They shall hunger no more, neither thirst any more. -- They sing the song of Moses the servant of God, and the song of the Lamb.  
+The wages of sin is death; but the gift of God is eternal life through Jesus Christ our Lord. -- He that believeth on the Son hath everlasting life: and he that believeth not the Son shall not see life but the wrath of God abideth on him. -- Know ye not, that to whom ye yield yourselves servants to obey, his servants ye are to whom ye obey; whether of sin unto death, or of obedience unto righteousness?
+ 
+If any man serve me, let him follow me; and where I am, there shall also my servant be: if any man serve me, him will my Father honour.  
 
-**Phl 3:20,21; Ezek 1:26-27; 2 Cor 3:18; 1 John 3:2; Rev 7:16; Rev 15:3**
+**Deut 30:19; Ezek 18:32; John 15:22; Luke 12:47; Rom 6:23; John 3:36; Rom 6:16; John 12:26**
 
-[Friday 26-January, 2024](https://t.me/daily_light)
+[Saturday 27-January, 2024](https://t.me/daily_light)
