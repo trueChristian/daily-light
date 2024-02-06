@@ -1,13 +1,11 @@
 **Morning**
 
-**I am come that they might have life, and that they might have it more abundantly.**
+**The grace of our Lord was exceeding abundant with faith and love which is in Christ Jesus.**
  
-In the day that thou eatest thereof thou shalt surely die. -- She took of the fruit thereof, and did eat, and gave also unto her husband with her; and he did eat.
+Ye know the grace of our Lord Jesus Christ, that, though he was rich, yet for your sakes he became poor, that ye through his poverty might become rich. -- For where sin abounded, grace did much more abound.
  
-The wages of sin is death; but the gift of God is eternal life through Jesus Christ our Lord. -- If by one man's offence death reigned by one; much more they which receive abundance of grace and of the gift of righteousness shall reign in life by one, Jesus Christ. -- Since by man came death, by man came also the resurrection of the dead. For as in Adam all die, even so in Christ shall all be made alive. -- Our Saviour Jesus Christ, ... hath abolished death, and hath brought life and immortality to light through the gospel.
- 
-God hath given to us eternal life, and this life is in his Son. He that hath the Son hath life; and he that hath not the Son of God hath not life. -- For God sent not his Son into the world to condemn the world; but that the world through him might be saved.  
+That in the ages to come he might shew the exceeding riches of his grace in his kindness toward us through Christ Jesus. For by grace are ye saved through faith; and that not of yourselves: it is the gift of God: not of works, lest any man should boast. -- Knowing that a man is not justified by the works of the law, but by the faith of Jesus Christ, even we have believed in Jesus Christ, that we might be justified by the faith of Christ, and not by the works of the law: for by the works of the law shall no flesh be justified. -- According to his mercy he saved us, by the washing of regeneration, and renewing of the Holy Ghost; which he shed on us abundantly through Jesus Christ our Saviour.  
 
-**John 10:10; Gen 2:17; Gen 3:6; Rom 6:23; Rom 5:17; 1 Cor 15:21-22; 2 Tim 1:10; 1 John 5:11-12; John 3:17**
+**1 Tim 1:14; 2 Cor 8:9; Rom 5:20; Eph 2:7-9; Gal 2:16; Tit 3:5,6**
 
-[Monday 05-February, 2024](https://t.me/daily_light)
+[Tuesday 06-February, 2024](https://t.me/daily_light)
