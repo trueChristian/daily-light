@@ -1,13 +1,15 @@
 **Evening**
 
-**I beseech thee, shew me thy glory.**
+**Thy word hath quickened me.**
  
-God, who commanded the light to shine out of darkness, hath shined in our hearts, to give the light of the knowledge of the glory of God in the face of Jesus Christ. -- The Word was made flesh and dwelt among us, (and we beheld his glory, the glory as of the only begotten of the Father,) full of grace and truth ... No man hath seen God at any time; the only begotten Son, which is in the bosom of the Father, he hath declared him.
+The first man Adam was made a living soul; the last Adam was made a quickening spirit.
  
-My soul thirsteth for God, for the living God: when shall I come and appear before God ? -- When thou saidst, Seek ye my face; my heart said unto thee, Thy face, Lord, will I seek.
+As the Father hath life in himself; so hath he given to the Son to have life in himself. -- I am the resurrection, and the life: he that believeth in me though he were dead, yet shall he live: and whosoever liveth and believeth in me shall never die.
  
-We all, with open face beholding as in a glass the glory of the Lord, are changed into the same image from glory to glory, even as by the Spirit of the Lord. -- Father, I will that they also, whom thou hast given me, be with me where I am; that they may behold my glory, which thou hast given me: for thou lovedst me before the foundation of the world.  
+In him was life; and the life was the light of men ... As many as received him, to them gave he power to become the sons of God, even to them that believe on his name: which were born, not of blood, nor of the will of the flesh, nor of the will of man, but of God.
+ 
+It is the spirit that quickeneth; the flesh profiteth nothing: the words that I speak unto you, they are spirit, and they are life. -- The word of God is quick and powerful, and sharper than any twoedged sword, piercing even to the dividing asunder of soul and spirit and of the joints and marrow, and is a discerner of the thoughts and intents of the heart.  
 
-**Exo 33:18; 2 Cor 4:6; John 1:14,18; Psa 42:2; Psa 27:8; 2 Cor 3:18; John 17:24**
+**Psa 119:50; 1 Cor 15:45; John 5:26; John 11:25,26; John 1:4,12,13; John 6:63; Heb 4:12**
 
-[Monday 12-February, 2024](https://t.me/daily_light)
+[Tuesday 13-February, 2024](https://t.me/daily_light)
