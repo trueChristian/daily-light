@@ -1,17 +1,17 @@
 **Evening**
 
-**Adam... begat a son in his own likeness.**
+**The year of my redeemed is come.**
  
-Who can bring a clean thing out of an unclean? -- Behold, I was shapen in iniquity; and in sin did my mother conceive me.
+Ye shall hallow the fiftieth year and proclaim liberty throughout all the land unto all the inhabitants thereof: it shall be a jubilee unto you; and ye shall return every man unto his possession, ... and unto his family.
  
-Dead in trespasses and sins; ... by nature the children of wrath, even as others. -- I am carnal, sold under sin. That which I do I allow not; for what I would, that do I not; but what I hate, that do I. I know that in me (that is, in my flesh,) dwelleth no good thing.
+Thy dead men shall live, together with my dead body shall they arise. Awake and sing, ye that dwell in dust: for thy dew is as the dew of herbs and the earth shall cast out the dead.
  
-By one man sin entered into the world, ... by one man's disobedience many where made sinners. -- If through the offence of one many be dead, much more the grace of God, and the gift by grace, which is by one man, Jesus Christ, hath abounded unto many.
+The Lord himself shall descend from heaven with a shout, with the voice of the archangel and with the trump of God: and the dead in Christ shall rise first: then we which are alive and remain shall be caught up together with them in the clouds, to meet the Lord in the air: and so shall we ever be with the Lord.
  
-The law of the Spirit of life in Christ Jesus hath made me free from the law of sin and death.
+I will ransom them from the power of the grave; I will redeem them from death: O death, I will be thy plagues; O grave, I will be thy destruction.
  
-Thanks be to God, which giveth us the victory through our Lord Jesus Christ.  
+Their Redeemer is strong; the Lord of hosts is his name.  
 
-**Gen 5:3; Job 14:4; Psa 51:5; Eph 2:1,3; Rom 7:14,15,18; Rom 5:12,19; Rom 5:15; Rom 8:2; 1 Cor 15:57**
+**Isa 63:4; Lev 25:10; Isa 26:19; 1 Thes 4:16,17; Hos 13:14; Jer 50:34**
 
-[Sunday 18-February, 2024](https://t.me/daily_light)
+[Monday 19-February, 2024](https://t.me/daily_light)
