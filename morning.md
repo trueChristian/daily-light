@@ -1,13 +1,13 @@
 **Morning**
 
-**I am the Lord which sanctify you.**
+**What man is he that feareth the Lord? him shall he teach in the way that he shall choose.**
  
-I am the Lord your God, which have separated you from other people. And ye shall be holy unto me: for I the Lord am holy, and have severed you from other people, that ye should be mine.
+The light of the body is the eye: if therefore thine eye be single thy whole body shall be full of light.
  
-Sanctified by God the Father. -- Sanctify them through thy truth: thy word is truth. -- The very God of peace sanctify you wholly; and I pray God your whole spirit and soul and body be preserved blameless unto the coming of our Lord Jesus Christ.
+Thy word is a lamp unto my feet, and a light unto my path. -- Thine ears shall hear a word behind thee, saying, This is the way, walk ye in it, when ye turn to the right hand, and when ye turn turn to the left. -- I will instruct thee and teach thee in the way which thou shalt go: I will guide thee with mine eye. Be ye not as the horse or as the mule, which have no understanding: whose mouth must be held in with bit and bridle, lest they come near unto thee. Many sorrows shall be to the wicked: but he that trusteth in the Lord, mercy shall compass him about. Be glad in the Lord, and rejoice, ye righteous: and shout for joy, all ye that are upright in heart.
  
-Jesus ... that he might sanctify the people with his own blood, suffered without the gate. -- Our Saviour Jesus Christ ... gave himself for us, that he might redeem us from all iniquity, and purify unto himself a peculiar people, zealous of good works. -- Both he that sanctifieth and they who are sanctified are all of one: for which cause he is not ashamed to call them brethren. -- For their sakes I sanctify myself, that they also might be sanctified through the truth. -- Through sanctification of the Spirit, unto obedience, and sprinkling of the blood of Jesus Christ.  
+O Lord, I know that the way of man is not in himself: it is not in man that walketh to direct his steps.  
 
-**Lev 20:8; Lev 20:24,26; Jude 1; John 17:17; 1 Thes 5:23; Heb 13:12; Tit 2:13,14; Heb 2:11; John 17:19; 1 Pet 1:2**
+**Psa 25:12; Matt 6:22; Psa 119:105; Isa 30:21; Psa 32:8‑11; Jer 10:23**
 
-[Wednesday 21-February, 2024](https://t.me/daily_light)
+[Thursday 22-February, 2024](https://t.me/daily_light)

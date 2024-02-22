@@ -1,30 +1,32 @@
 # Morning
 
-**I am the Lord which sanctify you.**
+**What man is he that feareth the Lord? him shall he teach in the way that he shall choose.**
  
-I am the Lord your God, which have separated you from other people. And ye shall be holy unto me: for I the Lord am holy, and have severed you from other people, that ye should be mine.
+The light of the body is the eye: if therefore thine eye be single thy whole body shall be full of light.
  
-Sanctified by God the Father. -- Sanctify them through thy truth: thy word is truth. -- The very God of peace sanctify you wholly; and I pray God your whole spirit and soul and body be preserved blameless unto the coming of our Lord Jesus Christ.
+Thy word is a lamp unto my feet, and a light unto my path. -- Thine ears shall hear a word behind thee, saying, This is the way, walk ye in it, when ye turn to the right hand, and when ye turn turn to the left. -- I will instruct thee and teach thee in the way which thou shalt go: I will guide thee with mine eye. Be ye not as the horse or as the mule, which have no understanding: whose mouth must be held in with bit and bridle, lest they come near unto thee. Many sorrows shall be to the wicked: but he that trusteth in the Lord, mercy shall compass him about. Be glad in the Lord, and rejoice, ye righteous: and shout for joy, all ye that are upright in heart.
  
-Jesus ... that he might sanctify the people with his own blood, suffered without the gate. -- Our Saviour Jesus Christ ... gave himself for us, that he might redeem us from all iniquity, and purify unto himself a peculiar people, zealous of good works. -- Both he that sanctifieth and they who are sanctified are all of one: for which cause he is not ashamed to call them brethren. -- For their sakes I sanctify myself, that they also might be sanctified through the truth. -- Through sanctification of the Spirit, unto obedience, and sprinkling of the blood of Jesus Christ.  
+O Lord, I know that the way of man is not in himself: it is not in man that walketh to direct his steps.  
 
-**Lev 20:8; Lev 20:24,26; Jude 1; John 17:17; 1 Thes 5:23; Heb 13:12; Tit 2:13,14; Heb 2:11; John 17:19; 1 Pet 1:2**
+**Psa 25:12; Matt 6:22; Psa 119:105; Isa 30:21; Psa 32:8‑11; Jer 10:23**
 
 # Evening
 
-**Light is sown for the righteous, and gladness for the upright in heart.**
+**When thou liest down, thou shall not be afraid: yea, thou shalt lie down, and thy sleep shall be sweet.**
  
-They that sow in tears shall reap in joy. He that goeth forth and weepeth, bearing precious seed, shall doubtless come again with rejoicing, bringing his sheaves with him.
+There arose a great storm of wind, and the waves beat into the ship, so that it was now full. And he was in the hinder part of the ship, asleep on a pillow.
  
-That which thou sowest, thou sowest not that body that shall be.
+Be careful for nothing; but in every thing by prayer and supplication with thanksgiving let your requests be made known unto God. And the peace of God, which passeth all understanding, shall keep your hearts and minds through Christ Jesus.
  
-Blessed be the God and Father of our Lord Jesus Christ, which according to his abundant mercy hath begotten us again unto a lively hope by the resurrection of Jesus Christ from the dead. Wherein ye greatly rejoice, though now for a season, if need be, ye are in heaviness through manifold temptations: that the trial of your faith, being much more precious than of gold that perisheth, though it be tried with fire, might be found unto praise and honour and glory at the appearing of Jesus Christ.  
+I will both lay me down in peace, and sleep: for thou, Lord, only makest me dwell in safety. -- He giveth his beloved sleep.
+ 
+They stoned Stephen, calling upon God, and saying, Lord Jesus, receive my spirit. And he kneeled down, and cried with a loud voice, Lord, lay not this sin to their charge. And when he had said this, he fell asleep. -- Absent from the body, ... present with the Lord.  
 
-**Psa 97:11; Psa 126:5,6; 1 Cor 15:27; 1 Pet 1:3,6,7**
+**Prov 3:24; Mark 4:37,38; Phl 4:6,7; Psa 4:8; Psa 127:2; Acts 7:59,60; 2 Cor 5:8**
 
 ---
 
-[Wednesday 21-February, 2024](https://t.me/s/daily_light)
+[Thursday 22-February, 2024](https://t.me/s/daily_light)
 
 > Jonathan Bagster, the son of Samuel Bagster, created the Daily Light for his own family's daily devotion in 1875
 
