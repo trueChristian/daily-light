@@ -1,13 +1,13 @@
 **Evening**
 
-**Who knoweth the power of thine anger?**
+**Shall we receive good at the hand of God, and shall we not receive evil?**
  
-From the sixth hour there was darkness over all the land unto the ninth hour. And about the ninth hour Jesus cried with a loud voice, saying, <em>Eli, Eli, lama sabachthani?</em> that is to say, My God, my God, why hast thou forsaken me? -- The Lord hath laid on him the iniquity of us all.
+I know, O Lord, that thy judgments are right, and that thou in faithfulness hast afflicted me. -- O Lord, thou art our father, we are the clay, and thou our potter; and we all are the work of thy hand. -- It is the Lord: let him do what seemeth him good. Righteous art thou, O Lord, when I plead with thee: yet let me talk with thee of thy judgments.
  
-There is therefore now no condemnation to them which are in Christ Jesus. -- Being justified by faith, we have peace with God through our Lord Jesus Christ. -- Christ hath redeemed us from the curse of the law, being made a curse for us.
+He shall sit as a refiner and purifier of silver. -- Whom the Lord loveth he chasteneth, and scourgeth every son whom he receiveth. -- It is enough for the disciple that he be as his master, and the servant as his lord. -- Though he were a Son, yet learned he obedience by the things which he suffered.
  
-God sent his only begotten Son into the world, that we might live through him. Herein is love, not that we loved God, but that he loved us, and sent his Son to be the propitiation for our sins. -- That he might be just, and the justifier of him which believeth in Jesus.  
+Rejoice, inasmuch as ye are partakers of Christ's sufferings; that, when his glory shall be revealed, ye may be glad also with exceeding joy. -- These are they which came out of great tribulation, and have washed their robes, and made them white in the blood of the Lamb.  
 
-**Psa 90:11; Matt 27:45,46; Isa 53:6; Rom 8:1; Rom 5:1; Gal 3:13; 1 John 4:9,10; Rom 3:26**
+**Job 2:10; Psa 119:75; Isa 64:8; 1 Sam 3:18; Jer 12:1; Mal 3:3; Heb 12:6; Matt 10:25; Heb 5:8; 1 Pet 4:13; Rev 7:14**
 
-[Friday 23-February, 2024](https://t.me/daily_light)
+[Saturday 24-February, 2024](https://t.me/daily_light)
