@@ -1,11 +1,15 @@
 **Evening**
 
-**There was a rainbow round about the throne, in sight like unto an emerald.**
+**God ... giveth ... liberally, and upbraideth not.**
  
-This is the token of the covenant which I make between me and you and every living creature that is with you, for perpetual generations: I do set my bow in the cloud,... and I will look upon it, that I may remember the everlasting covenant between God and every living creature of all flesh that is upon the earth. -- An everlasting covenant, ordered in all things and sure. -- That by two immutable things, in which it was impossible for God to lie, we might have a strong consolation, who have fled for refuge to lay hold upon the hope set before us.
+Woman, where are those thine accusers? hath no man condemned thee? She said, No man, Lord. And Jesus said unto her, Neither do I condemn thee: go, and sin no more.
  
-We declare unto you glad tidings, how that the promise which was made unto the fathers, God hath fulfilled the same unto their children, in that He hath raised up Jesus again. Jesus Christ the same yesterday, and today, and for ever.  
+The grace of God, and the gift by grace, which is by one man, Jesus Christ, hath abounded unto many ... The free gift is of many offences unto justification.
+ 
+God, who is rich in mercy, for his great love wherewith he loved us, even when we were dead in sins, hath quickened us together with Christ, (by grace ye are saved) and hath raised us up together, and made us sit together in heavenly places in Christ Jesus: that in the ages to come he might shew the exceeding riches of his grace in his kindness toward us through Christ Jesus.
+ 
+He that spared not his own Son, but delivered him up for us all, how shall he not with him also freely give us all things?  
 
-**Rev 4:3; Gen 9:12,13,16; 2 Sam 23:5; Heb 6:18; Acts 13:32; Heb 13:8**
+**Jas 1:5; John 8:10,11; Rom 5:15,16; Eph 2:4‑7; Rom 8:32**
 
-[Monday 26-February, 2024](https://t.me/daily_light)
+[Tuesday 27-February, 2024](https://t.me/daily_light)
