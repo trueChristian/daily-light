@@ -1,9 +1,15 @@
 **Morning**
 
-**God so loved the world, that he gave his only begotten Son, that whosoever believeth in him should not perish, but have everlasting life.**
+**Boast not thyself of tomorrow; for thou knowest not what a day may bring forth.**
  
-God ... hath reconciled us to himself by Jesus Christ, and hath given to us the ministry of reconciliation; to wit, that God was in Christ, reconciling the world unto himself, not imputing their trespasses unto them; and hath committed unto us the word of reconciliation. Now then we are ambassadors for Christ, as though God did beseech you by us: we pray you in Christ's stead, be ye reconciled to God. For he hath made him to be sin for us, who knew no sin; that we might be made the righteousness of God in him. -- God is love. In this was manifested the love of God toward us, because that God sent his only begotten Son into the world that we might live through him. Herein is love, not that we loved God, but that he loved us, and sent his Son to be the propitiation for our sins. Beloved, if God so loved us, we ought also to love one another.  
+Behold, now is the accepted time; behold, now is the day of salvation. -- Yet a little while is the light with you. Walk while ye have the light, lest darkness come upon you: for he that walketh in darkness knoweth not whither he goeth. While ye have light, believe in the light, that ye may be the children of light.
+ 
+Whatsoever thy hand findeth to do, do it with thy might; for there is no work, nor device, nor knowledge, nor wisdom, in the grave, whither thou goest.
+ 
+Soul, thou hast much goods laid up for many years; take thine ease, eat, drink, and be merry ... Thou fool, this night thy soul shall be required of thee: then whose shall those things be, which thou hast provided? So is he that layeth up treasure for himself, and is not rich toward God.
+ 
+What is your life? It is even a vapour, that appeareth for a little time, and then vanisheth away. -- The world passeth away, and the lust thereof: but he that doeth the will of God abideth for ever.  
 
-**John 3:16; 2 Cor 5:18‑21; 1 John 4:8‑11**
+**Prov 27:1; 2 Cor 6:2; John 12:35,36; Eccl 9:10; Luke 12:19‑21; Jas 4:14; 1 John 2:17**
 
-[Wednesday 28-February, 2024](https://t.me/daily_light)
+[Thursday 29-February, 2024](https://t.me/daily_light)

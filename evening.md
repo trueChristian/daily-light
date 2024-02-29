@@ -1,15 +1,15 @@
 **Evening**
 
-**The spirit of man is the candle of the Lord.**
+**Thou art the same, and thy years shall have no end. **
  
-He that is without sin among you, let him first cast a stone a her ... And they which heard it, being convicted by their own conscience, went out one by one, beginning at the eldest, even unto the last. Who told thee that thou wast naked? Hast thou eaten of the tree, whereof I commanded thee that thou shouldest not eat?
+Before the mountains were brought forth, or ever thou hadst formed the earth and the world, even from everlasting to everlasting, thou art God. I am the Lord, I change not; therefore ye sons of Jacob are not consumed. -- The same yesterday, and today, and forever.
  
-To him that knoweth to do good, and doeth it not, to him it is sin. -- If our heart condemn us, God is greater than our heart, and knoweth all things. Beloved, if our heart condemn us not, then have we confidence toward God.
+Every good gift and every perfect gift is from above, and cometh down from the Father of lights, with whom is no variableness, neither shadow of turning. -- The gifts and calling of God are without repentance.
  
-All things indeed are pure; but it is evil for that man who eateth with offence. Happy is he that condemneth not himself in that thing which he alloweth.
+God is not a man, that he should lie: neither the son of man, that he should repent. -- It is of the Lord's mercies that we are not consumed, because his compassions fail not.
  
-Search me, O God, and know my heart: try me, and know my thoughts: and see if there be any wicked way in me, and lead me in the way everlasting.  
+This man, because he continueth ever, hath an unchangeable priesthood. Wherefore he is able also to save them to the uttermost that come unto God by him, seeing he ever liveth to make intercession for them. -- Fear not; I am the first and the last.  
 
-**Prov 20:27; John 8:7,9; Gen 3:11; Jas 4:17; 1 John 3:20,21; Rom 14:20,22; Psa 139:23,24**
+**Psa 102:27; Psa 90:2; Mal 3:6; Heb 13:8; Jas 1:17; Rom 11:29; Num 23:19; Lam 3:22; Heb 7:24,25; Rev 1:17**
 
-[Wednesday 28-February, 2024](https://t.me/daily_light)
+[Thursday 29-February, 2024](https://t.me/daily_light)
