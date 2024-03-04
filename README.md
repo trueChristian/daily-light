@@ -1,30 +1,28 @@
 # Morning
 
-**Trust in the Lord with all thine heart; and lean not unto thine own understanding. In all thy ways acknowledge him, and he shall direct thy paths.**
+**Set your affection on things above, not on things on the earth.**
  
-Trust in him at all times; ye people, pour out your heart before him: God is a refuge for us.
+Love not the world, neither the things that are in the world. If any man love the world, the love of the Father is not in him. -- Lay not up for yourselves treasures upon earth, where moth and rust doth corrupt, and where thieves break through and steal: but lay up for yourselves treasures in heaven, where neither moth nor rust doth corrupt, and where thieves do not break through nor steal: for where your treasure is, there will your heart be also.
  
-I will instruct thee and teach thee in the way which thou shalt go: I will guide thee with mine eye. Be ye not as the horse, or as the mule, which have no understanding: whose mouth must be held in with bit and bridle, lest they come near unto thee. Many sorrows shall be to the wicked: but he that trusteth in the Lord, mercy shall compass him about. -- Thine ears shall hear a word behind thee, saying, This is the way, walk ye in it, when ye turn to the right hand, and when ye turn to the left.
- 
-If thy presence go not with me, carry us not up hence. For wherein shall it be known here that I and thy people have found grace in thy sight? is it not in that thou goest with us? so shall we be separated, I and thy people, from all the people that are upon the face of the earth.  
+We walk by faith, not by sight. -- We faint not; but though our outward man perish, yet the inward man is renewed day by day. For our light affliction which is but for a moment, worketh for us a far more exceeding and eternal weight of glory: while we look not at the things which are seen, but at the things which are not seen: for the things which are seen are temporal; but the things which are not seen are eternal. -- An inheritance incorruptible, and undefiled, and that fadeth not away, reserved in heaven for you.  
 
-**Prov 3:5,6; Psa 62:8; Psa 32:8‑10; Isa 30:21; Exo 33:15,16**
+**Col 3:2; 1 John 2:15; Matt 6:19‑21; 2 Cor 5:7; 2 Cor 4:16‑18; 1 Pet 1:4**
 
 # Evening
 
-**The prize of the high calling of God in Christ Jesus.**
+**He bowed his shoulder to bear.**
  
-Thou shalt have treasure in heaven: ... come and follow me. -- I am ... thy exceeding great reward. Well done, thou good and faithful servant: thou hast been faithful over a few things, I will make thee ruler over many things: enter thou into the joy of thy lord. -- They shall reign for ever and ever.
+Take, my brethren, the prophets, who have spoken in the name of the Lord, for an example of suffering affliction, and of patience. -- Now all these things happened unto them for ensamples: and they are written for our admonition, upon whom the ends of the world are come.
  
-Ye shall receive a crown of glory that fadeth not away. -- The crown of life. -- A crown of righteousness. -- An incorruptible crown.
+Shall we receive good at the hand of God, and shall we not receive evil? In all this did not Job sin with his lips. -- Aaron held his peace. -- It is the Lord; let him do what seemeth him good. Cast thy burden upon the Lord, and he shall sustain thee. -- Surely he hath borne our griefs, and carried our sorrows.
  
-Father, I will that they also, whom thou hast given me, be with me where I am; that they may behold my glory, which thou has given me. -- So shall we ever be with the Lord. I reckon that the sufferings of this present time are not worthy to be compared with the glory which shall be revealed in us.  
+Come unto me, all ye that labour and are heavy laden, and I will give you rest. Take my yoke upon you, and learn of me; for I am meek and lowly in heart: and ye shall find rest unto your souls. For my yoke is easy, and my burden is light.  
 
-**Phl 3:14; Matt 19:21; Gen 15:1; Mark 25:21; Rev 22:5; 1 Pet 5:4; Jas 1:12; 2 Tim 4:8; 1 Cor 9:25; John 17:24; 1 Thes 4:17; Rom 8:18**
+**Gen 49:15; Jas 5:10; 1 Cor 10:11; Job 2:10; Lev 10:3; 1 Sam 3:18; Psa 55:22; Isa 53:4; Matt 11:28‑30**
 
 ---
 
-[Sunday 03-March, 2024](https://t.me/s/daily_light)
+[Monday 04-March, 2024](https://t.me/s/daily_light)
 
 > Jonathan Bagster, the son of Samuel Bagster, created the Daily Light for his own family's daily devotion in 1875
 

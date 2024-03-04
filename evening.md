@@ -1,13 +1,13 @@
 **Evening**
 
-**The prize of the high calling of God in Christ Jesus.**
+**He bowed his shoulder to bear.**
  
-Thou shalt have treasure in heaven: ... come and follow me. -- I am ... thy exceeding great reward. Well done, thou good and faithful servant: thou hast been faithful over a few things, I will make thee ruler over many things: enter thou into the joy of thy lord. -- They shall reign for ever and ever.
+Take, my brethren, the prophets, who have spoken in the name of the Lord, for an example of suffering affliction, and of patience. -- Now all these things happened unto them for ensamples: and they are written for our admonition, upon whom the ends of the world are come.
  
-Ye shall receive a crown of glory that fadeth not away. -- The crown of life. -- A crown of righteousness. -- An incorruptible crown.
+Shall we receive good at the hand of God, and shall we not receive evil? In all this did not Job sin with his lips. -- Aaron held his peace. -- It is the Lord; let him do what seemeth him good. Cast thy burden upon the Lord, and he shall sustain thee. -- Surely he hath borne our griefs, and carried our sorrows.
  
-Father, I will that they also, whom thou hast given me, be with me where I am; that they may behold my glory, which thou has given me. -- So shall we ever be with the Lord. I reckon that the sufferings of this present time are not worthy to be compared with the glory which shall be revealed in us.  
+Come unto me, all ye that labour and are heavy laden, and I will give you rest. Take my yoke upon you, and learn of me; for I am meek and lowly in heart: and ye shall find rest unto your souls. For my yoke is easy, and my burden is light.  
 
-**Phl 3:14; Matt 19:21; Gen 15:1; Mark 25:21; Rev 22:5; 1 Pet 5:4; Jas 1:12; 2 Tim 4:8; 1 Cor 9:25; John 17:24; 1 Thes 4:17; Rom 8:18**
+**Gen 49:15; Jas 5:10; 1 Cor 10:11; Job 2:10; Lev 10:3; 1 Sam 3:18; Psa 55:22; Isa 53:4; Matt 11:28‑30**
 
-[Sunday 03-March, 2024](https://t.me/daily_light)
+[Monday 04-March, 2024](https://t.me/daily_light)
