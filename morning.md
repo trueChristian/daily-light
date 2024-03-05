@@ -1,11 +1,11 @@
 **Morning**
 
-**Set your affection on things above, not on things on the earth.**
+**O Lord, I am oppressed; undertake for me.**
  
-Love not the world, neither the things that are in the world. If any man love the world, the love of the Father is not in him. -- Lay not up for yourselves treasures upon earth, where moth and rust doth corrupt, and where thieves break through and steal: but lay up for yourselves treasures in heaven, where neither moth nor rust doth corrupt, and where thieves do not break through nor steal: for where your treasure is, there will your heart be also.
+Unto thee lift I up mine eyes, O thou that dwellest in the heavens. Behold, as the eyes of servants look unto the hand of their masters, and as the eyes of a maiden unto the hand of her mistress; so our eyes wait upon the Lord our God. -- Hear my cry, O God; attend unto my prayer. From the end of the earth will I cry unto thee, when my heart is overwhelmed: lead me to the rock that is higher than I. For thou hast been a shelter for me, and a strong tower from the enemy. I will abide in thy tabernacle for ever: I will trust in the covert of thy wings. -- Thou hast been a strength to the poor, a strength to the needy in his distress, a refuge from the storms.
  
-We walk by faith, not by sight. -- We faint not; but though our outward man perish, yet the inward man is renewed day by day. For our light affliction which is but for a moment, worketh for us a far more exceeding and eternal weight of glory: while we look not at the things which are seen, but at the things which are not seen: for the things which are seen are temporal; but the things which are not seen are eternal. -- An inheritance incorruptible, and undefiled, and that fadeth not away, reserved in heaven for you.  
+Christ ... suffered for us, leaving us an example, that ye should follow his steps: who did no sin, neither was guile found in his mouth: who, when he was reviled, reviled not again; when he suffered, he threatened not; but committed himself to him that judgeth righteously.  
 
-**Col 3:2; 1 John 2:15; Matt 6:19‑21; 2 Cor 5:7; 2 Cor 4:16‑18; 1 Pet 1:4**
+**Psa 38:14; Psa 123:1,2; Psa 61:1‑4; Isa 25:4; 1 Pet 2:21‑23**
 
-[Monday 04-March, 2024](https://t.me/daily_light)
+[Tuesday 05-March, 2024](https://t.me/daily_light)

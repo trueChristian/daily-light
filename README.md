@@ -1,28 +1,30 @@
 # Morning
 
-**Set your affection on things above, not on things on the earth.**
+**O Lord, I am oppressed; undertake for me.**
  
-Love not the world, neither the things that are in the world. If any man love the world, the love of the Father is not in him. -- Lay not up for yourselves treasures upon earth, where moth and rust doth corrupt, and where thieves break through and steal: but lay up for yourselves treasures in heaven, where neither moth nor rust doth corrupt, and where thieves do not break through nor steal: for where your treasure is, there will your heart be also.
+Unto thee lift I up mine eyes, O thou that dwellest in the heavens. Behold, as the eyes of servants look unto the hand of their masters, and as the eyes of a maiden unto the hand of her mistress; so our eyes wait upon the Lord our God. -- Hear my cry, O God; attend unto my prayer. From the end of the earth will I cry unto thee, when my heart is overwhelmed: lead me to the rock that is higher than I. For thou hast been a shelter for me, and a strong tower from the enemy. I will abide in thy tabernacle for ever: I will trust in the covert of thy wings. -- Thou hast been a strength to the poor, a strength to the needy in his distress, a refuge from the storms.
  
-We walk by faith, not by sight. -- We faint not; but though our outward man perish, yet the inward man is renewed day by day. For our light affliction which is but for a moment, worketh for us a far more exceeding and eternal weight of glory: while we look not at the things which are seen, but at the things which are not seen: for the things which are seen are temporal; but the things which are not seen are eternal. -- An inheritance incorruptible, and undefiled, and that fadeth not away, reserved in heaven for you.  
+Christ ... suffered for us, leaving us an example, that ye should follow his steps: who did no sin, neither was guile found in his mouth: who, when he was reviled, reviled not again; when he suffered, he threatened not; but committed himself to him that judgeth righteously.  
 
-**Col 3:2; 1 John 2:15; Matt 6:19‑21; 2 Cor 5:7; 2 Cor 4:16‑18; 1 Pet 1:4**
+**Psa 38:14; Psa 123:1,2; Psa 61:1‑4; Isa 25:4; 1 Pet 2:21‑23**
 
 # Evening
 
-**He bowed his shoulder to bear.**
+**Fight the good fight of faith.**
  
-Take, my brethren, the prophets, who have spoken in the name of the Lord, for an example of suffering affliction, and of patience. -- Now all these things happened unto them for ensamples: and they are written for our admonition, upon whom the ends of the world are come.
+We were troubled on every side; without were fightings, within were fears. -- Fear not: for they that be with us are more than they that be with them. -- Strong in the Lord, and in the power of his might.
  
-Shall we receive good at the hand of God, and shall we not receive evil? In all this did not Job sin with his lips. -- Aaron held his peace. -- It is the Lord; let him do what seemeth him good. Cast thy burden upon the Lord, and he shall sustain thee. -- Surely he hath borne our griefs, and carried our sorrows.
+Thou comest to me with a sword, and with a spear, and with a shield: but I come to thee in the name of the Lord of hosts, the God of the armies of Israel, whom thou hast defied. -- God is my strength and power: ... he teacheth my hands to war; so that a bow of steel is broken by mine arms. -- Our sufficiency is of God.
  
-Come unto me, all ye that labour and are heavy laden, and I will give you rest. Take my yoke upon you, and learn of me; for I am meek and lowly in heart: and ye shall find rest unto your souls. For my yoke is easy, and my burden is light.  
+The angel of the Lord encampeth round about them that fear him, and delivereth them. -- Behold, the mountain was full of horses and chariots of fire round about Elisha.
+ 
+The time would fail me to tell of [those] who through faith subdued kingdoms, ... out of weakness were made strong, waxed valiant in fight, turned to flight the armies of the aliens.  
 
-**Gen 49:15; Jas 5:10; 1 Cor 10:11; Job 2:10; Lev 10:3; 1 Sam 3:18; Psa 55:22; Isa 53:4; Matt 11:28‑30**
+**1 Tim 6:12; 2 Cor 7:5; 2 Kgs 6:16; Eph 6:10; 1 Sam 17:45; 2 Sam 22:33,35; 2 Cor 3:5; Psa 34:7; 2 Kgs 6:17; Heb 11:32‑34**
 
 ---
 
-[Monday 04-March, 2024](https://t.me/s/daily_light)
+[Tuesday 05-March, 2024](https://t.me/s/daily_light)
 
 > Jonathan Bagster, the son of Samuel Bagster, created the Daily Light for his own family's daily devotion in 1875
 
