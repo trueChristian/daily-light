@@ -1,28 +1,34 @@
 # Morning
 
-**He preserveth the way of his saints.**
+**Thy Maker is thine husband; the Lord of hosts is his name.**
  
-The Lord your God ... went in the way before you, to search you out a place to pitch your tents in, in fire by night, to shew you by what way ye should go, and in a cloud by day. -- As an eagle stirreth up her nest, fluttereth over her young, spreadeth abroad her wings, taketh them, beareth them on her wings: so the Lord alone did lead him. -- The steps of a good man are ordered by the Lord: and he delighteth in his way. Though he fall, he shall not be utterly cast down: for the Lord upholdeth him with his hand. -- Many are the afflictions of the righteous: but the Lord delivereth him out of them all. -- For the Lord knoweth the way of the righteous; but the way of the ungodly shall perish. -- We know that all things work together for good to them that love God, to them who are the called according to his purpose. -- With us is the Lord our God to help us, and to fight our battles.
+This is a great mystery: but I speak concerning Christ and the church.
  
-The Lord thy God in the midst of thee is mighty; he will save, he will rejoice over thee with joy.  
+Thou shalt no more be termed Forsaken ... but thou shalt be called Hephzibah, ... for the Lord delighteth in thee. And as the bridegroom rejoiceth over the bride, so shall thy God rejoice over thee. -- He hath sent me ... to comfort all that mourn; to appoint unto them that mourn in Zion, to give unto them beauty for ashes, the oil of joy for mourning, the garment of praise for the spirit of heaviness.
+ 
+I will greatly rejoice in the Lord, my soul shall be joyful in my God; for he hath clothed me with the garments of salvation, as a bridegroom decketh himself with ornaments, and as a bride adorneth herself with her jewels.
+ 
+I will betroth thee unto me for ever; yea, I will betroth thee unto me in righteousness, and in judgment, and in lovingkindness and in mercies.
+ 
+Who shall separate us from the love of Christ?  
 
-**Prov 2:8; Deut 1:32,33; Deut 32:11,12; Psa 37:23,24; Psa 34:19; Psa 1:6; Rom 8:28; 2 Chr 32:8; Zeph 3:17**
+**Isa 54:5; Eph 5:32; Isa 62:4,5; Isa 61:1‑3; Isa 61:10; Hos 2:19; Rom 8:35**
 
 # Evening
 
-**My God, my God, why hast thou forsaken me?**
+**My times are in thy hand.**
  
-He was wounded for our transgressions, he was bruised for our iniquities: the chastisement of our peace was upon him; ... the Lord hath laid on him the iniquity of us all ... For the transgression of my people was he stricken ... It pleased the Lord to bruise him; he hath put him to grief.
+All his saints are in thy hand. -- The word of the Lord came unto Elijah, saying, Get thee hence, and turn thee eastward, and hide thyself by the brook Cherith, that is before Jordan. And it shall be, that thou shalt drink of the brook; and I have commanded the ravens to feed thee there. And the word of the Lord can unto him, saying, Arise, get thee to Zarephath, which belongeth to Zidon, and dwell there: behold, I have commanded a widow woman there to sustain thee.
  
-Jesus our Lord ... was delivered for our offences. -- Christ hath once suffered for sins, the just for the unjust, that he might bring us to God. -- Who his own self bare our sins in his own body on the tree, that we, being dead to sins, should live unto righteousness: by whose stripes ye were healed.
+Take no thought for your life, what ye shall eat, or what shall drink; nor yet for your body, what ye shall put on. Your heavenly Father knoweth that ye have need of all these things.
  
-He hath made him to be sin for us, who knew no sin; that we might be made the righteousness of God in him. Christ hath redeemed us from the curse of the law, being made a curse for us.  
+Trust in the Lord with all thine heart; and lean not unto thine own understanding. In all thy ways acknowledge him, and he shall direct thy paths. -- Casting all your care upon him; for he cares for you.  
 
-**Matt 27:46; Isa 53:5,6,8,10; Rom 4:24,25; 1 Pet 3:18; 1 Pet 2:24; 2 Cor 5:21; Gal 3:13**
+**Psa 31:15; Deut 33:3; 1 Kgs 17:2‑4,8,9; Matt 6:25,32; Prov 3:5,6; 1 Pet 5:7**
 
 ---
 
-[Wednesday 06-March, 2024](https://t.me/s/daily_light)
+[Thursday 07-March, 2024](https://t.me/s/daily_light)
 
 > Jonathan Bagster, the son of Samuel Bagster, created the Daily Light for his own family's daily devotion in 1875
 
