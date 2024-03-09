@@ -1,13 +1,11 @@
 **Evening**
 
-**I know whom I have believed, and am persuaded that he is able.**
+**They sang as it were a new song.**
  
-Able to do exceeding abundantly above all that we ask or think. Able to make all grace abound toward you; that ye, always having all sufficiency in all things, may abound to every good work. Able to succour them that are tempted.
+A new and living way, which he hath consecrated for us. -- Not by works of righteousness which we have done, but according to his mercy he saved us, by the washing of regeneration, and renewing of the Holy Ghost; which he shed on us abundantly through Jesus Christ our Saviour. -- By grace are ye saved through faith; and that not of yourselves: it is the gift of God; not of works, lest any man should boast.
  
-Able ... to save them to the uttermost that come unto God by him, seeing he ever liveth to make intercession for them. Able to keep you from falling, and to present you faultless before the presence of his glory with exceeding joy.
- 
-Able to keep that which I have committed unto him against that day. Who shall change our vile body, that it may be fashioned like unto his glorious body, according to the working whereby he is able even to subdue all things unto himself. Believe ye that I am able to do this? ... Yea, Lord. According to your faith be it unto you.  
+Not unto us, O Lord, not unto us, but unto thy name give glory. -- Unto him that loved us, and washed us from our sins in his own blood, and hath made us kings and priests unto God and Father; to him be glory and dominion for ever and ever. Amen. -- Thou wast slain, and hast redeemed us to God by thy blood out of every kindred, and tongue, and people, and nation. -- I beheld, and, lo, a great multitude, which no man could number, ... cried ... saying, Salvation to our God which sitteth upon the throne, and unto the Lamb.  
 
-**2 Tim 1:12; Eph 3:20; 2 Cor 9:8; Heb 2:18; Heb 7:25; Jude 24; 2 Tim 1:12; Phl 3:21; Matt 9:28,29**
+**Rev 14:3; Heb 10:20; Tit 3:5,6; Eph 2:8,9; Psa 115:1; Rev 1:5; Rev 5:9; Rev 7:9,10**
 
-[Friday 08-March, 2024](https://t.me/daily_light)
+[Saturday 09-March, 2024](https://t.me/daily_light)
