@@ -1,15 +1,13 @@
 **Evening**
 
-**The Lord will provide.**
+**Jesus wept.**
  
-God will provide himself a lamb for a burnt offering.
+A man of sorrows, and acquainted with grief. -- We have not an high priest which cannot be touched with the feeling of our infirmities. -- It became him, for whom are all things, and by whom are all things, in bringing many sons unto glory, to make the captain of their salvation perfect through sufferings. -- Though he were a Son, yet learned he obedience by the things which he suffered.
  
-Behold, the Lord's hand is not shortened, that it cannot save; neither his ear heavy, that it cannot hear. -- There shall come out of Sion the Deliverer, and shall turn away ungodliness from Jacob.
+I was not rebellious, neither turned away back. I gave my back to the smiters, and my cheeks to them that plucked off the hair: I hid not my face from shame and spitting.
  
-Happy is he that hath the God of Jacob for his help, whose hope is in the Lord his God. -- Behold, the eye of the Lord is upon them that fear him, upon them that hope in his mercy; to deliver their soul from death.
- 
-My God shall supply all your need, according to his riches in glory by Christ Jesus. -- He hath said, I will never leave thee, nor forsake thee. So that we may boldly say, The Lord is my helper, and I will not fear what man shall do unto me. -- The Lord is my strength and my shield; my heart trusteth in him, and I am helped: therefore my heart greatly rejoiceth: and with my song will I praise him.  
+Behold how he loved. -- He took not on him the nature of angels; but he took on him the seed of Abraham. In all things it behooved him to be made like unto his brethren, that he might be a merciful and faithful high priest in things pertaining to God, to make reconciliation for the sins of the people.  
 
-**Gen 22:14 (marg) Gen 22:8; Isa 59:1; Rom 11:26; Psa 146:5; Psa 33:18,19; Phl 4:19; Heb 13:5,6; Psa 28:7**
+**John 11:35; Isa 53:3; Heb 4:15; Heb 2:10; Heb 5:8; Isa 50:5,6; John 11:36; Heb 2:16,17**
 
-[Sunday 10-March, 2024](https://t.me/daily_light)
+[Monday 11-March, 2024](https://t.me/daily_light)
