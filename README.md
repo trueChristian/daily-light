@@ -1,32 +1,34 @@
 # Morning
 
-**The Lord bless thee, and keep thee.**
+**The Lord make his face shine upon thee, and be gracious unto thee. The Lord lift up his countenance upon thee, and give thee peace.**
  
-The blessing of the Lord, it maketh rich, and he addeth no sorrow with it. -- Thou, Lord, wilt bless the righteous; with favour wilt thou compass him as with a shield.
+No man hath seen God at any time; the only begotten Son, which is in the bosom of the Father, he hath declared him. -- The brightness of his glory, and the express image of his person. -- The god of this world hath blinded the minds of them which believe not, lest the light of the glorious gospel of Christ, who is the image of God, should shine unto them.
  
-He will not suffer thy foot to be moved: he that keepeth thee will not slumber. Behold, he that keepeth Israel shall neither slumber nor sleep. The Lord is thy keeper: the Lord is thy shade upon thy right hand. The Lord shall preserve thee from all evil: he shall preserve thy soul. The Lord shall preserve thy going out and thy coming in from this time forth, and even for evermore. -- I the Lord do keep it; I will water it every moment: lest any hurt it, I will keep it night and day.
+Make thy face to shine upon thy servant: save me for thy mercies sake. Let me not be ashamed, O Lord; for I have called upon thee. -- Lord, by thy favour thou hast made my mountain to stand strong: thou didst hide thy face, and I was troubled. -- Blessed is the people that know the joyful sound: they shall walk, O Lord, in the light of thy countenance.
  
-Holy Father, keep through thine own name those whom thou hast given me. While I was with them in the world, I kept them in thy name: those that thou gavest me I have kept.
+The Lord will give strength unto his people; the Lord will bless his people with peace.
  
-The Lord shall deliver me from every evil work, and will preserve me unto his heavenly kingdom: to whom be glory for ever and ever. Amen.  
+Be of good cheer; it is I; be not afraid.  
 
-**Num 6:24; Prov 10:22; Psa 5:12; Psa 121:3,5,7,8; Isa 27:3; John 17:11,12; 2 Tim 4:18**
+**Num 6:25,26; John 1:18; Heb 1:3; 2 Cor 4:4; Psa 31:16,17; Psa 30:7; Psa 89:15; Psa 29:11; Matt 14:27**
 
 # Evening
 
-**Jesus wept.**
+**Things that are pleasing in his sight.**
  
-A man of sorrows, and acquainted with grief. -- We have not an high priest which cannot be touched with the feeling of our infirmities. -- It became him, for whom are all things, and by whom are all things, in bringing many sons unto glory, to make the captain of their salvation perfect through sufferings. -- Though he were a Son, yet learned he obedience by the things which he suffered.
+Without faith it is impossible to please him. -- So then they that are in the flesh cannot please God. -- The Lord taketh pleasure in his people.
  
-I was not rebellious, neither turned away back. I gave my back to the smiters, and my cheeks to them that plucked off the hair: I hid not my face from shame and spitting.
+This is thankworthy, if a man for conscience toward God endure grief, suffering wrongfully. If, when ye do well, and suffer for it, ye take it patiently, this is acceptable with God. -- The ornament of a meek and quiet spirit, ... is in the sight of God of great price.
  
-Behold how he loved. -- He took not on him the nature of angels; but he took on him the seed of Abraham. In all things it behooved him to be made like unto his brethren, that he might be a merciful and faithful high priest in things pertaining to God, to make reconciliation for the sins of the people.  
+Whoso offereth praise glorifieth me: and to him that ordereth his conversation aright will I shew the salvation of God. -- I will praise the name of God with a song, and will magnify him with thanksgiving. This also shall please the Lord better than an ox or bullock that hath horns and hoofs.
+ 
+I beseech you, ... brethren, by the mercies of God, that ye present your bodies a living sacrifice, holy, acceptable unto God, which is your reasonable service.  
 
-**John 11:35; Isa 53:3; Heb 4:15; Heb 2:10; Heb 5:8; Isa 50:5,6; John 11:36; Heb 2:16,17**
+**1 John 3:22; Heb 11:6; Rom 8:8; Psa 149:4; 1 Pet 2:19,20; 1 Pet 3:4; Psa 50:23; Psa 69:30,31; Rom 12:1**
 
 ---
 
-[Monday 11-March, 2024](https://t.me/s/daily_light)
+[Tuesday 12-March, 2024](https://t.me/s/daily_light)
 
 > Jonathan Bagster, the son of Samuel Bagster, created the Daily Light for his own family's daily devotion in 1875
 
