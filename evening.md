@@ -1,15 +1,13 @@
 **Evening**
 
-**Things that are pleasing in his sight.**
+**O my God, my soul is cast down within me.**
  
-Without faith it is impossible to please him. -- So then they that are in the flesh cannot please God. -- The Lord taketh pleasure in his people.
+Thou wilt keep him in perfect peace, whose mind is stayed on thee: because he trusteth in thee. Trust ye in the Lord for ever: for in the Lord JEHOVAH is everlasting strength.
  
-This is thankworthy, if a man for conscience toward God endure grief, suffering wrongfully. If, when ye do well, and suffer for it, ye take it patiently, this is acceptable with God. -- The ornament of a meek and quiet spirit, ... is in the sight of God of great price.
+Cast thy burden upon the Lord, and he shall sustain thee. -- He hath not despised nor abhorred the affliction of the afflicted; neither hath he hid his face from him; but when he cried unto him, he heard. -- Is any among you afflicted? let him pray.
  
-Whoso offereth praise glorifieth me: and to him that ordereth his conversation aright will I shew the salvation of God. -- I will praise the name of God with a song, and will magnify him with thanksgiving. This also shall please the Lord better than an ox or bullock that hath horns and hoofs.
- 
-I beseech you, ... brethren, by the mercies of God, that ye present your bodies a living sacrifice, holy, acceptable unto God, which is your reasonable service.  
+Let not your heart be troubled, neither let it be afraid. -- Take no thought for your life, what ye shall eat, or what ye shall drink; nor yet for your body, what ye shall put on. Behold the fowls of the air: for they sow not, neither do they reap, nor gather into barns; yet your heavenly Father feedeth them. Are ye not much better than they? -- Be not faithless, but believing. -- Lo, I am with you alway.  
 
-**1 John 3:22; Heb 11:6; Rom 8:8; Psa 149:4; 1 Pet 2:19,20; 1 Pet 3:4; Psa 50:23; Psa 69:30,31; Rom 12:1**
+**Psa 42:6; Isa 26:3,4; Psa 55:22; Psa 22:24; Jas 5:13; John 14:27; Matt 6:25,26; John 20:27; Matt 28:20**
 
-[Tuesday 12-March, 2024](https://t.me/daily_light)
+[Wednesday 13-March, 2024](https://t.me/daily_light)

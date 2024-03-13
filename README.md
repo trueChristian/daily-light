@@ -1,34 +1,28 @@
 # Morning
 
-**The Lord make his face shine upon thee, and be gracious unto thee. The Lord lift up his countenance upon thee, and give thee peace.**
+**There is one God, and one mediator between God and man, the man Christ Jesus.**
  
-No man hath seen God at any time; the only begotten Son, which is in the bosom of the Father, he hath declared him. -- The brightness of his glory, and the express image of his person. -- The god of this world hath blinded the minds of them which believe not, lest the light of the glorious gospel of Christ, who is the image of God, should shine unto them.
+For as much ... as the children are partakers of flesh and blood, he also himself likewise took part of the same. Look unto me, and be ye saved, all the ends of the earth: for I am God, and there is none else.
  
-Make thy face to shine upon thy servant: save me for thy mercies sake. Let me not be ashamed, O Lord; for I have called upon thee. -- Lord, by thy favour thou hast made my mountain to stand strong: thou didst hide thy face, and I was troubled. -- Blessed is the people that know the joyful sound: they shall walk, O Lord, in the light of thy countenance.
- 
-The Lord will give strength unto his people; the Lord will bless his people with peace.
- 
-Be of good cheer; it is I; be not afraid.  
+We have an advocate with the Father, Jesus Christ the righteous. -- In Christ Jesus, ye who sometime were far off, are made nigh by the blood of Christ. For he is our peace. -- By his own blood he entered in once into the holy place, having obtained eternal redemption for us. And for this cause he is the mediator of the new testament, that by means of death, for the redemption of the transgressions that were under the first testament, they which are called might receive the promise of eternal inheritance. -- He is able also to save them to the uttermost that come unto God by him, seeing he ever liveth to make intercession for them.  
 
-**Num 6:25,26; John 1:18; Heb 1:3; 2 Cor 4:4; Psa 31:16,17; Psa 30:7; Psa 89:15; Psa 29:11; Matt 14:27**
+**1 Tim 2:5; Heb 2:14; Isa 45:22; 1 John 2:1; Eph 2:13,14; Heb 9:12,15; Heb 7:25**
 
 # Evening
 
-**Things that are pleasing in his sight.**
+**O my God, my soul is cast down within me.**
  
-Without faith it is impossible to please him. -- So then they that are in the flesh cannot please God. -- The Lord taketh pleasure in his people.
+Thou wilt keep him in perfect peace, whose mind is stayed on thee: because he trusteth in thee. Trust ye in the Lord for ever: for in the Lord JEHOVAH is everlasting strength.
  
-This is thankworthy, if a man for conscience toward God endure grief, suffering wrongfully. If, when ye do well, and suffer for it, ye take it patiently, this is acceptable with God. -- The ornament of a meek and quiet spirit, ... is in the sight of God of great price.
+Cast thy burden upon the Lord, and he shall sustain thee. -- He hath not despised nor abhorred the affliction of the afflicted; neither hath he hid his face from him; but when he cried unto him, he heard. -- Is any among you afflicted? let him pray.
  
-Whoso offereth praise glorifieth me: and to him that ordereth his conversation aright will I shew the salvation of God. -- I will praise the name of God with a song, and will magnify him with thanksgiving. This also shall please the Lord better than an ox or bullock that hath horns and hoofs.
- 
-I beseech you, ... brethren, by the mercies of God, that ye present your bodies a living sacrifice, holy, acceptable unto God, which is your reasonable service.  
+Let not your heart be troubled, neither let it be afraid. -- Take no thought for your life, what ye shall eat, or what ye shall drink; nor yet for your body, what ye shall put on. Behold the fowls of the air: for they sow not, neither do they reap, nor gather into barns; yet your heavenly Father feedeth them. Are ye not much better than they? -- Be not faithless, but believing. -- Lo, I am with you alway.  
 
-**1 John 3:22; Heb 11:6; Rom 8:8; Psa 149:4; 1 Pet 2:19,20; 1 Pet 3:4; Psa 50:23; Psa 69:30,31; Rom 12:1**
+**Psa 42:6; Isa 26:3,4; Psa 55:22; Psa 22:24; Jas 5:13; John 14:27; Matt 6:25,26; John 20:27; Matt 28:20**
 
 ---
 
-[Tuesday 12-March, 2024](https://t.me/s/daily_light)
+[Wednesday 13-March, 2024](https://t.me/s/daily_light)
 
 > Jonathan Bagster, the son of Samuel Bagster, created the Daily Light for his own family's daily devotion in 1875
 
