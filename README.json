@@ -1,40 +1,37 @@
 {
-  "date_key": "march-13",
-  "date_name": "Wednesday 13-March, 2024",
+  "date_key": "march-14",
+  "date_name": "Thursday 14-March, 2024",
   "evening": {
     "body": [
-      "Thou wilt keep him in perfect peace, whose mind is stayed on thee: because he trusteth in thee. Trust ye in the Lord for ever: for in the Lord JEHOVAH is everlasting strength.",
-      "Cast thy burden upon the Lord, and he shall sustain thee. -- He hath not despised nor abhorred the affliction of the afflicted; neither hath he hid his face from him; but when he cried unto him, he heard. -- Is any among you afflicted? let him pray.",
-      "Let not your heart be troubled, neither let it be afraid. -- Take no thought for your life, what ye shall eat, or what ye shall drink; nor yet for your body, what ye shall put on. Behold the fowls of the air: for they sow not, neither do they reap, nor gather into barns; yet your heavenly Father feedeth them. Are ye not much better than they? -- Be not faithless, but believing. -- Lo, I am with you alway."
+      "Of his own will begat he us with the word of truth. -- The letter killeth, but the spirit giveth life.",
+      "Christ ... loved the church, and gave himself for it; that he might sanctify and cleanse it with the washing of water by the word, that he might present it to himself a glorious church, not having spot, or wrinkle, or any such thing.",
+      "Wherewithal shall a young man cleanse his way? by taking heed thereto according to thy word. Thy word hath quickened me. Thy word have I hid in mine heart, that I might not sin against thee. I will not forget thy word. I trust in thy word. The law of thy mouth is better unto me than thousands of gold and silver. I will never forget thy precepts: for with them thou hast quickened me. How sweet are thy words unto my taste! yea, sweeter than honey to my mouth! Through thy precepts I get understanding: therefore I hate every false way."
     ],
-    "header": "O my God, my soul is cast down within me.",
+    "header": "The words that I speak unto you, they are spirit, and they are life.",
     "name": "Evening",
     "references": [
-      "Isa 26:3,4",
-      "Psa 55:22",
-      "Psa 22:24",
-      "Jas 5:13",
-      "John 14:27",
-      "Matt 6:25,26",
-      "John 20:27",
-      "Matt 28:20"
+      "Jas 1:18",
+      "2 Cor 3:6",
+      "Eph 5:25‑27",
+      "Psa 119:9,50,11,16,42,72,93,103,104"
     ]
   },
   "joomla": "https://git.vdm.dev/christian/mod_dailylight",
   "morning": {
     "body": [
-      "For as much ... as the children are partakers of flesh and blood, he also himself likewise took part of the same. Look unto me, and be ye saved, all the ends of the earth: for I am God, and there is none else.",
-      "We have an advocate with the Father, Jesus Christ the righteous. -- In Christ Jesus, ye who sometime were far off, are made nigh by the blood of Christ. For he is our peace. -- By his own blood he entered in once into the holy place, having obtained eternal redemption for us. And for this cause he is the mediator of the new testament, that by means of death, for the redemption of the transgressions that were under the first testament, they which are called might receive the promise of eternal inheritance. -- He is able also to save them to the uttermost that come unto God by him, seeing he ever liveth to make intercession for them."
+      "Let your conversation be as it becometh the gospel of Christ. -- Abstain from all appearance of evil. -- If ye be reproached for the name of Christ, happy are ye. But let none of you suffer as a murderer, or as a thief, or as an evildoer, or as a busybody in other men's matters. -- Be blameless and harmless, the sons of God, without rebuke, in the midst of a crooked and perverse nation, among whom ye shine as lights in the world. -- Let your light so shine before men, that they may see your good works, and glorify your Father which is in heaven.",
+      "Let not mercy and truth forsake thee: bind them about thy neck; write them upon the table of thine heart; so shalt thou find favour and good understanding in the sight of God and man. -- Brethren, whatsoever things are true, whatsoever things are honest, whatsoever things are just, whatsoever things are pure, whatsoever things are lovely, whatsoever things are of good report; if there be any virtue, and if there be any praise, think on these things."
     ],
-    "header": "There is one God, and one mediator between God and man, the man Christ Jesus.",
+    "header": "Adorn the doctrine of God our Saviour in all things.",
     "name": "Morning",
     "references": [
-      "Heb 2:14",
-      "Isa 45:22",
-      "1 John 2:1",
-      "Eph 2:13,14",
-      "Heb 9:12,15",
-      "Heb 7:25"
+      "Phl 1:27",
+      "1 Thes 5:22",
+      "1 Pet 4:14,15",
+      "Phl 2:15",
+      "Matt 5:16",
+      "Prov 3:3,4",
+      "Phl 4:8"
     ]
   },
   "source": "https://github.com/trueChristian/daily-light",
