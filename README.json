@@ -1,38 +1,37 @@
 {
-  "date_key": "march-15",
-  "date_name": "Friday 15-March, 2024",
+  "date_key": "march-16",
+  "date_name": "Saturday 16-March, 2024",
   "evening": {
     "body": [
-      "The heavens declare the glory of God; and the firmament sheweth his handywork. -- By the word of the Lord were the heavens made; and all the host of them by the breath of his mouth. For he spake, and it was done; he commanded, and it stood fast. -- Behold, the nations are as a drop of a bucket, and are counted as the small dust of the balance: behold, he taketh up the isles as a very little thing.",
-      "Through faith we understand that the worlds were framed by the word of God, so that things which are seen were not made of things which do appear.",
-      "When I consider thy heavens, the work of thy fingers, the moon and the stars, which thou hast ordained; what is man, that thou art mindful of him? and the son of man, that thou visitest him?"
+      "Be filled with the Spirit, speaking to yourselves in psalms and hymns and spiritual songs, singing and making melody in your heart to the Lord. -- Let the word of Christ dwell in you richly in all wisdom; teaching and admonishing one another in psalms and hymns and spiritual songs, singing with grace in your hearts to the Lord.",
+      "My mouth shall speak the praise of the Lord: and let all flesh bless his holy name for ever and ever. Praise ye the Lord: for it is good to sing praises unto our God; for it is pleasant; and praise is comely. Sing unto the Lord with thanksgiving; sing praise upon the harp unto our God.",
+      "I heard a voice from heaven, as the voice of many waters, and as the voice of a great thunder; and I heard the voice of harpers harping with their harps."
     ],
-    "header": "The Lord made heaven and earth, the sea, and all that in them is.",
+    "header": "I will sing with the spirit, and I will sing with the understanding also.",
     "name": "Evening",
     "references": [
-      "Psa 19:1",
-      "Psa 33:6,9",
-      "Isa 40:15",
-      "Heb 11:3",
-      "Psa 8:3,4"
+      "Eph 5:18,19",
+      "Col 3:16",
+      "Psa 145:21",
+      "Psa 147:1,7",
+      "Rev 14:2"
     ]
   },
   "joomla": "https://git.vdm.dev/christian/mod_dailylight",
   "morning": {
     "body": [
-      "My soul is exceeding sorrowful, even unto death: tarry here, and watch with me. And he went a little farther, and fell on his face, and prayed, saying, O my Father, if it be possible, let this cup pass from me: nevertheless not as I will, but as thou wilt. -- And being in an agony he prayed more earnestly: and his sweat was as it were great drops of blood falling down to the ground.",
-      "The sorrows of death compassed me, and the pains of hell gat hold upon me: I found trouble and sorrow. -- Reproach hath broken my heart; and I am full of heaviness: and I looked for some to take pity, but there was none; and for comforters, but I found none. -- I looked on my right hand, and behold, but there was no man that would know me: refuge failed me; no man cared for my soul.",
-      "He is despised and rejected of men; a man of sorrows, and acquainted with grief: and we hid as it were our faces from him; he was despised, and we esteemed him not."
+      "My days are swifter than a post: they flee away, they see no good. They are passed away as the swift ships: as the eagle that hasteth to the prey. -- Thou carriest them away as with a flood; they are as a sleep ... in the morning they are like grass which groweth up. In the morning it flourisheth, and groweth up: in the evening it is cut down, and withereth. -- Man that is born of a woman is of few days, and full of trouble. He cometh forth like a flower, and is cut down.",
+      "The world passeth away, and the lust thereof: but he that doeth the will of God abideth for ever. -- They shall perish, but thou shalt endure: yea, all of them shall wax old like a garment; as a vesture shalt thou change them, and they shall be changed: but thou art the same, and thy years shall have no end. -- Jesus Christ, the same yesterday, and today, and forever."
     ],
-    "header": "Perfect through sufferings.",
+    "header": "What is your life? It is even a vapour, that appeareth for a little time, and then vanisheth away.",
     "name": "Morning",
     "references": [
-      "Matt 26:38,39",
-      "Luke 22:44",
-      "Psa 116:3",
-      "Psa 69:20",
-      "Psa 142:4",
-      "Isa 53:3"
+      "Job 9:25,26",
+      "Psa 90:5,6",
+      "Job 14:2",
+      "1 John 2:17",
+      "Psa 102:26,27",
+      "Heb 13:8"
     ]
   },
   "source": "https://github.com/trueChristian/daily-light",
