@@ -1,15 +1,15 @@
 **Evening**
 
-**His name shall be in their foreheads.**
+**Strengthen thou me according unto thy word.**
  
-I am the good shepherd, and know my sheep. -- The foundation of God standeth sure, having this seal, The Lord knoweth them that are his. And, Let every one that nameth the name of Christ depart from iniquity.
+Remember the word unto thy servant, upon which thou has caused me to hope. -- O Lord, I am oppressed; undertake for me.
  
-The Lord is good, a strong hold in the day of trouble; and he knoweth them that trust in him. -- Hurt not the earth, neither the sea, nor the trees, till we have sealed the servants of our God in their foreheads.
+Heaven and earth shall pass away: but my words shall not pass away. -- Ye know in all your hearts and in all your souls, that not one thing hath failed of all the good things which the Lord your God spake concerning you; all are come to pass unto you, and not one thing hath failed thereof.
  
-After that ye believed, ye were sealed with that holy Spirit of promise, which is the earnest of our inheritance. -- Now he which stablisheth us with you in Christ, and hath anointed us, is God; who hath also sealed us, and given the earnest of the Spirit in our hearts.
+Fear not: peace be unto thee, be strong, yea, be strong. And when he had spoken unto me, I was strengthened, and said, Let my lord speak; for thou hast strengthened me. -- Be strong, ... and work: for I am with you, saith the Lord of hosts. -- Not by might nor by power, but by my spirit, saith the Lord of hosts.
  
-I will write upon him the name of my God, and the name of the city of my God, which is new Jerusalem, which cometh down out of heaven from my God: and I will write upon him my new name. -- This is the name wherewith she shall be called, The Lord our Righteousness.  
+Be strong in the Lord, and in the power of his might.  
 
-**Rev 22:4; John 10:14; 2 Tim 2:19; Nah 1:7, ‑rev 7:3; Eph 1:13,14; 2 Cor 1:21,22; Rev 3:12; Jer 33:16**
+**Psa 119:28; Psa 119:49; Isa 38:14; Luke 21:33; Josh 23:14; Dan 10:19; Hag 2:4; Zech 4:6; Eph 6:10**
 
-[Monday 18-March, 2024](https://t.me/daily_light)
+[Tuesday 19-March, 2024](https://t.me/daily_light)
