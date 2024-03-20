@@ -1,34 +1,32 @@
 # Morning
 
-**God, having raised up his Son Jesus, sent him to bless you, in the turning away every one of you from his iniquities.**
+**The entrance of thy words giveth light.**
  
-Blessed be the God and Father of our Lord Jesus Christ, which according to his abundant mercies hath begotten us again unto a lively hope by the resurrection of Jesus Christ from the dead. -- Saved by his life.
+This ... is the message which we have heard of him, and declare unto you, that God is light, and in him is no darkness at all. -- God, who commanded the light to shine out of darkness, hath shined in our hearts, to give the light of the knowledge of the glory of God in the face of Jesus Christ. -- The Word was God. In him was life; and the life was the light of men. -- If we walk in the light, as he is in the light, we have fellowship one with another and the blood of Jesus Christ his Son cleanseth us from all sin.
  
-Our Saviour Jesus Christ ... who gave himself for us that he might redeem us from all iniquity, and purify unto himself a peculiar people, zealous of good works. -- As he which hath called you is holy, so be ye holy in all manner of conversation; because it is written, Be ye holy for I am holy.
+Thy word have I hid in mine heart, that I might not sin against thee. -- Ye are clean through the word which I have spoken unto you.
  
-The God and Father of our Lord Jesus Christ, ... hath blessed us with all spiritual blessings in heavenly places in Christ. -- In him dwelleth all the fulness of the Godhead bodily. And ye are complete in him. -- Of his fulness have all we received, and grace for grace.
- 
-He that spared not his own son, but delivered him up for us all, how shall he not with him also freely give us all things?  
+Ye were sometimes darkness, but now are ye light in the Lord: walk as children of light. -- Ye are a chosen generation, a royal priesthood, a holy nation, a peculiar people; that ye should shew forth the praises of him who hath called you out of darkness into his marvellous light.  
 
-**Acts 3:26; 1 Pet 1:3; Rom 5:10; Tit 2:13,14; 1 Pet 1:15,16; Eph 1:3; Col 2:9,10; John 1:16; Rom 8:32**
+**Psa 119:130; 1 John 1:5; 2 Cor 4:6; John 1:1,4; 1 John 1:7; Psa 119:11; John 15:3; Eph 5:8; 1 Pet 2:9**
 
 # Evening
 
-**Strengthen thou me according unto thy word.**
+**Noah was a just man.**
  
-Remember the word unto thy servant, upon which thou has caused me to hope. -- O Lord, I am oppressed; undertake for me.
+The just shall live by faith. -- Noah builded an altar unto the Lord; and took of every clean beast, and of every clean fowl, and offered burnt offerings on the altar. And the Lord smelled a sweet savour. -- The Lamb slain from the foundation of the world.
  
-Heaven and earth shall pass away: but my words shall not pass away. -- Ye know in all your hearts and in all your souls, that not one thing hath failed of all the good things which the Lord your God spake concerning you; all are come to pass unto you, and not one thing hath failed thereof.
+Being justified by faith, we have peace with God through our Lord Jesus Christ.
  
-Fear not: peace be unto thee, be strong, yea, be strong. And when he had spoken unto me, I was strengthened, and said, Let my lord speak; for thou hast strengthened me. -- Be strong, ... and work: for I am with you, saith the Lord of hosts. -- Not by might nor by power, but by my spirit, saith the Lord of hosts.
+By the deeds of the law there shall no flesh be justified in his sight: for by the law is the knowledge of sin. But now the righteousness of God without the law is manifested, being witnessed by the law and the prophets; even the righteousness of God which is by faith of Jesus Christ unto all and upon all them that believe for there is no difference.
  
-Be strong in the Lord, and in the power of his might.  
+We ... joy in God, through our Lord Jesus Christ, by whom we have now received the atonement. Who shall lay any thing to the charge of God's elect ? It is God that justifieth. -- Whom he did predestinate, them he also called: and whom he called, them he also justified.  
 
-**Psa 119:28; Psa 119:49; Isa 38:14; Luke 21:33; Josh 23:14; Dan 10:19; Hag 2:4; Zech 4:6; Eph 6:10**
+**Gen 6:9; Gal 3:11; Gen 8:20,21; Rev 13:8; Rom 5:1; Rom 3:20-22; Rom 5:11; Rom 8:33; Rom 8:30**
 
 ---
 
-[Tuesday 19-March, 2024](https://t.me/s/daily_light)
+[Wednesday 20-March, 2024](https://t.me/s/daily_light)
 
 > Jonathan Bagster, the son of Samuel Bagster, created the Daily Light for his own family's daily devotion in 1875
 
