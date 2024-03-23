@@ -1,11 +1,11 @@
 **Morning**
 
-**Lot lifted up his eyes, and beheld all the plain of Jordan, that it was well watered every where, before the Lord destroyed Sodom and Gomorrah, even as the garden of the Lord. Then Lot chose him all the plain of Jordan.**
+**Holy, holy, holy, Lord God Almighty.**
  
-Just Lot ... that righteous man. Be not deceived; God is not mocked: for whatsoever a man soweth, that shall he also reap. -- Remember Lot's wife.
+Thou art holy, O thou that inhabitest the praises of Israel. -- Draw not nigh hither; put off thy shoes from off thy feet, for the place whereon thou standest is holy ground ... I am the God of thy father, the God of Abraham, the God ot Isaac, and the God of Jacob. And Moses hid his face; for he was afraid to look upon God. -- To whom then will ye liken me, or shall I be equal? saith the Holy One. -- I am the Lord thy God, the Holy One of Israel, thy Saviour. I, even I, am the Lord; and beside me there is no saviour.
  
-Be ye not unequally yoked together with unbelievers: for what fellowship hath righteousness with unrighteousness? and what communion hath light with darkness? Wherefore come out from among them, and be ye separate, saith the Lord, and touch not the unclean thing. -- Be not ye ... partakers with them. For ye were sometime darkness, but now are ye light in the Lord: walk as children of light: proving what is acceptable unto the Lord. And have no fellowship with the unfruitful works of darkness, but rather reprove them.  
+As he which hath called you is holy, so be ye holy in all manner of conversation; because it is written, Be ye holy; for I am holy. -- Know ye not that your body is the temple of the Holy Ghost which is in you, which ye have of God, and ye are not your own. -- Ye are the temple of the living God; as God hath said, I will dwell in them, and walk in them; and I will be their God, and they shall be my people. -- Can two walk together, except they be agreed?  
 
-**Gen 13:10,11; 2 Pet 2:7,8; Gal 6:7; Luke 17:32; 2 Cor 6:14,17; Eph 5:7,8,10,11**
+**Rev 4:8; Psa 22:3; Exo 3:5,6; Isa 40:25; Isa 43:3,11; 1 Pet 1:15,16; 1 Cor 6:19; 2 Cor 6:16; Amos 3:3**
 
-[Friday 22-March, 2024](https://t.me/daily_light)
+[Saturday 23-March, 2024](https://t.me/daily_light)
