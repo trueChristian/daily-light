@@ -1,13 +1,15 @@
 **Morning**
 
-**Abraham believed in the Lord; and he counted it to him for righteousness.**
+**I will never leave thee, nor forsake thee.**
  
-He staggered not at the promise of God through unbelief; but was strong in faith, giving glory to God; and being fully persuaded that, what he had promised, he was able also to perform. And therefore it was imputed to him for righteousness. Now it was not written for his sake alone, that it was imputed to him: but for us also, to whom it shall be imputed, if we believe on him that raised up Jesus our Lord from the dead.
+So that we may boldly say, The Lord is my helper, and I will not fear what man shall do unto me.
  
-The promise, that he should be the heir of the world, was not to Abraham, or to his seed, through the law, but through the righteousness of faith.
+Behold, I am with thee, and will keep thee in all places whither thou goest, and will bring thee again into this land; for I will not leave thee, until I have done that which I have spoken to thee of. -- Be strong and of a good courage, fear not, nor be afraid of them: for the Lord thy God, he it is that doth go with thee; he will not fail thee, nor forsake thee.
  
-The just shall live by faith. -- Let us hold fast the profession of our faith without wavering; (for he is faithful that promised). -- Our God is in the heavens; he hath done whatsoever he hath pleased. -- With God nothing shall be impossible. And blessed is she that believed: for there shall be a performance of those things which were told her from the Lord.  
+Demas hath forsaken me, having loved this present world. At my first answer no man stood with me, but all men forsook me: I pray God that it may not be laid to their charge. Notwithstanding the Lord stood with me, and strengthened me. -- When my father and my mother forsake me, then the Lord will take me up.
+ 
+Look, I am with you always, even unto the end of the world. -- I am he that liveth, and was dead; and, behold, I am alive for evermore. -- I will not leave you comfortless; I will come to you. -- My peace I give unto you.  
 
-**Gen 15:6; Rom 4:20‑24; Rom 4:13; Rom 1:17; Heb 10:23; Psa 115:3; Luke 1:37,45**
+**Heb 13:5; Heb 13:6; Gen 28:15; Deut 31:6; 2 Tim 4:10,16,17; Psa 27:10; Matt 28:20; Rev 1:18; John 14:18; John 14:27**
 
-[Sunday 24-March, 2024](https://t.me/daily_light)
+[Monday 25-March, 2024](https://t.me/daily_light)
