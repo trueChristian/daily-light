@@ -1,15 +1,13 @@
 **Evening**
 
-**Master, we have toiled all the night, and have taken nothing; nevertheless at thy word I will let down the net.**
+**Distributing to the necessity of saints.**
  
-All power is give unto me in heaven and in earth. Go ye therefore and teach all nations, baptizing them in the name of the Father, and of the Son, and of the Holy Ghost: ... and, lo, I am with you alway, even unto the end of the world.
+David said, Is there yet any that is left ... of the house of Saul, that I may shew him kindness for Jonathan's sake?
  
-The kingdom of heaven is like unto a net, that was cast into the sea.
+Come, ye blessed of my Father, inherit the kingdom prepared for you from the foundation of the world: for I was an hungered, and ye gave me meat: I was thirsty, and ye gave me drink: I was a stranger, and ye took me in: naked, and ye clothed me: I was sick, and ye visited me: I was in prison, and ye came unto me. Inasmuch as ye have done it unto one of the least of these my brethren, ye have done it unto me. -- Whosoever shall give to drink one of these little ones a cup of cold water only in the name of a disciple, verily I say unto you, he shall in no wise lose his reward.
  
-Though I preach the gospel, I have nothing to glory of: necessity is laid upon me; yea, woe is unto me, if I preach not gospel! I am made all things to all men, that I might by all means save some.
- 
-Let us not be weary in well doing: for in due season we shall reap, if we faint not. -- My word ... shall not return unto me void, but it shall accomplish that which I please. -- So then neither is he that planteth any thing, neither he that watereth; but God that giveth the increase.  
+To do good and to communicate forget not: for with such sactifices God is well pleased. -- God is not unrighteous to forget your work and labour of love, which ye have shewed toward his name, in that ye have ministered to the saints, and do minister.  
 
-**Luke 5:5; Matt 28:18‑20; Matt 13:47; 1 Cor 9:16,22; Gal 6:9; Isa 55:11; 1 Cor 3:7**
+**Rom 12:13; 2 Sam 9:1; Matt 25:34‑36,40; Matt 10:42; Heb 13:16; Heb 6:10**
 
-[Monday 25-March, 2024](https://t.me/daily_light)
+[Tuesday 26-March, 2024](https://t.me/daily_light)
