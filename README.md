@@ -1,30 +1,32 @@
 # Morning
 
-**The kingdom of heaven is as a man travelling into a far country, who called his own servants, and delivered unto them his goods ... to every man according to his several ability.**
+**To him that soweth righteousness shall be a sure reward.**
  
-Know ye not, that to whom ye yield yourselves servants to obey, his servants ye are to whom ye obey?
+After a long time the lord of those servants cometh, and reckoneth with them. And so he that had received five talents came and brought other five talents, saying, Lord, thou deliveredst unto me five talents: behold, I have gained beside them five talents more. His lord said unto him, Well done, thou good and faithful servant: thou hast been faithful over a few things, I will make thee ruler over many things; enter thou into the joy of thy lord.
  
-All these worketh that one and the selfsame Spirit, dividing to every man severally as he will. The manifestation of the Spirit is given to every man to profit withal. -- As every man hath received the gift, even so minister the same one to another, as good stewards of the manifold grace of God. -- It is required in stewards, that a man be found faithful. --Unto whomsoever much is given, of him shall be much required: and to whom men have commited much, of him they will ask the more.
+We must all appear before the judgment seat of Christ; that every one may receive the things done in his body, according to that he hath done, whether it be good or bad.
  
-Who is sufficient for these things? -- I can do all things through Christ which strengtheneth me.  
+I have fought a good fight, I have finished my course, I have kept the faith: henceforth there is laid up for me a crown of righteousness, which the Lord, the righteous judge, shall give me at that day: and not to me only, but unto all them also that love his appearing.
+ 
+Behold, I come quickly: hold that fast which thou hast, that no man take thy crown.  
 
-**Matt 23:14,13; Rom 6:16; 1 Cor 12:11,7; 1 Pet 4:10; 1 Cor 4:2; Luke 12:48; 2 Cor 2:16; Phl 4:13**
+**Prov 11:18; Matt 25:19‑21; 2 Cor 5:10; 2 Tim 4:7,8; Rev 3:11**
 
 # Evening
 
-**Distributing to the necessity of saints.**
+**God is faithful.**
  
-David said, Is there yet any that is left ... of the house of Saul, that I may shew him kindness for Jonathan's sake?
+God is not a man that he should lie; neither the Son of man that he should repent: hath he said, and shall he not do it? or hath he spoken, and shall he not make it good? -- The Lord sware and will not repent.
  
-Come, ye blessed of my Father, inherit the kingdom prepared for you from the foundation of the world: for I was an hungered, and ye gave me meat: I was thirsty, and ye gave me drink: I was a stranger, and ye took me in: naked, and ye clothed me: I was sick, and ye visited me: I was in prison, and ye came unto me. Inasmuch as ye have done it unto one of the least of these my brethren, ye have done it unto me. -- Whosoever shall give to drink one of these little ones a cup of cold water only in the name of a disciple, verily I say unto you, he shall in no wise lose his reward.
+God, willing more abundantly to shew unto the heirs of promise the immutability of his counsel, confirmed it by an oath: that by two immutable things, in which it was impossible for God to lie, we might have a strong consolation, who have fled for refuge to lay hold upon the hope set before us. -- Wherefore let them that suffer according to the will of God commit the keeping of their souls to him in well doing, as unto a faithful Creator.
  
-To do good and to communicate forget not: for with such sactifices God is well pleased. -- God is not unrighteous to forget your work and labour of love, which ye have shewed toward his name, in that ye have ministered to the saints, and do minister.  
+I know whom I have believed, and am persuaded that he is able to keep that which I have committed unto him against that day -- Faithful is he that calleth you, who also will do it. -- All the promises of God in him are yea, and in him Amen, unto the glory of God by us.  
 
-**Rom 12:13; 2 Sam 9:1; Matt 25:34‑36,40; Matt 10:42; Heb 13:16; Heb 6:10**
+**1 Cor 10:13; Num 23:19; Heb 7:21; Heb 6:17,18; 1 Pet 4:19; 2 Tim 1:12; 1 Thes 5:24; 2 Cor 1:20**
 
 ---
 
-[Tuesday 26-March, 2024](https://t.me/s/daily_light)
+[Wednesday 27-March, 2024](https://t.me/s/daily_light)
 
 > Jonathan Bagster, the son of Samuel Bagster, created the Daily Light for his own family's daily devotion in 1875
 
