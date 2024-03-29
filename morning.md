@@ -1,13 +1,13 @@
 **Morning**
 
-**Be strong and of a good courage.**
+**Come, ye blessed of my Father, inherit the kingdom prepared for you from the foundation of the world.**
  
-The Lord is my light and my salvation: whom shall I fear? the Lord is the strength of my life: of whom shall I be afraid? -- He giveth power to the faint; and to them that have no might he increaseth strength. Even the youths shall faint and be weary, and the young men shall utterly fall: but they that wait upon the Lord shall renew their strength; they shall mount up with wings as eagles; they shall run, and not be weary; and they shall walk, and not faint. -- My flesh and my heart faileth: but God is the strength of my heart, and my portion for ever.
+Fear not, little flock; for it is your Father's good pleasure to give you the kingdom. -- Hath not God chosen the poor of this world rich in faith, and heirs of the kingdom which he hath promised to them that love him? -- Heirs of God, and joint‑heirs with Christ; if so be that we suffer with him, that we may be also glorified together.
  
-If God be for us, who can be against us? -- The Lord is on my side; I will not fear: what can man do unto me? -- Through thee will we push down our enemies: through thy name will we tread them under that rise up against us. -- We are more than conquerors through him that loved us.
+The Father himself loveth you, because ye have loved me. -- God is not ashamed to be called their God: for he hath prepared for them a city.
  
-Arise therefore, and be doing, and the Lord be with thee.  
+He that overeometh shall inherit all things; and I will be his God, and he shall be my son. -- There is laid up for me a crown of righteousness, which the Lord, the righteous judge, shall give me at that day: and not to me only, but unto all them also that love his appearing. -- He which hath begun a good work in you will perform it until the day of Jesus Christ.  
 
-**Josh 1:18; Psa 27:1; Isa 40:29‑31; Psa 73:26; Rom 8:31; Psa 118:6; Psa 44:5; Rom 8:37; 1 Chr 22:16**
+**Matt 25:34; Luke 12:32; Jas 2:5; Rom 8:17; John 16:27; Heb 11:16; Rev 21:7; 2 Tim 4:8; Phl 1:6**
 
-[Thursday 28-March, 2024](https://t.me/daily_light)
+[Friday 29-March, 2024](https://t.me/daily_light)
