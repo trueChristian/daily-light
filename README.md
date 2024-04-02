@@ -1,30 +1,30 @@
 # Morning
 
-**The fruit of the Spirit is joy.**
+**If ye do return unto the Lord with all your hearts, then put away the strange gods and Ashtaroth from among you, and prepare your hearts unto the Lord, and serve him only.**
  
-Joy in the Holy Ghost. -- Unspeakable and full of glory. Sorrowful, yet always rejoicing; ... exceeding joyful in all our tribulation. -- We glory in tribulations.
+Little children, keep yourselves from idols. -- Come out from among them, and be ye separate, saith the Lord, and touch not the unclean thing; and I will receive you, and will be a Father you, and ye shall be my sons and daughters, saith the Lord Almighty. -- Ye cannot serve God and Mammon.
  
-Jesus the author and finisher of our faith; ... for the joy that was set before him, endured the cross, despising the shame. -- These things have I spoken unto you, that my joy might remain in you, and that your joy might be fuIl. -- As the sufferings of Christ abound in us, so our consolation also aboundeth by Christ.
+Thou shalt worship no other god: for the Lord, whose name is Jealous, is a jealous God. -- Serve him with a perfect heart with a willing mind: for the Lord searcheth all hearts, and understandeth all the imaginations of the thoughts.
  
-Rejoice in the Lord alway: and again I say, Rejoice. -- The joy of the Lord is your strength. In thy presence is fulness of joy: at thy right hand there are pleasures for evermore. -- For the Lamb which is in the midst of the throne shall feed them, and shall lead them unto living fountains of waters: and God shall wipe away all tears from their eyes.  
+Behold, thou desireth truth in the inward parts: and in the hidden part thou shalt make me to know wisdom. -- Man looketh on the outward appearance, but the Lord looketh on the heart. -- Beloved, if our heart condemn us not, then have we confidence toward God.  
 
-**Gal 5:22; Rom 14:17; 1 Pet 1:8; 2 Cor 6:10; 7,4; Rom 5:3; Heb 122; John 15:11; 2 Cor 1:5; Phl 4:4; Neh 8:10; Psa 16:11; Rev 7:17**
+**1 Sam 7:3; 1 John 5:21; 2 Cor 6:17,18; Matt 6:24; Exo 34:14; 1 Chr 28:9; Psa 51:6; 1 Sam 16:7; 1 John 3:21**
 
 # Evening
 
-**Jehovah‑shalom: (The Lord send peace.)**
+**When the Son of man cometh, shall he find faith on the earth?**
  
-Behold, a son shall be born to thee, who shall be a man of rest, and I will give him rest from all his enemies round about: for his name shall be Solomon, and I will give peace and quietness unto Israel in his days.
+He came unto his own, and his own received him not. -- The Spirit speaketh expressly, that in the latter times some shall from the faith.
  
-Behold, a greater than Solomon is here. -- Unto us a child is born, unto us a son is given; and the government shall be upon his shoulder, and his name shall be called Wonderful, Counsellor, the mighty God, the everlasting Father, the Prince of Peace. -- My people shall dwell in a peaceable habitation, and in sure dwellings, and in quiet resting places; when it shall hail, coming down on the forest ; and the city shall be low in a low place.
+Preach the word; be instant in season, out of season; reprove rebuke, exhort with all longsuffering and doctrine. For the time will come when they will not endure sound doctrine; but after their own lusts shall they heap to themselves teachers, having itching ears; and they shall turn away their ears from the truth and shall be turned unto fables.
  
-He is our peace. -- This man shall be the peace when the Assyrian shall come into our land. These shall make war with the Lamb, and the Lamb shall overcome them: for he is Lord of lords, and King of kings. Peace I leave with you, my peace I give unto you.  
+Of that day and that hour knoweth no man, no, not the angels which are in heaven, neither the Son, but the Father. Take ye heed, watch and pray: for ye know not when the time is. -- Blessed are those servants, whom the lord when he cometh shall find watching. -- Looking for that blessed hope, ... the glorious appearing of the great God, and our Saviour Jesus Christ,  
 
-**Judg 6:24; 1 Chr 22:9; Matt 12:42; Isa 9:6; Isa 32:18,19; Eph 2:14; Mic 5:5; Rev 17:14; John 14:27**
+**Luke 18:8; John 1:11; 1 Tim 4:1; 2 Tim 4:2-4; Mark 13:32,33; Luke 12:37; Tit 2:13**
 
 ---
 
-[Monday 01-April, 2024](https://t.me/s/daily_light)
+[Tuesday 02-April, 2024](https://t.me/s/daily_light)
 
 > Jonathan Bagster, the son of Samuel Bagster, created the Daily Light for his own family's daily devotion in 1875
 
