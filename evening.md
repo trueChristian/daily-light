@@ -1,13 +1,13 @@
 **Evening**
 
-**They shall see his face.**
+**I will mention the lovingkindnesses of the Lord, and the praises of the Lord, according to all that the Lord hath bestowed on us.**
  
-I beseech thee shew me thy glory. And he said, Thou canst not see my face: for there shall no man see me, and live. -- No man hath seen God at any time; the only begotten Son, which is in the bosom of the Father, he hath declared him.
+He brought me up ... out of an horrible pit, out of the miry clay, and set my feet upon a rock, and established my goings. -- The Son of God ... loved me, and gave himself for me. -- He that spared not his own Son, but delivered him up for us all, how shall he not with him also freely give us all things? -- God commendeth love toward us, in that, while we were yet sinners, Christ died us.
  
-Every eye shall see him, and they also which pierced him: and all kindreds of the earth shall wail because of him. -- I shall see him, but not now: I shall behold him, but not nigh.
+Who hath also sealed us, and given the earnest of the Spirit in our hearts. -- Which is the earnest of our inheritance until the redemption of the purchased possession, unto the praise of his glory.
  
-I know that my Redeemer liveth, and that he shall stand at the latter day upon the earth: and though after my skin worms destroy this body, yet in my flesh shall I see God. -- I will behold thy face in righteousness: I shall be satisfied, when I awake, with thy likeness. -- We shall be like him; for we shall see him as he is. -- The Lord himself shall descend from heaven ... the dead in Christ shall rise first: then we which are alive and remain shall be caught up together with them in the clouds, to meet the Lord in the air: and so shall we ever be with the Lord.  
+God, who is rich in mercy, for his great love wherewith he loved us, even when we were dead in sins, hath quickened us together with Christ, (by grace ye are saved;) and hath raised us up together, and made us sit together in heavenly places in Christ Jesus.  
 
-**Rev 22:4; Exo 33:18,20; John 1:18; Rev 1:7; Num 24:17; Job 19:25,26; Psa 17:15; 1 John 3:2; 1 Thes 4:16,17**
+**Isa 43:7; Psa 40:2; Gal 2:20; Rom 8:32; Rom 5:8; 2 Cor 1:22; Eph 1:14; Eph 2:4‑6**
 
-[Monday 08-April, 2024](https://t.me/daily_light)
+[Tuesday 09-April, 2024](https://t.me/daily_light)
