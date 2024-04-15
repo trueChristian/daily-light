@@ -1,34 +1,34 @@
 # Morning
 
-**My soul shall be satisfied as with marrow and fatness; and my mouth shall praise thee with joyful lips: when I remember thee upon my bed, and meditate on thee in the night watches.**
+**Their Redeemer is strong.**
  
-How precious ... are thy thoughts unto me, O God! how great is the sum of them! If I should count them, they are more in number than the sand: when I awake, I am still with thee. -- How sweet are thy words unto my taste! yea, sweeter than honey to my mouth! -- Thy love is better than wine.
+I know your manifold transgressions and your mighty sins. -- I have laid help upon one that is mighty. -- The Lord ... thy Saviour and thy Redeemer, the mighty one of Jacob. -- Mighty to save. -- Able to keep you from falling. -- Where sin abounded, grace did much more abound.
  
-Whom have I in heaven but thee? and there is none upon earth that I desire beside thee. -- Thou art fairer than the children of men.
+He that believeth on him is not condemned: but he that believeth not is condemned already, because he hath not believed in the name of the only begotten Son of God. -- He is able ... to save them to the uttermost that come unto God by him.
  
-As the apple tree among the trees of the wood, so is my beloved among the sons. I sat down under his shadow with great delight, and his fruit was sweet to my taste. He brought me to the banqueting house, and his banner over me was love. -- His countenance is as Lebanon, excellent as the cedars. His mouth is most sweet: yea, he is altogether lovely. This is my beloved, and this is my friend.  
+Is my hand shortened at all, that it cannot redeem?
+ 
+Who shall separate us from the love of Christ? ... I am persuaded, that neither death, nor life, nor angels, nor principalities, nor powers, nor things present, nor things to come, nor height, nor depth, nor any other creature, shall be able to separate us from the love of God, which is in Christ Jesus our Lord.  
 
-**Psa 63:5,6; Psa 139:17,18; Psa 119:103; Song 1:2; Psa 73:25; Psa 45:2; Song 2:3,4; Song 5:15,16**
+**Jer 50:34; Amos 5:12; Psa 89:19; Isa 49:26; Isa 63:1; Jude 24; Rom 5:20; John 3:18; Heb 7:25; Isa 50:2; Rom 8:35,38,39**
 
 # Evening
 
-**Restore unto me the joy of thy salvation.**
+**Seekest thou great things for thyself? seek them not.**
  
-I have seen his ways, and will heal him: I will lead him also, and restore comforts unto him and to his mourners.
+Take my yoke upon you, and learn of me; for I am meek and lowly in heart: and ye shall find rest unto your souls. -- Let this mind be in you, which was also in Christ Jesus; who, being in the form of God, thought it not robbery to be equal with God: but made himself of no reputation, and took upon him the form of a servant, and was made in the likeness of men: and being found in fashion as a man, he humbled himself, and became obedient unto death, even the death of the cross.
  
-Come now, and let us reason together, saith the Lord: though your sins be as scarlet, they shall be as white as snow; though they be red like crimson, they shall be as wool. -- Return, ye backsliding children, and I will heal your backslidings. Behold, we come unto thee; for thou art the Lord our God. -- I will hear what God the Lord will speak: for he will speak peace unto his people, and to his saints: but let them not turn again to folly.
+He that taketh not his cross, and followeth after me, is not worthy of me. -- Christ ... suffered for us, leaving us an example, that ye should follow his steps.
  
-Bless the Lord, O my soul, and forget not all his benefits: who forgiveth all thine iniquities; who healeth all thy diseases. -- He restoreth my soul. -- O Lord, I will praise thee: though thou wast angry with me, thine anger is turned away, and thou comfortedst me.
+Godliness with contentment is great gain. For we brought nothing into this world, and it is certain we can carry nothing out. And having food and raiment let us be therewith content.
  
-Hold thou me up, and I shall be safe.
- 
-I, even I, am he that blotteth out thy transgressions for mine own sake, and will not remember thy sins.  
+I have learned, in whatsoever state I am, therewith to be content.  
 
-**Psa 51:12; Isa 57:18; Isa 1:18; Jer 3:22; Psa 85:8; Psa 103:2,3; Psa 23:3; Isa 12:1; Psa 119:117; Isa 43:25**
+**Jer 45:5; Matt 11:29; Phl 2:5‑8; Matt 10:38; 1 Pet 2:21; 1 Tim 6:6‑8; Phl 4:11**
 
 ---
 
-[Sunday 14-April, 2024](https://t.me/s/daily_light)
+[Monday 15-April, 2024](https://t.me/s/daily_light)
 
 > Jonathan Bagster, the son of Samuel Bagster, created the Daily Light for his own family's daily devotion in 1875
 
