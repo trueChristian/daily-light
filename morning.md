@@ -1,11 +1,13 @@
 **Morning**
 
-**I said in my haste, I am cut off from before thine eves: nevertheless thou heardest the voice of my supplications when I cried unto thee.**
+**Whoso offereth praise glorifieth me.**
  
-I sink in deep mire, where there is no standing: I am come into deep waters, where the floods overflow me. -- Waters flowed over mine head; then I said, I am cut off. I called upon thy name, O Lord, out of the low dungeon. Thou hast heard my voice: hide not thine ear at my breathing, at my cry. Thou drewest near in the day that I called upon thee: thou saidst, Fear not.
+Let the word of Christ dwell in you richly in all wisdom; teaching and admonishing one another in psalms and hymns and spiritual songs, singing with grace in your hearts to the Lord. And whatsoever ye do in word or deed, do all in the name of the Lord Jesus, giving thanks to God and the Father by him. -- Glorify God in your body, and in your spirit, which are God's.
  
-Will the Lord cast off for ever? and will he be favourable no more? Is his mercy clean gone for ever? doth his promise fail for evermore? Hath God forgotten to be gracious? hath he in anger shut up his tender mercies? And I said, This is my infirmity: but I will remember the years of the right hand of the most High. I will remember the works of the Lord: surely I will remember thy wonders of old. -- I had fainted, unless I had believed to see the goodness of the Lord in the land of the living.  
+Ye are a royal priesthood ... that ye should shew forth the praises of him who hath called you out of darkness into his marvelous light. -- Ye ... as lively stones, are built up a spiritual house, a holy priesthood, to offer up spiritual sacrifices, acceptable to God by Jesus Christ. -- By him ... let us offer the sacrifice of praise to God continually, that is, the fruit of our lips, giving thanks to his name.
+ 
+My soul shall make her boast in the Lord: the humble shall hear thereof, and be glad. O magnify the Lord with me, and let us exalt his name together.  
 
-**Psa 31:32; Psa 69:2; Lam 3:54‑57; Psa 77:7‑11; Psa 27:13**
+**Psa 50:23; Col 3:16,17; 1 Cor 6:20; 1 Pet 2:9; 1 Pet 2:5; Heb 13:15; Psa 34:2,3**
 
-[Tuesday 16-April, 2024](https://t.me/daily_light)
+[Wednesday 17-April, 2024](https://t.me/daily_light)

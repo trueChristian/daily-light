@@ -1,13 +1,13 @@
 **Evening**
 
-**He shall call upon me, and I will answer him: I will be with him in trouble, I will deliver him.**
+**Draw me, we will run after thee.**
  
-And Jabez called on the God of Israel, saying, Oh that thou wouldest bless me indeed, and enlarge my coast, and that thine hand might be with me, and that thou wouldest keep me from evil, that it may not grieve me! And God granted him that which he requested. -- Ask what I shall give thee. And Solomon said unto God, ... Give me now wisdom and knowledge, that I may go out and come in before this people. -- And God gave Solomon wisdom and understanding exceeding much, and largeness of heart, even as the sand that is on the sea shore.
+I have loved thee with an everlasting love: therefore with lovingkindness have I drawn thee. -- I drew them with cords of a man, with bands of love. -- I, if I be lifted up from the eaith, will draw all men unto me. -- Behold the Lamb of God. -- As Moses lifted up the serpent in the wilderness, even so must the Son of man be lifted up: that whosoever believeth in him should not perish, but have eternal life.
  
-Asa cried unto the Lord his God, and said, Lord, it is nothing with thee to help, whether with many, or with them that have no power ... O Lord, thou art our God; let not man prevail against thee. So the Lord smote the Ethiopians before Asa.
+Whom have I in heaven but thee? and there is none upon earth that I desire beside thee. -- We love him, because he first loved us.
  
-O thou that hearest prayer, unto thee shall all flesh come.  
+My beloved spake, and said unto me, Rise up, my love, my fair one, and come away. For, lo, the winter is past, the rain is over and gone; the flowers appear on the earth; the time of the singing of birds is come, and the voice of the turtle is heard in our land; the fig tree putteth forth her green figs, and the vines with the tender grape give a good smell. Arise, my love, my fair one, and come away.  
 
-**Psa 91:15; 1 Chr 4:10; 2 Chr 1:7,8,10; 1 Kgs 4:29; 2 Chr 14:11,12; Psa 65:2**
+**Song 1:4; Jer 31:3; Hos 11:4; John 12:32; John 1:36; John 3:14,15; Psa 73:25; 1 John 4:19; Song 2:10‑13**
 
-[Tuesday 16-April, 2024](https://t.me/daily_light)
+[Wednesday 17-April, 2024](https://t.me/daily_light)
