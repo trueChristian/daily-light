@@ -1,13 +1,13 @@
 **Morning**
 
-**I will raise them up a Prophet from among their brethren, like unto thee.**
+**Verily, verily, I say unto you, I am the door of the sheep.**
  
-[Moses] stood between the Lord and you at that time, to shew you the word of the Lord: for ye were afraid. -- There is one God, and one mediator between God and men, the man Christ Jesus.
+The veil of the temple was rent in twain from the top to the bottom. -- Christ ... hath once suffered for sins, the just for the unjust, that he might bring us to God. -- The way into the holiest of all was not yet made manifest, while as the first tabernacle was yet standing.
  
-Now the man Moses was very meek, above all the men which were upon the face of the earth. -- Take my yoke upon you, and learn of me; for I am meek and lowly in heart: and ye shall find rest unto your souls. -- Let this mind be in you, which was also in Christ Jesus: who, being in the form of God, thought it not robbery to be equal with God: but made himself of no reputation, and took upon him the form of a servant, and was made in the likeness of men.
+I am the door: by me if any man enter in, he shall be saved, and shall go in and out, and find pasture.
  
-Moses verily was faithful in all his house, as a servant, for a testimony of those things which were to be spoken after; but Christ as a son over his own house; whose house are we, if we hold fast the confidence and the rejoicing of the hope firm unto the end.  
+No man cometh unto the Father, but by me. -- Through him we ... have access by one Spirit unto the Father. Now therefore ye are no more strangers and foreigners, but fellowcitizens with the saints, and of the household of God. -- Having ... boldness to enter into the holiest by the blood of Jesus, by a new and living way, which he hath consecrated for us, through the veil, that is to say, his flesh. -- We have peace with God through our Lord Jesus Christ: by whom also we have access by faith into this grace wherein we stand, and rejoice in hope of the glory of God.  
 
-**Deut 18:18; Deut 5:5; 1 Tim 2:5; Num 12:3; Matt 11:29; Phl 2:57; Heb 3:5,6**
+**John 10:7; Matt 27:51; 1 Pet 3:18; Heb 9:8; John 10:9; John 14:6; Eph 2:15,19; Heb 10:19,20; Rom 5:1,2**
 
-[Thursday 18-April, 2024](https://t.me/daily_light)
+[Friday 19-April, 2024](https://t.me/daily_light)
