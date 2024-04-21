@@ -1,13 +1,17 @@
 **Evening**
 
-**Who art thou Lord? I am Jesus.**
+**Enoch walked with God.**
  
-It is I; be not afraid. -- When thou passest through the waters, I will be with thee: and through the rivers, they shall not overflow thee: when thou walkest through the fire, thou shalt not be burned; neither shall the flame kindle upon thee. For I am the Lord thy God, ... thy Saviour.
+Can two walk together, except they be agreed?
  
-Though I walk through the valley of the shadow of death, I will fear no evil: for thou art with me; thy rod and thy staff they comfort me. -- Emmanuel, God with us.
+Having made peace through the blood of his cross ... You, that were sometime alienated and enemies in your mind by wicked works, yet now hath he reconciled in the body of his flesh through death, to present you holy and unblameable and unreproveable in his sight. -- In Christ Jesus ye who sometimes were far off are made nigh by the blood of Christ.
  
-Thou shalt call his name JESUS: for he shall save his people from their sins. -- If any man sin, we have an advocate with the Father, Jesus Christ the righteous. -- Who is he that condemneth? it is Christ that died, yea rather, that is risen again, who is even at the right hand of God, who also maketh intercession for us. Who shall separate us from the love of Christ? shall tribulation, or distress, or persecution, or famine, or nakedness, or peril, or sword?  
+If, when we were enemies, we were reconciled to God by the death of his Son, much more, being reconciled, we shall be saved by his life. And not only so, but we also joy in God through our Lord Jesus Christ.
+ 
+Our fellowship is with the Father, and with his Son Jesus Christ.
+ 
+The grace of the Lord Jesus Christ, and the love of God, and the communion of the Holy Ghost, be with you all. Amen.  
 
-**Acts 26:15; Matt 14:27; Isa 43:2,3; Psa 23:4; Matt 1:23; Matt 1:21; 1 John 2:1; Rom 8:34,35**
+**Gen 5:22; Amos 3:3; Col 1:20‑22; Eph 2:13; Rom 5:10,11; 1 John 1:3; 2 Cor 13:14**
 
-[Saturday 20-April, 2024](https://t.me/daily_light)
+[Sunday 21-April, 2024](https://t.me/daily_light)
