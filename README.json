@@ -1,41 +1,40 @@
 {
-  "date_key": "april-26",
-  "date_name": "Friday 26-April, 2024",
+  "date_key": "april-27",
+  "date_name": "Saturday 27-April, 2024",
   "evening": {
     "body": [
-      "The church of God, which he hath purchased with his own blood.",
-      "Christ loved the church, and gave himself for it; that he might sanctify and cleanse it with the washing of water by the word, that he might present it to himself a glorious church, not having spot, or wrinkle, or any such thing; but that it should be holy and without blemish.",
-      "There appeared a great wonder in heaven; a woman clothed with the sun. -- The marriage of the Lamb is come, and his wife hath made herself ready. And to her was granted that she should be arrayed in fine linen, clean and white: for the fine linen is the righteousness of saints. -- The righteousness of God which is by faith of Jesus Christ unto all and upon all them that believe.",
-      "The glory which thou gavest me I have given them."
+      "The disciples were called Christians first in Antioch. -- Let every one that nameth the name of Christ depart from iniquity. -- They that are Christ's have crucified the flesh with the affections and lusts. -- Ye are bought with a price: therefore glorify God in your body, and in your spirit, which are God's.",
+      "God forbid that I should glory, save in the cross of our Lord Jesus Christ, by whom the world is crucified unto me, and I unto the world. For in Christ Jesus neither circumcision availeth any thing, nor uncircumcision, but a new creature.",
+      "Be ye ... followers of God, as dear children; and walk in love, as Christ also hath loved us, and hath given himself for us an offering and a sacrifice to God for a sweetsmelling savour. But fornication, and all uncleanness, or covetousness, let it not be once named among you, as becometh saints. Now are ye light in the Lord: walk as children of light."
     ],
-    "header": "Who is she that looketh forth as the morning, fair as the moon, clear as the sun, and terrible as an army with banners?",
+    "header": "A new name.",
     "name": "Evening",
     "references": [
-      "Acts 20:28",
-      "Eph 5:25‑27",
-      "Rev 12:1",
-      "Rev 19:7,8",
-      "Rom 3:22",
-      "John 17:22"
+      "Acts 11:26",
+      "2 Tim 2:19",
+      "Gal 5:24",
+      "1 Cor 6:20",
+      "Gal 6:14,15",
+      "Eph 5:1‑3,8"
     ]
   },
   "joomla": "https://git.vdm.dev/christian/mod_dailylight",
   "morning": {
     "body": [
-      "Underneath are the everlasting arms. -- When [Peter] saw the wind boisterous, he was afraid; and beginning to sink, he cried, saying, Lord, save me. And immediately Jesus stretched forth his hand, and caught him, and said unto him, O thou of little faith, wherefore didst thou doubt? -- The steps of a good man are ordered by the Lord: and he delighteth in his way. Though he fall, he shall not be utterly cast down: for the Lord upholdeth him with his hand.",
-      "The beloved of the Lord shall dwell in safety by him; and the Lord shall cover him all the day long, and he shall dwell between his shoulders. -- Casting all your care upon Him, for he careth tor you. -- He that toucheth you, toucheth the apple of his eye.",
-      "They shall never perish, neither shall any man pluck them out of my hand. My Father, which gave them me, is greater than all."
+      "Man that is born of a woman is of few days, and full of trouble. He cometh forth like a flower, and is cut down: he fleeth also as a shadow, and continueth not. -- The world passeth away, and the lust thereof: but he that doeth the will of God abideth for ever. -- As in Adam all die, even so in Christ shall all be made alive. Death is swallowed up in victory. -- Whether we live, we live unto the Lord; and whether we die, we die unto the Lord: whether we live therefore, or die, we are the Lord’s. -- To live is Christ, and to die is gain.",
+      "Cast not away ... your confidence, which hath great recompence of reward. For ye have need of patience, that, after ye have done the will of God, ye might receive the promise. For yet a little while, and he that shall come will come, and will not tarry. -- The night is far spent, the day is at hand: let us therefore cast off the works of darkness, and let us put on the armour of light. -- The end of all things is at hand: be ye therefore sober, and watch unto prayer."
     ],
-    "header": "His left hand is under my head, and his right hand doth embrace me.",
+    "header": "Brethren, the time is short.",
     "name": "Morning",
     "references": [
-      "Deut 33:27",
-      "Matt 14:30,31",
-      "Psa 37:23,24",
-      "Deut 33:12",
-      "1 Pet 5:7",
-      "Zech 2:8",
-      "John 10:28,29"
+      "Job 14:1,2",
+      "1 John 2:17",
+      "1 Cor 15:22,54",
+      "Rom 14:8",
+      "Phl 1:21",
+      "Heb 10:35‑37",
+      "Rom 13:12",
+      "1 Pet 4:7"
     ]
   },
   "source": "https://github.com/trueChristian/daily-light",
