@@ -1,41 +1,37 @@
 {
-  "date_key": "april-28",
-  "date_name": "Sunday 28-April, 2024",
+  "date_key": "april-29",
+  "date_name": "Monday 29-April, 2024",
   "evening": {
     "body": [
-      "Not as though I had already attained, either were already perfect. -- Leaving the principles of the doctrine of Christ, let us go on unto perfection; not laying again the foundation of repentance from dead works, and of faith toward God. -- The path of the just is as the shining light, that shineth more and more unto the perfect day.",
-      "I love the Lord, because he hath heard my voice and my supplications. Because he hath inclined his ear unto me, therefore will I call upon him as long as I live. -- I will bless the Lord all times: his praise shall continually be in my mouth.",
-      "Praise waiteth for thee, O God, in Sion. -- They rest not day and night, saying, Holy, holy, holy, Lord God Almighty. -- Whoso offereth praise glorifieth me. -- Rejoice evermore. Pray without ceasing. In everything give thanks: for this is the will of God in Christ Jesus concerning you. -- Rejoice in the Lord, always; and again I say, Rejoice."
+      "Which hope we have as an anchor of the soul, both sure and stedfast, and which entereth into that within the veil: whither the forerunner is for us entered, even Jesus. -- Whom the heaven must receive until the times of restitution of all things. -- When he shall come to be glorified in his saints, and to be admired in all them that believe.",
+      "The whole creation groaneth and travaileth in pain together until now. And not only they, but ourselves also, ... groan within ourselves, waiting for the adoption, to wit, the redemption of our body. -- Beloved, now are we the sons of God, and it doth not yet appear what we shall be: but we know that, when he shall appear, we shall be like him; for we shall see him as he is. -- When Christ, who is our life, shall appear, then shall ye also appear with him in glory.",
+      "Surely I come quickly. Amen. Even so, come, Lord Jesus."
     ],
-    "header": "I will hope continually, and will yet praise thee more and more.",
+    "header": "That blessed hope, ... the glorious appearing of the great God and our Saviour Jesus Christ.",
     "name": "Evening",
     "references": [
-      "Phl 3:12",
-      "Heb 6:1",
-      "Prov 4:18",
-      "Psa 116:1,2",
-      "Psa 34:1",
-      "Psa 65:1",
-      "Rev 4:8",
-      "Psa 50:23",
-      "1 Thes 5:16‑18",
-      "Phl 4:4"
+      "Heb 6:19,20",
+      "Acts 3:21",
+      "2 Thes 1:10",
+      "Rom 8:22,23",
+      "1 John 3:2",
+      "Col 3:4",
+      "Rev 22:20"
     ]
   },
   "joomla": "https://git.vdm.dev/christian/mod_dailylight",
   "morning": {
     "body": [
-      "It is not possible that the blood of bulls and of goats should take away sins. Wherefore when he cometh into the world, he saith, Sacrifice and offering thou wouldest not, but a body hast thou prepared me: in burnt offerings and sacrifices for sin thou hast had no pleasure. Then said I, Lo, I come (in the volume of the book it is written of me) to do thy will, O God. -- He was oppressed, and he was afflicted, yet he opened not his mouth; he is brought as a lamb to the slaughter, and as a sheep before her shearers is dumb, so he openeth not his mouth.",
-      "Ye were not redeemed with corruptible things, as silver and gold, ... but with the precious blood of Christ, as of a lamb without blemish and without spot: ... manifest in these last times for you who by him do believe in God ... that your faith and hope might be in God.",
-      "Worthy is the Lamb that was slain to receive power, and riches and wisdom, and strength, and honour, and glory, and blessing."
+      "Thou shalt remember all the way which the Lord thy God led thee these forty years in the wilderness, to humble thee, and to prove thee, to know what was in thine heart, whether thou wouldest keep his commandments, or no. Thou shalt also consider in thine heart, that, as a man chasteneth his son, so the Lord thy God chasteneth thee.",
+      "I know, O Lord, that thy judgments are right, and that thou in faithfulness hast afflicted me. It is good for me that I have been afflicted; that I might learn thy statutes. Before I was afflicted I went astray: but now have I kept thy word. -- The Lord hath chastened me sore: but he hath not given me over unto death. -- He hath not dealt with us after our sins, nor rewarded us according to our iniquities. For as the heaven is high above the earth, so great is his mercy toward them that fear him. He knoweth our frame; he remembereth that we are dust."
     ],
-    "header": "Behold the Lamb of God.",
+    "header": "Consider how great things He hath done for you.",
     "name": "Morning",
     "references": [
-      "Heb 10:4‑7",
-      "Isa 53:7",
-      "1 Pet 1:18‑21",
-      "Rev 5:12"
+      "Deut 8:2,5",
+      "Psa 119:75,71,67",
+      "Psa 118:18",
+      "Psa 103:10,11,14"
     ]
   },
   "source": "https://github.com/trueChristian/daily-light",

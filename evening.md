@@ -1,13 +1,13 @@
 **Evening**
 
-**I will hope continually, and will yet praise thee more and more.**
+**That blessed hope, ... the glorious appearing of the great God and our Saviour Jesus Christ.**
  
-Not as though I had already attained, either were already perfect. -- Leaving the principles of the doctrine of Christ, let us go on unto perfection; not laying again the foundation of repentance from dead works, and of faith toward God. -- The path of the just is as the shining light, that shineth more and more unto the perfect day.
+Which hope we have as an anchor of the soul, both sure and stedfast, and which entereth into that within the veil: whither the forerunner is for us entered, even Jesus. -- Whom the heaven must receive until the times of restitution of all things. -- When he shall come to be glorified in his saints, and to be admired in all them that believe.
  
-I love the Lord, because he hath heard my voice and my supplications. Because he hath inclined his ear unto me, therefore will I call upon him as long as I live. -- I will bless the Lord all times: his praise shall continually be in my mouth.
+The whole creation groaneth and travaileth in pain together until now. And not only they, but ourselves also, ... groan within ourselves, waiting for the adoption, to wit, the redemption of our body. -- Beloved, now are we the sons of God, and it doth not yet appear what we shall be: but we know that, when he shall appear, we shall be like him; for we shall see him as he is. -- When Christ, who is our life, shall appear, then shall ye also appear with him in glory.
  
-Praise waiteth for thee, O God, in Sion. -- They rest not day and night, saying, Holy, holy, holy, Lord God Almighty. -- Whoso offereth praise glorifieth me. -- Rejoice evermore. Pray without ceasing. In everything give thanks: for this is the will of God in Christ Jesus concerning you. -- Rejoice in the Lord, always; and again I say, Rejoice.  
+Surely I come quickly. Amen. Even so, come, Lord Jesus.  
 
-**Psa 71:14; Phl 3:12; Heb 6:1; Prov 4:18; Psa 116:1,2; Psa 34:1; Psa 65:1; Rev 4:8; Psa 50:23; 1 Thes 5:16‑18; Phl 4:4**
+**Tit 2:13; Heb 6:19,20; Acts 3:21; 2 Thes 1:10; Rom 8:22,23; 1 John 3:2; Col 3:4; Rev 22:20**
 
-[Sunday 28-April, 2024](https://t.me/daily_light)
+[Monday 29-April, 2024](https://t.me/daily_light)
