@@ -1,13 +1,15 @@
 **Morning**
 
-**Surely the Lord is in this place; and I knew it not.**
+**Be ye perfect, even as your Father which is in heaven is perfect**.
  
-Where two or three are gathered together in my name, there am I in the midst of them. -- Lo, I am with you alway, even unto the end of the world. -- My presence shall go with thee, and I will give thee rest.
+I am the Almighty God; walk before me, and be thou perfect. -- Ye shall be holy unto me: for I the Lord am holy, and have severed you from other people, that ye should be mine.
  
-Whither shall I go from thy spirit? or whither shall I flee from thy presence? If I ascend up into heaven, thou art there: if I make my bed in hell, behold, thou art there. -- Am I a God at hand, saith the Lord, and not a God afar off? Can any hide himself in secret places that I shall not see him? saith the Lord, Do not I fill heaven and earth? saith the Lord.
+Ye are bought with a price: therefore glorify God in your body, and in your spirit, which are God's
  
-Behold, the heaven and heaven of heavens cannot contain thee, how much less this house that I have builded? -- Thus saith the high and lofty One that inhabiteth eternity, whose name is Holy: I dwell in the high and holy place, with him also that is of a contrite and humble spirit, to revive the spirit of the humble, and to revive the heart of the contrite ones. -- Ye are the temple of living God.  
+Ye are complete in him, which is the head of all principality and power. -- Who gave himself for us, that he might redeem us from all iniquity. -- Be diligent that ye may be found of him in peace, without spot, and blameless.
+ 
+Blessed are the undefiled in the way, who walk in the law of the Lord. -- Whoso looketh into the perfect law of liberty, and continueth therein, he being not a forgetful hearer, but a doer of the work, this man shall be blessed in his deed. -- Search me, O God, and know my heart: try me, and know my thoughts: and see if there be any wicked way in me, and lead me in the way everlasting.  
 
-**Gen 28:16; Matt 18:20; Matt 28:20; Exo 33:14; Psa 139:7,8; Jer 23:23,24; 1 Kgs 8:27; Isa 57:15; 2 Cor 6:16**
+**Matt 5:48; Gen 17:1; Lev 20:26; 1 Cor 6:20; Col 2:10; Tit 2:14; 2 Pet 3:14; Psa 119:1; Jas 1:25; Psa 139:23,24**
 
-[Thursday 02-May, 2024](https://t.me/daily_light)
+[Friday 03-May, 2024](https://t.me/daily_light)
