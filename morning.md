@@ -1,11 +1,13 @@
 **Morning**
 
-**Mercy and truth are met together; righteousness and peace have kissed each other.**
+**Ye shall hear of wars and rumours of wars: see that ye be not troubled.**
  
-A just God and a Saviour. The Lord is well pleased for his righteousness' sake; he will magnify the law, and make it honourable.
+God is our refuge and strength, a very present help in trouble. Therefore will not we fear, though the earth be removed, and though the mountains be carried into the midst of the sea; though the waters thereof roar and be troubled, though the mountains shake with the swelling thereof. -- Come, my people, enter thou into thy chambers, and shut thy doors about thee: hide thyself as it were for a little moment, until the indignation be overpast. For, behold, the Lord cometh out of his place to punish the inhabitants of the earth for their iniquity. -- In the shadow of thy wings will I make my refuge, until these calamities be overpast. -- Your life is hid with Christ in God.
  
-God was in Christ reconciling the world unto himself, not imputing their trespasses unto them. -- Whom God hath set forth to be a propitiation through faith in his blood to declare his righteousness for the remission of sins that are past, through the forebearance of God; to declare I say at this time his righteousness: that he might be just and the justifier of him which believeth in Jesus. -- He was wounded for our transgressions, he was bruised for our iniquities: the chastisement of our peace was upon him; and with his stripes, we are healed. -- Who shall lay any thing to the charge of God’s elect? It is God that justifieth. -- To him that worketh not, but believeth on him that justifieth the ungodly; his faith is counted for righteousness.  
+He shall not be afraid of evil tidings: his heart is fixed, trusting the Lord.
+ 
+These things I have spoken unto you, that in me ye might have peace. In the world ye shall have tribulation: but be of good cheer; I have overcome the world.  
 
-**Psa 85:10; Isa 45:21; Isa 42:21; 2 Cor 5:19; Rom 3:25,26; Isa 53:5; Rom 8:33; Rom 4:5**
+**Matt 24:6; Psa 46:1-3; Isa 26:20,21; Psa 57:1; Col 3:3; Psa 112:7; John 16:33**
 
-[Monday 06-May, 2024](https://t.me/daily_light)
+[Tuesday 07-May, 2024](https://t.me/daily_light)
