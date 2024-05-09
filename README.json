@@ -1,45 +1,40 @@
 {
-  "date_key": "may-08",
-  "date_name": "Wednesday 08-May, 2024",
+  "date_key": "may-09",
+  "date_name": "Thursday 09-May, 2024",
   "evening": {
     "body": [
-      "Thou ... hast made us unto our God kings and priests. -- The sons of Aaron, the priests, shall blow with the trumpets; and they shall be to you for an ordinance for ever throughout your generations. And if ye go to war in your land against the enemy that oppresseth you, then ye shall blow an alarm with the trumpets; and ye shall be remembered before the Lord your God, and ye shall be saved from your enemies.",
-      "I said not unto the seed of Jacob, Seek ye me in vain. -- Their voice was heard, and their prayer came up to his holy dwelling place, even unto heaven. -- The eyes of the Lord are upon the righteous, and his ears are open unto their cry. -- Pray one for another: the effectual fervent prayer of a righteous man availeth much.",
-      "Come, Lord Jesus. -- Make no tarrying, O my God. -- Looking for and hasting unto the coming of the day of God."
+      "When I saw him, I fell at his feet as dead. And he laid his right hand upon me, saying unto me, Fear not; I am the first and the last: I am he that liveth, and was dead; and, behold, I am alive for evermore, Amen; and have the keys of hell and of death. -- I, even I, am he that blotteth out thy transgressions for mine own sake, and will not remember thy sins.",
+      "Woe is me! for I am undone; ... mine eyes have seen the King, the Lord of hosts. Then flew one of the seraphims unto me, having a live coal in his hand, which he had taken with the tongs from off the altar: and he laid it upon my mouth, and said, Lo, this hath touched thy lips; and thine iniquity is taken away, and thy sin purged. -- I have blotted out, as a thick cloud, thy transgressions, and, as a cloud, thy sins: return unto me; for I have redeemed thee.",
+      "If any man sin, we have an advocate with the Father, Jesus Christ the righteous."
     ],
-    "header": "Ye that are the Lord's remembrancers, keep not silence.",
+    "header": "It is I; be not afraid.",
     "name": "Evening",
     "references": [
-      "Rom 5:9,10",
-      "Num 10:8,9",
-      "Isa 45:19",
-      "2 Chr 30:27",
-      "Psa 34:15",
-      "Jas 5:16",
-      "Rev 22:20",
-      "Psa 40:17",
-      "2 Pet 3:12"
+      "Rev 1:17,18",
+      "Isa 43:25",
+      "Isa 6:5‑7",
+      "Isa 44:22",
+      "1 John 2:1"
     ]
   },
   "joomla": "https://git.vdm.dev/christian/mod_dailylight",
   "morning": {
     "body": [
-      "Now is my soul troubled; and what shall I say? Father, save me from this hour: but for this cause came I unto this hour. Father, glorify thy name. Then came there a voice from heaven, saying, I have both glorified it, and will glorify it again. -- Father, if thou be willing, remove this cup from me: nevertheless not my will, but thine, be done. And there appeared an angel unto him from heaven, strengthening him.",
-      "Being found in fashion as a man, he humbled himself, and became obedient unto death, even the death of the cross. -- Therefore doth my Father love me, because I lay down my life, that I might take it again. -- For I came down from heaven, not to do mine will, but the will of him that sent me. -- The cup which my father hath given me, shall I not drink it?",
-      "The Father hath not left me alone; for I do always those things that please him. -- My beloved Son, in whom I am well pleased, -- Mine elect, in whom my soul delighteth."
+      "If in this life only we have hope in Christ, we are of all men most miserable.",
+      "Eye hath not seen, nor ear heard, neither have entered into the heart of man, the things which God hath prepared for them that love him. But God hath revealed them unto us by his Spirit. -- After that ye believed ye were sealed with that holy Spirit of promise, which is the earnest of our inheritance until the redemption of the purchased possession.",
+      "Jesus saith unto him, Thomas, because thou hast seen me, thou hast believed; blessed are they that have not seen, and yet have believed. -- Whom having not seen, ye love; in whom, though now ye see him not, yet believing, ye rejoice with joy unspeakable and full of glory: receiving the end of your faith, even the salvation of your souls.",
+      "We walk by faith, not by sight. -- Cast not away therefore your confidence, which hath great recompence of reward."
     ],
-    "header": "It pleased the Lord to bruise him; he hath put him to grief.",
+    "header": "Faith is the substance of things hoped for, the evidence of things not seen.",
     "name": "Morning",
     "references": [
-      "John 12:27,28",
-      "Luke 22:42,43",
-      "Phl 2:8",
-      "John 10:17",
-      "John 6:38",
-      "John 18:11",
-      "John 8:29",
-      "Matt 3:17",
-      "Isa 42:1"
+      "1 Cor 15:19",
+      "1 Cor 2:9,10",
+      "Eph 1:13,14",
+      "John 20:29",
+      "1 Pet 1:8,9",
+      "2 Cor 5:7",
+      "Heb 10:35"
     ]
   },
   "source": "https://github.com/trueChristian/daily-light",
