@@ -1,40 +1,39 @@
 {
-  "date_key": "may-09",
-  "date_name": "Thursday 09-May, 2024",
+  "date_key": "may-10",
+  "date_name": "Friday 10-May, 2024",
   "evening": {
     "body": [
-      "When I saw him, I fell at his feet as dead. And he laid his right hand upon me, saying unto me, Fear not; I am the first and the last: I am he that liveth, and was dead; and, behold, I am alive for evermore, Amen; and have the keys of hell and of death. -- I, even I, am he that blotteth out thy transgressions for mine own sake, and will not remember thy sins.",
-      "Woe is me! for I am undone; ... mine eyes have seen the King, the Lord of hosts. Then flew one of the seraphims unto me, having a live coal in his hand, which he had taken with the tongs from off the altar: and he laid it upon my mouth, and said, Lo, this hath touched thy lips; and thine iniquity is taken away, and thy sin purged. -- I have blotted out, as a thick cloud, thy transgressions, and, as a cloud, thy sins: return unto me; for I have redeemed thee.",
-      "If any man sin, we have an advocate with the Father, Jesus Christ the righteous."
+      "We spend our years as a tale that is told. The days of our years are threescore years and ten; and if by reason of strength they be fourscore years, yet is their strength labour and sorrow; for it is soon cut off, and we fly away.",
+      "If in this life only we have hope in Christ, we are of all men most miserable. -- Here have we no continuing city, but we seek one to come. -- I am the Lord, I change not. -- Our conversation (citizenship) is in heaven; from whence also we look for the Saviour, the Lord Jesus Christ; who shall change our vile body that it may be fashioned like unto his glorious body, according to the working whereby he is able even to subdue all things unto himself. -- The creature was made subject to vanity, not willingly but by reason of him who hath subjected the same in hope.",
+      "Jesus Christ the same yesterday, and today, and forever. -- Holy, holy, holy, Lord God Almighty, which was, and is, and is to come."
     ],
-    "header": "It is I; be not afraid.",
+    "header": "Vanity of vanities; all is vanity.",
     "name": "Evening",
     "references": [
-      "Rev 1:17,18",
-      "Isa 43:25",
-      "Isa 6:5‑7",
-      "Isa 44:22",
-      "1 John 2:1"
+      "Psa 90:9,10",
+      "1 Cor 15:19",
+      "Heb 13:14",
+      "Mal 3:6",
+      "Phl 3:20,21",
+      "Rom 8:20",
+      "Heb 13:8",
+      "Rev 4:8"
     ]
   },
   "joomla": "https://git.vdm.dev/christian/mod_dailylight",
   "morning": {
     "body": [
-      "If in this life only we have hope in Christ, we are of all men most miserable.",
-      "Eye hath not seen, nor ear heard, neither have entered into the heart of man, the things which God hath prepared for them that love him. But God hath revealed them unto us by his Spirit. -- After that ye believed ye were sealed with that holy Spirit of promise, which is the earnest of our inheritance until the redemption of the purchased possession.",
-      "Jesus saith unto him, Thomas, because thou hast seen me, thou hast believed; blessed are they that have not seen, and yet have believed. -- Whom having not seen, ye love; in whom, though now ye see him not, yet believing, ye rejoice with joy unspeakable and full of glory: receiving the end of your faith, even the salvation of your souls.",
-      "We walk by faith, not by sight. -- Cast not away therefore your confidence, which hath great recompence of reward."
+      "We wrestle not against flesh and blood, but against principalities, against powers, against the rulers of the darkness of this world, against spiritual wickedness in high places. -- Forasmuch ... as the children are partakers of flesh and blood, he also himself likewise took part of the same; that through death he might destroy him that had the power of death. that is, the devil. -- And having spoiled principalities and powers, he made a shew of them openly, triumphing over them. -- I heard a loud voice saying in heaven, Now is come salvation, and strength, and the kingdom of our God, and the power of his Christ: for the accuser of our brethren is cast down, which accused them before our God day and night. And they overcame him by the blood of the Lamb, and by the word of their testimony; and they loved not their lives unto the death.",
+      "Thanks be to God, which giveth us the victory through our Lord Jesus Christ."
     ],
-    "header": "Faith is the substance of things hoped for, the evidence of things not seen.",
+    "header": "For this purpose the Son of God was manifested, that he might destroy the works of the devil.",
     "name": "Morning",
     "references": [
-      "1 Cor 15:19",
-      "1 Cor 2:9,10",
-      "Eph 1:13,14",
-      "John 20:29",
-      "1 Pet 1:8,9",
-      "2 Cor 5:7",
-      "Heb 10:35"
+      "Eph 6:12",
+      "Heb 2:14",
+      "Col 2:15",
+      "Rev 12:10,11",
+      "1 Cor 15:57"
     ]
   },
   "source": "https://github.com/trueChristian/daily-light",
