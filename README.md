@@ -1,28 +1,28 @@
 # Morning
 
-**For this purpose the Son of God was manifested, that he might destroy the works of the devil.**
+**Awake to righteousness, and sin not.**
  
-We wrestle not against flesh and blood, but against principalities, against powers, against the rulers of the darkness of this world, against spiritual wickedness in high places. -- Forasmuch ... as the children are partakers of flesh and blood, he also himself likewise took part of the same; that through death he might destroy him that had the power of death. that is, the devil. -- And having spoiled principalities and powers, he made a shew of them openly, triumphing over them. -- I heard a loud voice saying in heaven, Now is come salvation, and strength, and the kingdom of our God, and the power of his Christ: for the accuser of our brethren is cast down, which accused them before our God day and night. And they overcame him by the blood of the Lamb, and by the word of their testimony; and they loved not their lives unto the death.
+Ye are all the children of light, and the children of the day. Therefore let us not sleep, as do others; but let us watch and be sober.
  
-Thanks be to God, which giveth us the victory through our Lord Jesus Christ.  
+It is high time to awake out of sleep: for now is our salvation nearer than when we believed. The night is far spent, the day is at hand: let us therefore cast off the works of darkness, and let us put on the armour of light. -- Wherefore take unto you the whole armour of God, that ye may be able to withstand in the evil day, and having done all, to stand. -- Cast away from you all your transgressions, whereby ye have transgressed: and make you a new heart and a new spirit. -- Lay apart all filthiness and superfluity of naughtiness, and receive with meekness the engrafted word, which is able to save your souls. -- Little children, abide in him that, when he shall appear, we may have confidence, and not be ashamed before him at his coming. If ye know that he is righteous, ye know that every one that doeth righteousness is born of him.  
 
-**1 John 3:8; Eph 6:12; Heb 2:14; Col 2:15; Rev 12:10,11; 1 Cor 15:57**
+**1 Cor 15:34; 1 Thes 5:5,6; Rom 13:11,12; Eph 6:13; Ezek 18:31; Jas 1:21; 1 John 2:28,29**
 
 # Evening
 
-**Vanity of vanities; all is vanity.**
+**My sheep hear my voice.**
  
-We spend our years as a tale that is told. The days of our years are threescore years and ten; and if by reason of strength they be fourscore years, yet is their strength labour and sorrow; for it is soon cut off, and we fly away.
+Behold, I stand at the door, and knock: If any man hear my voice, and open the door, I will come in to him, and will sup with him, and he with me.
  
-If in this life only we have hope in Christ, we are of all men most miserable. -- Here have we no continuing city, but we seek one to come. -- I am the Lord, I change not. -- Our conversation (citizenship) is in heaven; from whence also we look for the Saviour, the Lord Jesus Christ; who shall change our vile body that it may be fashioned like unto his glorious body, according to the working whereby he is able even to subdue all things unto himself. -- The creature was made subject to vanity, not willingly but by reason of him who hath subjected the same in hope.
+I sleep, but my heart waketh: it is the voice of my beloved that knocketh, saying, Open to me, my sister, my love, my dove, my undefiled. I opened to my beloved; but my beloved had withdrawn himself, and was gone: my soul failed when he spake: I sought him, but I could not find him; I called him, but he gave me no answer.
  
-Jesus Christ the same yesterday, and today, and forever. -- Holy, holy, holy, Lord God Almighty, which was, and is, and is to come.  
+Speak; for thy servant heareth. -- When Jesus came to the place, he looked up, and saw him, and said unto him, Zacchaeus, make haste and come down; for to day I must abide at thy house. And he made haste, and came down, and received him joyfully. -- I will hear what God the Lord will speak: for he will speak peace unto his people, and to his saints: but let them not turn again to folly.  
 
-**Eccl 1:2; Psa 90:9,10; 1 Cor 15:19; Heb 13:14; Mal 3:6; Phl 3:20,21; Rom 8:20; Heb 13:8; Rev 4:8**
+**John 10:27; Rev 3:20; Song 5:2,6; 1 Sam 3:10; Luke 19:5,6; Psa 85:8**
 
 ---
 
-[Friday 10-May, 2024](https://t.me/s/daily_light)
+[Saturday 11-May, 2024](https://t.me/s/daily_light)
 
 > Jonathan Bagster, the son of Samuel Bagster, created the Daily Light for his own family's daily devotion in 1875
 
