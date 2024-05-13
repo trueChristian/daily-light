@@ -1,44 +1,41 @@
 {
-  "date_key": "may-12",
-  "date_name": "Sunday 12-May, 2024",
+  "date_key": "may-13",
+  "date_name": "Monday 13-May, 2024",
   "evening": {
     "body": [
-      "Is not this the carpenter's son? -- Can there any good thing come out of Nazareth? -- Say we not well that thou are a Samaritan, and hast a devil? -- He casteth out devils through the prince of the devils. -- We know that this man is a sinner. -- He deceiveth the people. -- This man blasphemeth. -- Behold a man gluttonous and a winebibber, a friend of publicans and sinners.",
-      "It is enough for the disciple that he be as his master, and the servant as his lord. -- This is thankworthy, if a man for conscience toward God endure grief, suffering wrongfully. For even hereunto were ye called: because Christ also suffered for us, leaving us an example, that we should follow his steps. Who did no sin, neither was guile found in his mouth: who when he was reviled, reviled not again; when he suffered, he threatened not; but committed himself to him that judgeth righteously. -- If ye be reproached for the name of Christ, happy are ye."
+      "Hear my cry, O God; attend unto my prayer. From the end of the earth will I cry unto thee, when my heart is overwhelmed: lead me to the rock that is higher than I.",
+      "He said unto me, My grace is sufficient for thee: for my strength is made perfect in weakness. Most gladly therefore will I rather glory in my infirmities, that the power of Christ may rest upon me. For when I am weak, then am I strong.",
+      "When (Peter) saw the wind boisterous, he was afraid; and beginning to sink, he cried, saying, Lord, save me. And immediately Jesus stretched forth his hand, and caught him, and said unto him, O thou of little faith, wherefore didst thou doubt? -- If thou faint in the day of adversity, thy strength is small. -- He giveth power to the faint; and to them that have no might he increaseth strength. -- The eternal God is thy refuge, and underneath are the everlasting arms. -- Strengthened with all might, according to his glorious power."
     ],
-    "header": "Reproach hath broken my heart.",
+    "header": "My heart panteth, my strength faileth me.",
     "name": "Evening",
     "references": [
-      "Matt 13:55",
-      "John 1:46",
-      "John 8:48",
-      "Matt 9:34",
-      "John 9:24",
-      "John 7:12",
-      "Matt 9:3",
-      "Matt 11:19",
-      "Matt 10:25",
-      "1 Pet 2:19-23",
-      "1 Pet 4:14"
+      "Psa 61:1,2",
+      "2 Cor 12:9,10",
+      "Matt 14:30,31",
+      "Prov 24:10",
+      "Isa 40:29",
+      "Deut 33:27",
+      "Col 1:11"
     ]
   },
   "joomla": "https://git.vdm.dev/christian/mod_dailylight",
   "morning": {
     "body": [
-      "The love of God is shed abroad in our hearts by the Holy Ghost, which is given unto us. -- Ye have not received the spirit of bondage again to fear; but ye have received the Spirit of adoption, whereby we cry, Abba, Father. The Spirit itself beareth witness with our spirit, that we are the children of God. -- He that believeth on the Son of God hath the witness in himself.",
-      "In this was manifested the love of God toward us, because that God sent his only begotten Son into the world, that we might live through him. -- In whom we have redemption through his blood, the forgiveness of sins, according to the riches of his grace. -- That in the ages to come he might shew the exceeding riches of his grace in his kindness toward us through Christ Jesus.",
-      "Beloved, if God so loved us, we ought also to love one another."
+      "The true worshippers shall worship the Father in spirit and in truth: for the Father seeketh such to worship him. God is a Spirit: and they that worship him must worship him in spirit and in truth. -- Then shalt thou call, and the Lord shall answer; thou shalt cry, and he shall say, Here I am. -- When ye stand praying, forgive, if ye have ought against any.",
+      "Without faith it is impossible to please him: for he that cometh to God must believe that he is, and that he is a rewarder of them that diligently seek him. -- Let him ask in faith, nothing wavering. For he that wavereth is like a wave of the sea, driven with the wind and tossed. For let not that man think that he shall receive anything of the Lord.",
+      "If I regard iniquity in my heart, the Lord will not hear me. -- My little children, these things write I unto you, that ye sin not. And if any man sin, we have an advocate with the Father, Jesus Christ the righteous: and he is the propitiation for our sins."
     ],
-    "header": "Beloved, let us love one another: for love is of God; and everyone that loveth is born of God, and knoweth God.",
+    "header": "Pray everywhere, lifting up holy hands, without wrath and doubting.",
     "name": "Morning",
     "references": [
-      "Rom 5:5",
-      "Rom 8:15,16",
-      "1 John 5:10",
-      "1 John 4:9",
-      "Eph 1:7",
-      "Eph 2:7",
-      "1 John 4:11"
+      "John 4:23,24",
+      "Isa 58:9",
+      "Mark 11:25",
+      "Heb 11:6",
+      "Jas 1:6,7",
+      "Psa 66:18",
+      "1 John 2:1,2"
     ]
   },
   "source": "https://github.com/trueChristian/daily-light",
