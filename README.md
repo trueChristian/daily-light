@@ -1,30 +1,30 @@
 # Morning
 
-**As the Father hath life in himself; so hath he given to the Son to have life in himself.**
+**Wash me thoroughly from mine iniquity.**
  
-Our Saviour Jesus Christ, ... hath abolished death, and hath brought life and immortality to light through the gospel. -- I am the resurrection, and the life. -- Because I live, ye shall live also. -- We are made partakers of Christ. -- Partakers of the Holy Ghost. -- Partakers of the divine nature. -- The first man Adam was made a living soul; the last Adam was made a quickening spirit. -- Behold, I shew you a mystery; We shall not all sleep, but we shall be changed, in a moment, in the twinkling of an eye, at the last trump: for the trumpet shall sound, and the dead shall be raised incorruptible, and we shall be changed.
+I will cleanse them from all their iniquity, whereby they have sinned against me; and I will pardon all their iniquities, whereby they have sinned, and whereby they have transgressed against me. -- Then will I sprinkle clean water upon you, and ye shall be clean: from all your filthiness, and from all your idols, will I cleanse you.
  
-Holy, holy, holy, Lord God Almighty, which was, and is, and is to come. -- Who liveth for ever and ever. -- The blessed and only Potentate, the King of kings, and Lord of lords; who only hath immortality. -- Unto the King eternal, immortal, ... be honour and glory for ever and ever. Amen.  
+Except a man be born of water and of the Spirit, he cannot enter into the kingdom of God. -- If the blood of bulls and of goats, and the ashes of a heifer sprinkling the unclean, sanctifieth to the purifying of the flesh: how much more shall the blood of Christ, who through the eternal Spirit offered himself without spot to God, purge your conscience from dead works to serve the living God?
+ 
+He saved them for his name's sake, that he might make his mighty power to be known. -- Not unto us, O Lord, not unto us, but unto thy name give glory, for thy mercy, and for thy truth's sake.  
 
-**John 5:26; 2 Tim 1:10; John 11:25; John 14:19; Heb 3:14; Heb 6:4; 2 Pet 1:4; 1 Cor 15:45,51,52; Rev 4:8; Rev 4:9; 1 Tim 6:15,16; 1 Tim 1:17**
+**Psa 51:2; Jer 33:8; Ezek 36:25; John 3:5; Heb 9:13,14; Psa 106:8; Psa 115:1**
 
 # Evening
 
-**Let us not be desirous of vain glory.**
+**Fellowship in the gospel.**
  
-Gideon said unto them, I would desire a request of you, that ye would give me every man the earrings of his prey. (For they had golden earrings, because they were Ishmaelites.) And they answered, We will willingly give them. And they spread a garment, and did cast therein every man the earrings of his prey. And Gideon made an ephod thereof, and put it in his city, even in Ophrah: and all Israel went thither a whoring after it: which thing became a snare unto Gideon, and to his house.
+As the body is one, and hath many members, and all the members of that one body, being many, are one body: so also is Christ. For by one Spirit are we all baptized into one body, whether we be Jews or Gentiles, whether we be bond or free; and have been all made to drink into one Spirit.
  
-Seekest thou great things for thyself? seek them not. -- Lest I should be exalted above measure through the abundance of the revelations, there was given to me a thorn in the flesh.
+God is faithful, by whom ye were called unto the fellowship of his Son Jesus Christ our Lord. -- That which we have seen and heard declare we unto you, that ye also may have fellowship with us: and truly our fellowship is with the Father, and with his Son Jesus Christ.
  
-Let nothing be done, through strife or vain glory; but in lowliness of mind let each esteem other better than themselves. -- Charity envieth not; charity vaunteth not itself, is not puffed up, doth not behave itself unseemly, seeketh not her own.
- 
-Take my yoke upon you, and learn of me.  
+If we walk in the light, as he is in the light, we have fellowship one with another, and the blood of Jesus Christ his Son cleanseth us from all sin. -- These words spake Jesus. Neither pray I for these alone, but for them also which shall believe on me through their word; that they all may be one; as thou, Father, art in me, and I in thee, that they also may be one in us.  
 
-**Gal 5:26; Judg 8:24,25,27; Jer 45:5; 2 Cor 12:7; Phl 2:3; 1 Cor 13:4,5; Matt 11:29**
+**Phl 1:5; 1 Cor 12:12,13; 1 Cor 1:9; 1 John 1:3; 1 John 1:7; John 17:1,20,21**
 
 ---
 
-[Saturday 18-May, 2024](https://t.me/s/daily_light)
+[Sunday 19-May, 2024](https://t.me/s/daily_light)
 
 > Jonathan Bagster, the son of Samuel Bagster, created the Daily Light for his own family's daily devotion in 1875
 
