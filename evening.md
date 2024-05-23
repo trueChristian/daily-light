@@ -1,13 +1,15 @@
 **Evening**
 
-**The Spirit helpeth our infirmities.**
+**On that night could not the king sleep.**
  
-The Comforter, which is the Holy Ghost. -- What? know ye not that your body is the temple of the Holy Ghost which is in you, which ye have of God? -- It is God which worketh in you.
+Thou holdest mine eyes waking. -- Who is like unto the Lord our God, ... who humbleth himself to behold the things that are in heaven, and in the earth!
  
-We know not what we should pray for as we ought: but the Spirit itself maketh intercession for us with groanings which can not be uttered. And he that searcheth the hearts knoweth what is the mind of the Spirit, because he maketh intercession for the saints according to the will of God. He knoweth our frame; he remembereth that we are dust. -- A bruised reed shall he not break, and the smoking flax shall he not quench.
+He doeth according to his will in the army of heaven, and among the inhabitants of the earth. -- Thy way is in the sea, and thy path in the great waters, and thy footsteps are not known. -- Surely the wrath of man shall praise thee: the remainder of wrath shalt thou restrain.
  
-The spirit indeed is willing, but the flesh is weak. The Lord is my shepherd; I shall not want. He maketh me to lie down in green pastures: he leadeth me beside the still waters.  
+The eyes of the Lord run to and fro throughout the whole earth, to shew himself strong in the behalf of them whose heart is perfect toward him. -- We know that all things work together for good to them that love God.
+ 
+Are not two sparrows sold for a farthing? and one of them shall not fall on the ground without your Father. But the very hairs of your head are all numbered.  
 
-**Rom 8:26; John 14:26; 1 Cor 6:19; Phl 2:13; Rom 8:26,27; Psa 103:14; Isa 42:3; Matt 26:41; Psa 23:1,2**
+**Esth 6:1; Psa 77:4; Psa 113:5,6; Dan 4:35; Psa 77:19; Psa 76:10; 2 Chr 16:9; Rom 8:28; Matt 10:29,30**
 
-[Wednesday 22-May, 2024](https://t.me/daily_light)
+[Thursday 23-May, 2024](https://t.me/daily_light)
