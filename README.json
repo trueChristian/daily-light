@@ -1,40 +1,40 @@
 {
-  "date_key": "may-28",
-  "date_name": "Tuesday 28-May, 2024",
+  "date_key": "may-29",
+  "date_name": "Wednesday 29-May, 2024",
   "evening": {
     "body": [
-      "The slothful man saith, There is a lion without. -- Let us lay aside every weight, and the sin which doth so easily beset us, and let us run with patience the race that is set before us, looking unto Jesus the author and finisher of our faith.",
-      "Let us cleanse ourselves from all filthiness of the flesh and spirit, perfecting holiness in the fear of God.",
-      "I press toward the mark. -- I ... so run, not as uncertainly; I keep under my body, and bring it into subjection: lest that by any means, ... I myself should be a castaway.",
-      "The fashion of this world passeth away.",
-      "Nevertheless we, according to his promise, look for new heavens and a new earth, wherein dwelleth righteousness. Wherefore, beloved, seeing that ye look for such things, be diligent. -- Gird up the loins of your mind, be sober, and hope to the end for the grace that is to be brought unto you at the revelation of Jesus Christ."
+      "It came to pass, when the sun did arise, that God prepared a vehement east wind; and the sun beat upon the head of Jonah, that he fainted, and wished in himself to die, and said, It is better for me to die than to live.",
+      "Job spake, and said, Wherefore is light given to him that is in misery, and life unto the bitter in soul; which long for death, but it cometh not; and dig for it more than for hid treasures? -- Many are the afflictions of the righteous: but the Lord delivereth him out of them all.",
+      "Now is my soul troubled; and what shall I say? Father, save me from this hour. -- In all things it behoved him to be made like unto his brethren, that he might be a merciful and faithful high priest in things pertaining to God, to make reconciliation for the sins of the people. For in that he himself hath suffered being tempted, he is able to succour them that are tempted."
     ],
-    "header": "So run, that ye may obtain.",
+    "header": "Oh that I had wings like a dove! for then would I fly away, and be at rest.",
     "name": "Evening",
     "references": [
-      "Prov 22:13",
-      "Heb 12:1,2",
-      "2 Cor 7:1",
-      "Phl 3:14",
-      "1 Cor 9:26,27",
-      "1 Cor 7:31",
-      "2 Pet 3:13,14",
-      "1 Pet 1:13"
+      "Jon 4:8",
+      "Job 3:2,20,21",
+      "Psa 34:19",
+      "John 12:27",
+      "Heb 2:17,18"
     ]
   },
   "joomla": "https://git.vdm.dev/christian/mod_dailylight",
   "morning": {
     "body": [
-      "The grace of God that bringeth salvation hath appeared to men, teaching us that, denying ungodliness and worldly lusts, should live soberly, righteously, and godly, in this present world, looking for that blessed hope, and the glorious appearing of the great God and our Saviour Jesus Christ; who gave himself us, that he might redeem us from all iniquity, and purify unto himself a peculiar people, zealous of good works. -- We, according to his promise, look for new heavens and a new earth, wherein dwelleth righteousness. Wherefore, beloved, seeing that ye look for such things, be diligent that ye may be found of him in peace, without spot, and blameless.",
-      "Christ was once offered to bear the sins of many; and unto them that look for him shall he appear the second time without sin unto salvation. -- And it shall be said in that day, Lo, this is our God; we have waited for him, and he will save us: this is the LORD; we have waited for him, we will be glad and rejoice in his salvation."
+      "Behold the Lamb of God, which taketh away the sin of the world. -- The blood of the Lamb. -- The precious blood of Christ, as of a lamb without blemish and without spot. -- Without shedding of blood is no remission. -- The blood of Jesus Christ his Son cleanseth us from all sin.",
+      "By his own blood he entered in once into the holy place, having obtained eternal redemption for us. -- Having therefore, brethren, boldness to enter into the holiest by the blood of Jesus, by a new and living way, which he hath consecrated for us, through the veil, that is to say, his flesh; let us draw near with a true heart in full assurance of faith.",
+      "Ye are bought with a price: therefore glorify God in your body, and in your spirit, which are God's."
     ],
-    "header": "We look for the Saviour.",
+    "header": "The life of the flesh is in the blood: and I have given it to you upon the altar to make an atonement for your souls: for it is the blood that maketh an atonement for the soul.",
     "name": "Morning",
     "references": [
-      "Tit 2:11‑14",
-      "2 Pet 3:13,14",
-      "Heb 9:28",
-      "Isa 25:9"
+      "John 1:29",
+      "Rev 7:14",
+      "1 Pet 1:19",
+      "Heb 9:22",
+      "1 John 1:7",
+      "Heb 9:12",
+      "Heb 10:19,20,22",
+      "1 Cor 6:20"
     ]
   },
   "source": "https://github.com/trueChristian/daily-light",
