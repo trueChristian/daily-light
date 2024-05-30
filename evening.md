@@ -1,13 +1,17 @@
 **Evening**
 
-**Oh that I had wings like a dove! for then would I fly away, and be at rest.**
+**Thou hearest me always.**
  
-It came to pass, when the sun did arise, that God prepared a vehement east wind; and the sun beat upon the head of Jonah, that he fainted, and wished in himself to die, and said, It is better for me to die than to live.
+Jesus lifted up his eyes, and said, Father, I thank thee that thou hast heard me. -- Father, glorify thy name. Then came there a voice from heaven, saying, I have both glorified it, and will glorify it again. -- Lo, I come to do thy will, O God. -- Not my will, but thine, be done.
  
-Job spake, and said, Wherefore is light given to him that is in misery, and life unto the bitter in soul; which long for death, but it cometh not; and dig for it more than for hid treasures? -- Many are the afflictions of the righteous: but the Lord delivereth him out of them all.
+As he is, so are we in this world. -- This is the confidence that we have in him, that, if we ask anything according to his will, he heareth us.
  
-Now is my soul troubled; and what shall I say? Father, save me from this hour. -- In all things it behoved him to be made like unto his brethren, that he might be a merciful and faithful high priest in things pertaining to God, to make reconciliation for the sins of the people. For in that he himself hath suffered being tempted, he is able to succour them that are tempted.  
+Whatsoever we ask. we receive of him, because we keep his commandments, and do those things that are pleasing in his sight.
+ 
+Without faith it is impossible to please him: for he that cometh to God must believe that He is, and that he is a rewarder of them that diligently seek him.
+ 
+He ever liveth to make intercession for them. -- We have an advocate with the Father, Jesus Christ the righteous.  
 
-**Psa 55:6; Jon 4:8; Job 3:2,20,21; Psa 34:19; John 12:27; Heb 2:17,18**
+**John 11:42; John 11:41; John 1228; Heb 10:7; Luke 22:42; 1 John 4:17; 1 John 5:14; 1 John 3:22; Heb 11:6; Heb 7:25; 1 John 2:1**
 
-[Wednesday 29-May, 2024](https://t.me/daily_light)
+[Thursday 30-May, 2024](https://t.me/daily_light)
