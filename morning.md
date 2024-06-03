@@ -1,11 +1,11 @@
 **Morning**
 
-**Thus shall ye eat it; with your loins girded, and ye shall eat it in haste: it is the Lord's passover.**
+**Watch, for ye know neither the day nor the hour wherein the Son of man cometh.**
  
-Arise ye, and depart; for this is not your rest. -- Here have we no continuing city, but we seek one to come. -- There remaineth therefore a rest for the people of God.
+Take heed to yourselves, lest at any time your hearts be overcharged with surfeiting, and drunkenness, and cares of this life, and so that day come upon you unawares. For as a snare shall it come on all them that dwell on the face of the whole earth. Watch ye therefore, and pray always, that ye may be accounted worthy to escape all these things that shall come to pass, and to stand before the Son of man.
  
-Let your loins be girded about, and your lights burning; and ye yourselves like unto men that wait for their lord, when he will return from the wedding; that when he cometh and knocketh, they may open unto him immediatety. Blessed are those servants, whom the lord when he cometh shall find watching. -- Gird up the loins of your mind, be sober, and hope to the end for the grace that is to be brought unto you at the revelation of Jesus Christ. -- This one thing I do, forgetting those things which are behind, ... I press toward the mark for the prize of the high calling of God in Christ Jesus. Let us therefore, as many as be perfect, be thus minded,  
+The day of the Lord so cometh as a thief in the night. For when they shall say, Peace and safety; then sudden destruction cometh upon them, as travail upon a woman with child; and they shall not escape. But ye, brethren, are not in darkness, that that day should overtake you as a thief. Ye are all the children of light, and the children of the day; we are not of the night, nor of darkness. Therefore let us not sleep, as do others; but let us watch and be sober.  
 
-**Exo 12:11; Mic 2:10; Heb 13:14; Heb 4:9; Luke 12:35‑37; 1 Pet 1:13; Phl 3:13‑15**
+**Matt 25:13; Luke 21:34‑36; 1 Thes 5:2‑6**
 
-[Sunday 02-June, 2024](https://t.me/daily_light)
+[Monday 03-June, 2024](https://t.me/daily_light)
