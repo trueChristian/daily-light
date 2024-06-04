@@ -1,13 +1,13 @@
 **Evening**
 
-**I am the Almighty God; walk before me, and be thou perfect.**
+**Let us put on the armour of light.**
  
-Not as though I had already attained, either were already perfect. I count not myself to have apprehended: but this one thing I do, forgetting those things which are behind, and reaching forth unto those things which are before, I press toward the mark for the prize of the high calling of God in Christ Jesus.
+Put ... on the Lord Jesus Christ. -- That I may win Christ, and be found in him, not having mine own righteousness, which is of the law, but that which is through the faith of Christ, the righteousness which is of God by faith. -- The righteousness of God which is by faith of Jesus Christ unto all and upon all them that believe.
  
-Enoch walked with God and he was not; for God took him.
+He hath covered me with the robe of righteousness. -- I will go in the strength of the Lord God: I will make mention of thy righteousness, even of thine only.
  
-Grow in grace, and in the knowledge of our Lord and Saviour Jesus Christ. -- We all, with open face beholding as in a glass the glory of the Lord, are changed into the same image from glory to glory, even as by the Spirit of the Lord. These words spake Jesus, I pray not that thou shouldest take them out of the world, but that thou shouldest keep them from the evil. I in them, and thou in me, that they may be made perfect in one.  
+Ye were sometime darkness, but now are ye light in the Lord: walk as children of light. Have no fellowship with the unfruitful works of darkness but rather reprove them. All things that are reproved are made manifest by the light: for whatsoever doth make manifest is light. Awake thou that sleepest, and rise from the dead, and Christ shall give thee light. See then that ye walk circumspectly.  
 
-**Gen 17:1; Phl 3:12‑14; Gen 5:24; 2 Pet 3:18; 2 Cor 3:18; John 17:1,15,23**
+**Rom 13:12; Rom 13:14; Phl 3:8,9; Rom 3:22; Isa 61:10; Psa 71:16; Eph 5:8,11,13-15**
 
-[Monday 03-June, 2024](https://t.me/daily_light)
+[Tuesday 04-June, 2024](https://t.me/daily_light)
