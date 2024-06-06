@@ -1,13 +1,13 @@
 **Morning**
 
-**When ye shall have done all those things which are commanded you, say, We are unprofitable servants.**
+**He will rest in his love.**
  
-Where is boasting then? It Is excluded. By what law? of works? Nay: but by the law of faith. -- What hast thou that thou didst not receive? now if thou didst receive it, why dost thou glory, as if thou hadst not received it? -- By grace are ye saved through faith; and that not of yourselves; it is the gift of God: not of works, lest any man should boast. For we are his workmanship, created in Christ Jesus unto good works which God hath before ordained that we should walk in them.
+The Lord did not set his love upon you, nor choose you, because ye were more in number than any people; for ye were the fewest of all people: but because the Lord loved you. -- We love him, because he first loved us. -- You ... hath he reconciled in the body of his flesh through death, to present you holy and unblameable and unreproveable in his sight.
  
-By the grace of God I am what I am: and his grace which was bestowed upon me was not in vain; but I laboured more abundantly than they all: yet not I, but the grace of God which was with me. -- For of him, and through Him, and to Him, are all things. -- All things come of thee and of thine own have we given thee.
+Herein is love, not that we loved God, but that he loved us, and sent his Son to be the propitiation for our sins. -- God commendeth his love toward us, in that while we were yet sinners, Christ died for us.
  
-Enter not into judgment with thy servant: for in thy sight shall no man living be justified.  
+Look, at a voice from heaven, saying, This is my beloved Son, in whom I am well pleased. -- Therefore doth my Father love me, because I lay down my life, that I might take it again. -- His son ... who being the brightness of his glory, and the express image of his person, and upholding all things by the word of his power, when he had by himself purged our sins, sat down on the right hand of the majesty on high.  
 
-**Luke 17:10; Rom 3:27; 1 Cor 4:7; Eph 2:8-10; 1 Cor 15:10; Rom 11:36; 1 Chr 29:14; Psa 143:2**
+**Zeph 3:17; Deut 7:7,8; 1 John 4:19; Col 1:21,22; 1 John 4:10; Rom 5:8; Matt 3:17; John 10:17; Heb 1:2,3**
 
-[Wednesday 05-June, 2024](https://t.me/daily_light)
+[Thursday 06-June, 2024](https://t.me/daily_light)

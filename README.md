@@ -1,32 +1,32 @@
 # Morning
 
-**When ye shall have done all those things which are commanded you, say, We are unprofitable servants.**
+**He will rest in his love.**
  
-Where is boasting then? It Is excluded. By what law? of works? Nay: but by the law of faith. -- What hast thou that thou didst not receive? now if thou didst receive it, why dost thou glory, as if thou hadst not received it? -- By grace are ye saved through faith; and that not of yourselves; it is the gift of God: not of works, lest any man should boast. For we are his workmanship, created in Christ Jesus unto good works which God hath before ordained that we should walk in them.
+The Lord did not set his love upon you, nor choose you, because ye were more in number than any people; for ye were the fewest of all people: but because the Lord loved you. -- We love him, because he first loved us. -- You ... hath he reconciled in the body of his flesh through death, to present you holy and unblameable and unreproveable in his sight.
  
-By the grace of God I am what I am: and his grace which was bestowed upon me was not in vain; but I laboured more abundantly than they all: yet not I, but the grace of God which was with me. -- For of him, and through Him, and to Him, are all things. -- All things come of thee and of thine own have we given thee.
+Herein is love, not that we loved God, but that he loved us, and sent his Son to be the propitiation for our sins. -- God commendeth his love toward us, in that while we were yet sinners, Christ died for us.
  
-Enter not into judgment with thy servant: for in thy sight shall no man living be justified.  
+Look, at a voice from heaven, saying, This is my beloved Son, in whom I am well pleased. -- Therefore doth my Father love me, because I lay down my life, that I might take it again. -- His son ... who being the brightness of his glory, and the express image of his person, and upholding all things by the word of his power, when he had by himself purged our sins, sat down on the right hand of the majesty on high.  
 
-**Luke 17:10; Rom 3:27; 1 Cor 4:7; Eph 2:8-10; 1 Cor 15:10; Rom 11:36; 1 Chr 29:14; Psa 143:2**
+**Zeph 3:17; Deut 7:7,8; 1 John 4:19; Col 1:21,22; 1 John 4:10; Rom 5:8; Matt 3:17; John 10:17; Heb 1:2,3**
 
 # Evening
 
-**He knoweth our frame; he remembereth that we are dust.**
+**A new and living way.**
  
-The Lord God formed man of the dust of the ground, and breathed into his nostrils the breath of life; and man became a living soul.
+Cain went out from the presence of the Lord. -- Your iniquities have separated between you and your God, and your sins have hid his face from you. -- Without holiness, no man shall see the Lord.
  
-I will praise thee; for I am fearfully and wonderfully made: marvellous are thy works; and that my soul knoweth right well. My substance was not hid from thee, when I was made in secret. Thine eyes did see my substance, yet being unperfect; and in thy book all my members were written, which in continuance were fashioned, when as yet there was none of them.
+I am the way, and the truth, and the life: no man cometh unto the Father, but by me. -- Our Saviour Jesus Christ ... hath abolished death, and hath brought life and immortality to light through the gospel.
  
-Have we not all one father? Hath not one God created us? -- In him we live, and move, and have our being. -- Like as a father pitieth his children, so the Lord pitieth them that fear him.
+The way into the holiest of all was not yet made manifest, while as the first tabernacle was yet standing. -- He is our peace, who hath made both one, and hath broken down the middle wall of partition between us. -- The veil of the temple was rent in twain from the top to the bottom.
  
-He, being full of compassion, forgave their iniquity, and destroyed them not: yea, many a time turned he his anger away, and did not stir up all his wrath. For he remembered that they were but flesh; a wind that passeth away, and cometh not again.  
+Strait is the gate, and narrow is the way, which leadeth unto life, and few there be that find it. -- Thou wilt shew me the path of life: in thy presence is fulness of joy; at thy right hand there are pleasures for evermore.  
 
-**Psa 103:14; Gen 2:7; Psa 139:14-16; Mal 2:10; Acts 17:28; Psa 103:13; Psa 78:38,39**
+**Heb 10:20; Gen 4:16; Isa 59:2; Heb 12:14; John 14:6; 2 Tim 1:10; Heb 9:8; Eph 2:14; Matt 27:51; Matt 7:14; Psa 16:11**
 
 ---
 
-[Wednesday 05-June, 2024](https://t.me/s/daily_light)
+[Thursday 06-June, 2024](https://t.me/s/daily_light)
 
 > Jonathan Bagster, the son of Samuel Bagster, created the Daily Light for his own family's daily devotion in 1875
 
