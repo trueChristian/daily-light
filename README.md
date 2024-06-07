@@ -1,32 +1,32 @@
 # Morning
 
-**He will rest in his love.**
+**Men ought always to pray, and not to faint.**
  
-The Lord did not set his love upon you, nor choose you, because ye were more in number than any people; for ye were the fewest of all people: but because the Lord loved you. -- We love him, because he first loved us. -- You ... hath he reconciled in the body of his flesh through death, to present you holy and unblameable and unreproveable in his sight.
+Which of you shall have a friend, and shall go unto him at midnight, and say unto him, Friend, lend me three loaves; for a friend of mine in his journey is come to me and I have nothing to set before him? And he from within shall answer and say, Trouble me not: the door is now shut, and my children are with me in bed; I cannot rise and give thee. I say unto you, Though he will not rise and give him, because he is his friend, yet because of his importunity he will rise and give him as many as he needeth. -- Praying always with all prayer and supplication in the Spirit and watching thereunto with all perseverance and supplication for all saints.
  
-Herein is love, not that we loved God, but that he loved us, and sent his Son to be the propitiation for our sins. -- God commendeth his love toward us, in that while we were yet sinners, Christ died for us.
+I will not let thee go, except thou bless me. -- As a prince hast thou power with God and with men. -- Continue in prayer, and watch in the same with thanksgiving.
  
-Look, at a voice from heaven, saying, This is my beloved Son, in whom I am well pleased. -- Therefore doth my Father love me, because I lay down my life, that I might take it again. -- His son ... who being the brightness of his glory, and the express image of his person, and upholding all things by the word of his power, when he had by himself purged our sins, sat down on the right hand of the majesty on high.  
+[Jesus] went out into a mountain to pray, and continued all night in prayer to God.  
 
-**Zeph 3:17; Deut 7:7,8; 1 John 4:19; Col 1:21,22; 1 John 4:10; Rom 5:8; Matt 3:17; John 10:17; Heb 1:2,3**
+**Luke 18:1; Luke 11:5‑8; Eph 6:18; Gen 32:26,28; Col 4:2; Luke 6:12**
 
 # Evening
 
-**A new and living way.**
+**Forgive all my sins.**
  
-Cain went out from the presence of the Lord. -- Your iniquities have separated between you and your God, and your sins have hid his face from you. -- Without holiness, no man shall see the Lord.
+Come now, and let us reason together, saith the Lord: though your sins be as scarlet, they shall be as white as snow; though they be red like crimson, they shall be as wool.
  
-I am the way, and the truth, and the life: no man cometh unto the Father, but by me. -- Our Saviour Jesus Christ ... hath abolished death, and hath brought life and immortality to light through the gospel.
+Be of good cheer; thy sins be forgiven thee. -- I, even I, am he that blotteth out thy transgressions for mine own sake, and will not remember thy sins.
  
-The way into the holiest of all was not yet made manifest, while as the first tabernacle was yet standing. -- He is our peace, who hath made both one, and hath broken down the middle wall of partition between us. -- The veil of the temple was rent in twain from the top to the bottom.
+The Son of man hath power on earth to forgive sins. -- In Whom we have redemption through his blood, the forgiveness of sins, according to the riches of his grace. -- Not by works of righteousness which we have done, but according to His mercy he saved us, by the washing of regeneration, and renewing of the Holy Ghost; which he shed on us abundantly through Jesus Christ our Saviour. -- Having forgiven you all trespasses, blotting out the handwriting of ordinances that was against us, which was contrary to us, and took it out of the way, nailing it to his cross.
  
-Strait is the gate, and narrow is the way, which leadeth unto life, and few there be that find it. -- Thou wilt shew me the path of life: in thy presence is fulness of joy; at thy right hand there are pleasures for evermore.  
+Bless the Lord, O my soul, ... who forgives all thine iniquities.  
 
-**Heb 10:20; Gen 4:16; Isa 59:2; Heb 12:14; John 14:6; 2 Tim 1:10; Heb 9:8; Eph 2:14; Matt 27:51; Matt 7:14; Psa 16:11**
+**Psa 25:18; Isa 1:18; Matt 9:2; Isa 43:25; Matt 9:6; Eph 1:7; Tit 3:5,6; Col 2:13,14; Psa 103:2,3**
 
 ---
 
-[Thursday 06-June, 2024](https://t.me/s/daily_light)
+[Friday 07-June, 2024](https://t.me/s/daily_light)
 
 > Jonathan Bagster, the son of Samuel Bagster, created the Daily Light for his own family's daily devotion in 1875
 
