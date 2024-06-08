@@ -1,41 +1,44 @@
 {
-  "date_key": "june-07",
-  "date_name": "Friday 07-June, 2024",
+  "date_key": "june-08",
+  "date_name": "Saturday 08-June, 2024",
   "evening": {
     "body": [
-      "Come now, and let us reason together, saith the Lord: though your sins be as scarlet, they shall be as white as snow; though they be red like crimson, they shall be as wool.",
-      "Be of good cheer; thy sins be forgiven thee. -- I, even I, am he that blotteth out thy transgressions for mine own sake, and will not remember thy sins.",
-      "The Son of man hath power on earth to forgive sins. -- In Whom we have redemption through his blood, the forgiveness of sins, according to the riches of his grace. -- Not by works of righteousness which we have done, but according to His mercy he saved us, by the washing of regeneration, and renewing of the Holy Ghost; which he shed on us abundantly through Jesus Christ our Saviour. -- Having forgiven you all trespasses, blotting out the handwriting of ordinances that was against us, which was contrary to us, and took it out of the way, nailing it to his cross.",
-      "Bless the Lord, O my soul, ... who forgives all thine iniquities."
+      "Being not weak in faith, [Abraham] considered not his own body now dead, when he was about an hundred years old, neither yet the deadness of Sarah's womb; he staggered not at the promise of God through unbelief; but was strong in faith, giving glory to God.",
+      "Is it easier to say to the sick of the palsy, Thy sins be forgiven thee or to say, Arise, and take up thy bed, and walk? -- If thou canst believe, all things are possible to him that believeth.",
+      "All power is given unto me in heaven and in earth. -- Why are ye so fearful? how is it that ye have no faith? -- Behold the fowls of the air; ... your heavenly Father feedeth them. Are ye not much better than they? -- Why reason ye among yourselves, because ye have brought no bread? Do ye not ... remember the five loaves of the five thousand?",
+      "My God shall supply all your need according to his riches in glory by Christ Jesus."
     ],
-    "header": "Forgive all my sins.",
+    "header": "Why reason ye these things in your hearts?",
     "name": "Evening",
     "references": [
-      "Isa 1:18",
-      "Matt 9:2",
-      "Isa 43:25",
-      "Matt 9:6",
-      "Eph 1:7",
-      "Tit 3:5,6",
-      "Col 2:13,14",
-      "Psa 103:2,3"
+      "Rom 4:19,20",
+      "Mark 2:9",
+      "Mark 9:23",
+      "Matt 28:18",
+      "Mark 4:40",
+      "Matt 6:26",
+      "Matt 16:8,9",
+      "Phl 4:19"
     ]
   },
   "joomla": "https://git.vdm.dev/christian/mod_dailylight",
   "morning": {
     "body": [
-      "Which of you shall have a friend, and shall go unto him at midnight, and say unto him, Friend, lend me three loaves; for a friend of mine in his journey is come to me and I have nothing to set before him? And he from within shall answer and say, Trouble me not: the door is now shut, and my children are with me in bed; I cannot rise and give thee. I say unto you, Though he will not rise and give him, because he is his friend, yet because of his importunity he will rise and give him as many as he needeth. -- Praying always with all prayer and supplication in the Spirit and watching thereunto with all perseverance and supplication for all saints.",
-      "I will not let thee go, except thou bless me. -- As a prince hast thou power with God and with men. -- Continue in prayer, and watch in the same with thanksgiving.",
-      "[Jesus] went out into a mountain to pray, and continued all night in prayer to God."
+      "Blessed is every one that feareth the Lord; that walketh in his ways. For thou shalt eat the labour of thine hands: happy shalt thou be, and it shall be well with thee. -- Trust in the Lord, and do good; so shalt thou dwell in the land, and verily thou shalt be fed. Delight thyself also in the Lord; and he shall give thee the desires of thine heart. -- Be not afraid, neither be thou dismayed: for the Lord thy God is with thee whithersoever thou goest.",
+      "Seek ye first the kingdom of God, and his righteousness; and all these things shall he added unto you.",
+      "As long as he sought the Lord, God made him to prosper. -- Beware that thou forget not the Lord thy God, in not keeping his commandments, and his judgments, and his statutes, which I command thee this day: and thou say in thine heart, My power and the might of mine hand hath gotten me this wealth.",
+      "Is not the Lord your God with you? and hath he not given you rest on every side?"
     ],
-    "header": "Men ought always to pray, and not to faint.",
+    "header": "The Lord made all that he did to prosper in his hand.",
     "name": "Morning",
     "references": [
-      "Luke 11:5‑8",
-      "Eph 6:18",
-      "Gen 32:26,28",
-      "Col 4:2",
-      "Luke 6:12"
+      "Psa 128:1,2",
+      "Psa 37:3,4",
+      "Josh 1:9",
+      "Matt 6:33",
+      "2 Chr 26:5",
+      "Deut 8:11,17",
+      "1 Chr 22:18"
     ]
   },
   "source": "https://github.com/trueChristian/daily-light",
