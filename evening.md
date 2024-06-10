@@ -1,13 +1,15 @@
 **Evening**
 
-**The triumphing of the wicked is short.**
+**As Christ forgave you, so also do ye.**
  
-Thou shalt bruise his heel. -- This is your hour, and the power of darkness. -- As the children are partakers of flesh and blood he also himself likewise took part of the same; that through death he might destroy him that had the power of death, that is, the devil. -- Having spoiled principalities and powers, he made a shew of them openly, triumphing over them in it.
+There was a certain creditor which had two debtors: the one owed five hundred pence, and the other fifty. And when they had nothing to pay, he frankly forgave them both. -- I forgave thee all that debt; shouldest not thou also have had compassion on thy fellowservant, even as I had pity on thee?
  
-Be sober, be vigilant; because your adversary the devil, as a roaring lion, walketh about seeking whom he may devour: whom resist stedfast in the faith. -- Resist the devil, and he will flee from you.
+When ye stand praying, forgive, if ye have ought against any: that your Father also which is in heaven may forgive you your trespasses. But if ye do not forgive, neither will your Father which is in heaven forgive your trespasses. -- Put on as the elect of God, holy and beloved, bowels of mercies, kindness, humbleness of mind, meekness, longsuffering; forbearing one another, and forgiving one another, if any man have a quarrel against any.
  
-The wicked plotteth against the just, and gnasheth upon him with his teeth. The Lord shall laugh at him: for he seeth that his day is coming. -- The God of peace shall bruise Satan under your feet shortly. -- The devil ... was cast into the lake of fire and brimstone ... and shall be tormented day and night for ever and ever.  
+How oft shall my brother sin against me, and I forgive him? till seven times? Jesus saith unto him, I say not unto thee, Until seven times: but, until seventy times seven.
+ 
+Charity ... is the bond of perfectness.  
 
-**Job 20:5; Gen 3:15; Luke 22:53; Heb 2:14; Col 2:15; 1 Pet 5:8,9; Jas 4:7; Psa 37:12,13; Rom 16:20; Rev 20:10**
+**Col 3:13; Luke 7:41,42; Matt 18:32,33; Mark 11:25,26; Col 3:12,13; Matt 18:21,22; Col 3:14**
 
-[Sunday 09-June, 2024](https://t.me/daily_light)
+[Monday 10-June, 2024](https://t.me/daily_light)
