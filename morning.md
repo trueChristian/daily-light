@@ -1,11 +1,15 @@
 **Morning**
 
-**He arose, and came to his father. But when he was yet a great way off, his father saw him, and ran, and fell on his neck, and kissed him.**
+**Everything that may abide the fire, ye shall make it go through the fire, and it shalI be clean.**
  
-The Lord is merciful and gracious, slow to anger, and plenteous in mercy. He will not always chide: neither will he keep his anger for ever. He hath not dealt with us after our sins; nor rewarded us according to our iniquities. For as the heaven is high above the earth, so great is his mercy toward them that fear him. As far as the east is from the west, so far hath he removed our transgressions from us. Like as a father pitieth his children, so the Lord pitieth them that fear him.
+The Lord your God proveth you, to know whether ye love the Lord your God with all your heart, and with all your soul. -- He shall sit as a refiner and purifier of silver: and he shall purify the sons of Levi, and purge them as gold and silver, that they may offer unto the Lord an offering in righteousness. -- Every man's work shall be made manifest: for the day shall declare it, because it shall be revealed by fire; and the fire shall try every man's work of what sort it is.
  
-Ye have received the Spirit of adoption, whereby we cry, Abba, Father. The Spirit itself beareth witness with our spirit, that we are the children of God. -- Ye who sometime were far off are made nigh by the blood of Christ. -- Now therefore ye are no more strangers and foreigners, but fellowcitizens with the saints, and of the household of God.  
+I will turn my hand upon thee, and purely purge away thy dross, and take away all thy tin. -- I will melt them. and try them.
+ 
+Thou, O God, hast proved us; thou hast tried us, as silver is tried. We went through fire and through water: but thou broughtest us out into a wealthy place.
+ 
+When thou walkest through the fire, thou shalt not be burned; neither shall the flame kindle upon thee.  
 
-**Luke 15:20; Psa 103:8‑13; Rom 8:15,16; Eph 2:13; Eph 2:19**
+**Num 31:23; Deut 13:3; Mal 3:3; 1 Cor 3:13; Isa 1:25; Jer 9:7; Psa 66:10,12; Isa 43:2**
 
-[Tuesday 11-June, 2024](https://t.me/daily_light)
+[Wednesday 12-June, 2024](https://t.me/daily_light)
