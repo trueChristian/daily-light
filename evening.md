@@ -1,15 +1,15 @@
 **Evening**
 
-**Martha, Martha, thou art careful and troubled about many things.**
+**The Spirit ... maketh intercession for the saints according to the will of God**.
  
-Consider the ravens: for they neither sow nor reap. Consider the lilies how they grow: they toil not, they spin not. Seek not ye what ye shall eat, or what ye shall drink, neither be ye of doubtful mind. Your Father knoweth that ye have need of these things.
+Verily, verily I say unto you, Whatsoever ye shall ask the Father in my name, he will give it you. Hitherto have ye asked nothing in my name: ask, and ye shall receive, that your joy may be full. -- Praying always with all prayer and supplication in the Spirit.
  
-Having food and raiment let us be therewith content ... They that will be rich fall into temptation and a snare, and into many foolish and hurtful lusts, which drown men in destruction and perdition. For the love of money is the root of all evil: which while some coveted after, they have erred from the faith, and pierced themselves through with many sorrows.
+This is the confidence that we have in him, that, if we ask any thing according to his will, he heareth us; and if we know that he hear us, whatsoever we ask, we know that we have the petitions that we desired of him. -- This is the will of God, even your sanctification.
  
-The cares of this world, and the deceitfulness of riches, and the lust of other things entering in, choke the word, and it becometh unfruitful.
+God hath ... called us ... unto holiness: ... who hath also given unto us his Holy Spirit.
  
-Let us lay aside every weight, and the sin which doth so easily beset us, and let us run with patience the race that is set before us.  
+Rejoice evermore. Pray without ceasing. In every thing give thanks: for this is the will of God in Christ Jesus concerning you. Quench not the Spirit.  
 
-**Luke 10:41; Luke 12:24,27,29,30; 1 Tim 6:8-10; Mark 4:19; Heb 12:1**
+**Rom 8:27; John 16:23,24; Eph 6:18; 1 John 5:14,15; 1 Thes 4:3; 1 Thes 4:7,8; 1 Thes 5:16-19**
 
-[Friday 14-June, 2024](https://t.me/daily_light)
+[Saturday 15-June, 2024](https://t.me/daily_light)
