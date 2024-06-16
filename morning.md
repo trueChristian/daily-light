@@ -1,13 +1,13 @@
 **Morning**
 
-**The secret things belong unto the Lord our God: but those which are revealed belong unto us.**
+**See that ye walk circumspectly, not as fools, but as wise, redeeming the time, because the days are evil.**
  
-Lord, my heart is not haughty, nor mine eyes lofty: neither do I exercise myself in great matters, or in things too high for me. Surely I have behaved and quieted myself, as a child that is weaned of his mother: my soul is even as a weaned child.
+Take diligent heed to do the commandment and the law, to love the Lord your God, and to walk in all his ways, and to keep his commandments, and to cleave unto him, and to serve him with all your heart and with all your soul. -- Walk in wisdom toward them that are without, redeeming the time. Let your speech be always with grace, seasoned with salt, that ye may know how ye ought to answer every man. -- Abstain from all appearance of evil.
  
-The secret of the Lord is with them that fear him: and he will shew them his covenant. -- There is a God in heaven that revealeth secrets. -- Lo, these are parts of his ways: but how little a portion is heard of him?
+While the bridegroom tarried, they all slumbered and slept. And at midnight there was a cry made, Behold, the bridegroom cometh; go ye out to meet him. -- Watch, therefore, for ye know neither the day nor the hour wherein the Son of man cometh.
  
-Henceforth I call you not servants; for the servant knoweth not what his lord doeth: but I have called you friends; for all things that I have heard of my Father I have made known unto you. -- If ye love me, keep my commandments. And I will pray the Father, and he shall give you another Comforter that he may abide with you for ever; even the Spirit of truth.  
+Brethren, give diligence to make your calling and election sure; for if we do these things, ye shall never fall. -- Blessed are those servants, whom the lord when he cometh shall find watching.  
 
-**Deut 29:29; Psa 131:1,2; Psa 25:14; Dan 2:28; Job 26:14; John 15:15; John 14:15-17**
+**Eph 5:15,16; Josh 22:5; Col 4:5,6; 1 Thes 5:22; Matt 25:5,6; Matt 25:13; 2 Pet 1:10; Luke 12:37**
 
-[Saturday 15-June, 2024](https://t.me/daily_light)
+[Sunday 16-June, 2024](https://t.me/daily_light)
