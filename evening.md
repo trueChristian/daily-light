@@ -1,17 +1,15 @@
 **Evening**
 
-**Behold how he loved.**
+**Shall I not seek rest for thee, that it may be well with thee?**
  
-He died for all. -- Greater love hath no man than this, that a man lay down his life for his friends.
+There remaineth ... a rest to the people of God. -- My people shall dwell in a peaceable habitation, and in sure dwellings, and in quiet resting places. -- There the wicked cease from troubling; and there the weary be at rest. -- They ... rest from their labours.
  
-He ... liveth to make intercession for them. -- I go to prepare a place for you.
+The forerunner is for us entered, even Jesus, made an high priest for ever after the order of Melchisedec.
  
-I will come again, and receive you unto myself that where I am, there ye may be also. -- Father, I will that they whom thou hast given me, be with me where I am. -- Having loved his own which were in the world, he loved them unto the end.
+Come unto me, all ye that labour and are heavy laden, and I will give you rest. Take my yoke upon you, and learn of me; for I am meek and lowly in heart: and ye shall find rest unto your souls. For my yoke is easy, and my burden is light. -- In returning and rest shall ye be saved; in quietness and in confidence shall be your strength.
  
-We love him, because he first loved loved us. -- The love of Christ constraineth us; because we thus judge, that if one died for all, then were all dead: and that he died for all, that they which live should not henceforth live unto themselves, but to him which died for them, and rose again.
- 
-If ye keep my commandments, ye shall abide in my love; even as I have kept my Father's commandments, and abide in his love.  
+The Lord is my shepherd; I shall not want. He maketh me to lie down in green pastures: he leadeth me beside the still waters.  
 
-**John 11:36; 2 Cor 5:15; John 15:13; Heb 7:25; John 14:2; John 14:3; John 17:24; John 13:1; 1 John 4:19; 2 Cor 5:14,15; John 15:10**
+**Ruth 3:1; Heb 4:9; Isa 32:18; Job 3:17; Rev 14:13; Heb 6:20; Matt 11:28-30; Isa 30:15; Psa 23:1,2**
 
-[Saturday 22-June, 2024](https://t.me/daily_light)
+[Sunday 23-June, 2024](https://t.me/daily_light)
