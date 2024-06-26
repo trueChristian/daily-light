@@ -1,15 +1,15 @@
 **Evening**
 
-**The man that is my fellow, saith the Lord of hosts.**
+**It is a night to be much observed unto the Lord for bringing them out from the land of Egypt.**
  
-In him dwelleth all the fulness of the Godhead bodily. -- I have laid help upon one that is mighty; I have exalted one chosen out of the people. -- I have trodden the winepress alone; and of the people there was none with me.
+The Lord Jesus the same night in which he was betrayed took bread: and when he had given thanks, he brake it, and said, Take, eat: this is my body which is broken for you: this do in remembrance of me. After the same manner also he took the cup, when he had supped, saying, This cup is the new testament in my blood: this do ye, as oft as ye drink it, in remembrance of me.
  
-Great is the mystery of godliness: God was manifest in the flesh. -- Unto us a child is born, unto us a son is given, and the government shall be upon his shoulder; and his name shall be called Wonderful, Counsellor, The mighty God, The Everlasting Father, The Prince of Peace.
+He ... kneeled down, and prayed. And being in an agony he prayed more earnestly: and his sweat was as it were great drops of blood falling down to the ground.
  
-The brightness of his glory, and the express image of his person, and upholding all things by the word of his power, when he had by himself purged our sins, sat down on the right hand of the majesty on high. -- Unto the Son he saith, Thy throne, O God, is for ever and ever.
+It was the preparation of the passover, and about the sixth hour: ... they took Jesus, and led him away, ... into a place called ... Golgotha: where they crucified him.
  
-Let all the angels of God worship him. Kings of kings, and Lord of lords.  
+Christ our passover is sacrificed for us: therefore let us keep the feast.  
 
-**Zech 13:7; Col 2:9; Psa 89:19; Isa 63:3; 1 Tim 3:16; Isa 9:6; Heb 1:3; Heb 1:8; Heb 1:6; Rev 19:16**
+**Exo 12:42; 1 Cor 11:23-25; Luke 22:41,44; John 19:14,16-18; 1 Cor 5:7,8**
 
-[Tuesday 25-June, 2024](https://t.me/daily_light)
+[Wednesday 26-June, 2024](https://t.me/daily_light)
