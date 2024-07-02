@@ -1,41 +1,43 @@
 {
-  "date_key": "july-01",
-  "date_name": "Monday 01-July, 2024",
+  "date_key": "july-02",
+  "date_name": "Tuesday 02-July, 2024",
   "evening": {
     "body": [
-      "I was brought low, and he helped me. -- Blessed be the Lord, because he hath heard the voice of my supplications. The Lord is my strength and my shield; my heart trusted in him, and I am helped: therefore my heart greatly rejoiceth; and with my song will I praise him.",
-      "It is better to trust in the Lord than to put confidence in man. It is better to trust in the Lord than to put confidence in princes. -- Happy is he that hath the God of Jacob for his help, whose hope is in the Lord his God. -- He led them forth by the right way, that they might go to a city of habitation. -- There failed not ought of any good thing which the Lord hath spoken unto the house of Israel; all came to pass.",
-      "When I sent you without purse, and scrip, and shoes, lacked ye any thing? And they said, Nothing. -- Because thou hast been my help, therefore in the shadow of thy wings will I rejoice."
+      "Who in the days of his flesh ... offered up prayers and supplications with strong crying and tears unto him that was able to save him from death.",
+      "Then shall we know, if we follow on to know the Lord. -- Continuing instant in prayer. -- Praying always with all prayer and supplication in the Spirit, and watching thereunto with all perseverance and supplication. -- By prayer and supplication with thanksgiving let your requests be made known unto God. And the peace of God, which passeth all understanding, shall keep your hearts and minds through Christ Jesus.",
+      "Nevertheless not as I will, but as thou wilt. -- This is the confidence that we have in him, that, if we ask any thing according to his will, he heareth us.",
+      "Delight thyself ... in the Lord; and he shall give thee the desires of thine heart. Commit thy way unto the Lord; trust also in him; and he shall bring it to pass."
     ],
-    "header": "Ebenezer ... Hitherto hath the Lord helped us.",
+    "header": "[Jesus] prayed the third time, saying the same words.",
     "name": "Evening",
     "references": [
-      "Psa 116:6",
-      "Psa 28:6,7",
-      "Psa 118:8,9",
-      "Psa 146:5, -psa 107:7",
-      "Josh 21:45",
-      "Luke 22:35",
-      "Psa 63:7"
+      "Heb 5:7",
+      "Hos 6:3",
+      "Rom 12:12",
+      "Eph 6:18",
+      "Phl 4:6,7",
+      "Matt 26:39",
+      "1 John 5:14",
+      "Psa 37:4,5"
     ]
   },
   "joomla": "https://git.vdm.dev/christian/mod_dailylight",
   "morning": {
     "body": [
-      "Be ye ... followers of God, as dear children. -- Love your enemies, bless them that curse you, do good to them that hate you, and pray for them which despitefully use you, and persecute you; that ye may be the children of your Father which is in heaven: for he maketh his sun to rise on the evil and on the good, and sendeth rain on the just and on the unjust. -- Be ye therefore merciful, as your Father also is merciful.",
-      "The fruit of the Spirit is in all goodness and righteousness and truth.",
-      "After that the kindness and love of God our Saviour toward man appeared, not by works of righteousness which we have done, but according to his mercy he saved us, by the washing of regeneration, and renewing of the Holy Ghost; which he shed on us abundantly through Jesus Christ our Saviour. -- The Lord is good to all: and his tender mercies are over all his works. -- He that spared not his own Son, but delivered him up for us all, how shall he not with him also freely give us all things?"
+      "We have an altar, whereof they have no right to eat which serve the tabernacle. -- Except a man be born again, he cannot see the kingdom of God. -- At that time ye were without Christ, being aliens from the commonwealth of Israel, and strangers from the covenants of promise. But now, in Christ Jesus, ye who sometime were far off, are made nigh by the blood of Christ.",
+      "For he is our peace, who hath made both one, ... having abolished in his flesh the enmity, even the law of commandments contained in ordinances; for to make in himself of twain one new man, so making peace.",
+      "Now therefore ye are no more strangers and foreigners, but fellowcitizens with the saints, and of the household of God.",
+      "If any man hear my voice, and open the door, I will come in to him, and will sup with him, and he with me."
     ],
-    "header": "The fruit ot the Spirit is goodness.",
+    "header": "This is the ordinance of the passover: There shall no stranger eat thereof.",
     "name": "Morning",
     "references": [
-      "Eph 5:1",
-      "Matt 5:44,45",
-      "Luke 6:36",
-      "Eph 5:9",
-      "Tit 3:4-6",
-      "Psa 145:9",
-      "Rom 8:32"
+      "Heb 13:10",
+      "John 3:3",
+      "Eph 2:12,13",
+      "Eph 2:14,15",
+      "Eph 2:19",
+      "Rev 3:20"
     ]
   },
   "source": "https://github.com/trueChristian/daily-light",
