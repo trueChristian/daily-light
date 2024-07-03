@@ -1,34 +1,34 @@
 # Morning
 
-**This is the ordinance of the passover: There shall no stranger eat thereof.**
+**If children, then heirs; heirs of God, and joint‑heirs with Christ.**
  
-We have an altar, whereof they have no right to eat which serve the tabernacle. -- Except a man be born again, he cannot see the kingdom of God. -- At that time ye were without Christ, being aliens from the commonwealth of Israel, and strangers from the covenants of promise. But now, in Christ Jesus, ye who sometime were far off, are made nigh by the blood of Christ.
+If ye be Christ's, then are ye Abraham's seed, and heirs according to the promise.
  
-For he is our peace, who hath made both one, ... having abolished in his flesh the enmity, even the law of commandments contained in ordinances; for to make in himself of twain one new man, so making peace.
+Behold, what manner of love the Father hath bestowed upon us, that we should be called the sons of God. -- Thou art no more a servant, but a son; and if a son, then an heir of God through Christ. -- Having predestinated us unto the adoption of children by Jesus Christ to himself, according to the good pleasure of his will.
  
-Now therefore ye are no more strangers and foreigners, but fellowcitizens with the saints, and of the household of God.
+Father, I will that they also, whom thou hast given me, be with me where I am; that they may behold my glory, which thou hast given me.
  
-If any man hear my voice, and open the door, I will come in to him, and will sup with him, and he with me.  
+He that overcometh, and keepeth my works unto the end, to him I will give power over the nations. -- To him that overcometh will I grant to sit with me in my throne, even as I also overcame, and am set down with my Father in his throne.  
 
-**Exo 12:43; Heb 13:10; John 3:3; Eph 2:12,13; Eph 2:14,15; Eph 2:19; Rev 3:20**
+**Rom 8:17; Gal 3:29; 1 John 3:l; Gal 4:7; Eph 1:5; John 17:24; Rev 2:26; Rev 3:21**
 
 # Evening
 
-**[Jesus] prayed the third time, saying the same words.**
+**Things which are despised, hath God chosen.**
  
-Who in the days of his flesh ... offered up prayers and supplications with strong crying and tears unto him that was able to save him from death.
+Behold, are not all these which speak Galilaeans?
  
-Then shall we know, if we follow on to know the Lord. -- Continuing instant in prayer. -- Praying always with all prayer and supplication in the Spirit, and watching thereunto with all perseverance and supplication. -- By prayer and supplication with thanksgiving let your requests be made known unto God. And the peace of God, which passeth all understanding, shall keep your hearts and minds through Christ Jesus.
+Jesus, ... saw two brethren, ... casting a net into the sea: for they were fishers. And he saith unto them, Follow me. -- Now when they saw the boldness of Peter and John, and perceived that they were unlearned and ignorant men, they marvelled; and they took knowledge of them, that they had been with Jesus.
  
-Nevertheless not as I will, but as thou wilt. -- This is the confidence that we have in him, that, if we ask any thing according to his will, he heareth us.
+My speech and my preaching was not with enticing words of man's wisdom, but in demonstration of the Spirit and of power: that your faith should not stand in the wisdom of men, but in the power of God.
  
-Delight thyself ... in the Lord; and he shall give thee the desires of thine heart. Commit thy way unto the Lord; trust also in him; and he shall bring it to pass.  
+Ye have not chosen me, but I have chosen you, and ordained you, that ye should go and bring forth fruit. He that abideth in me, and I in him, the same bringeth forth much fruit: for without me ye can do nothing. -- We have this treasure in earthen vessels, that the excellency of the power may be of God.  
 
-**Matt 26:44; Heb 5:7; Hos 6:3; Rom 12:12; Eph 6:18; Phl 4:6,7; Matt 26:39; 1 John 5:14; Psa 37:4,5**
+**1 Cor 1:28; Acts 2:7; Matt 4:18,19; Acts 4:13; 1 Cor 2:4,5; John 15:16,5; 2 Cor 4:7**
 
 ---
 
-[Tuesday 02-July, 2024](https://t.me/s/daily_light)
+[Wednesday 03-July, 2024](https://t.me/s/daily_light)
 
 > Jonathan Bagster, the son of Samuel Bagster, created the Daily Light for his own family's daily devotion in 1875
 
