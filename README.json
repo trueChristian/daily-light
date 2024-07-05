@@ -1,39 +1,40 @@
 {
-  "date_key": "july-04",
-  "date_name": "Thursday 04-July, 2024",
+  "date_key": "july-05",
+  "date_name": "Friday 05-July, 2024",
   "evening": {
     "body": [
-      "Toward the mercy seat shall the faces of the cherubims be. And thou shalt put the mercy seat above upon the ark; and in the ark thou shalt put the testimony that I shall give thee. I will meet with thee, and I will commune with thee from above the mercy seat.",
-      "Surely his salvation is nigh them that fear him; mercy and truth are met together; righteousness and peace have kissed each other.",
-      "If thou, Lord, shouldest mark iniquities, O Lord, who shall stand? But there is forgiveness with thee, that thou mayest be feared. Let Israel hope in the Lord: for with the Lord there is mercy, and with him is plenteous redemption. And he shall redeem Israel from all his iniquities. -- All have sinned, and come short of the glory of God; being justified freely by his grace through the redemption that is in Christ Jesus: whom God hath set forth to be a propitiation through faith in his blood, to declare his righteousness for the remission of sins."
+      "My brethren, have not the faith of our Lord Jesus Christ, the Lord of glory, with respect of persons. Hath not God chosen the poor of this world rich in faith, and heirs of the kingdom which he hath promised to them that love him?",
+      "Let no man seek his own, but every man another's wealth. -- Having food and raiment let us be therewith content. But they that will be rich fall into temptation and a snare, and into many foolish and hurtful lusts, which drown men in destruction and perdition.",
+      "God hath chosen the foolish things of the world to confound the wise: and God hath chosen the weak things of the world to confound the things which are mighty; and base things of the world, and things which are despised, hath God chosen, yea, and things which are not, to bring to nought things that are: that no flesh should glory in his presence.",
+      "Lord, my heart is not haughty, nor mine eyes lofty."
     ],
-    "header": "Jesus Christ the righteous: the propitiation for our sins.",
+    "header": "Mind not high things, but condescend to men of low estate.",
     "name": "Evening",
     "references": [
-      "Exo 25:20‑22",
-      "Psa 85:9,10",
-      "Psa 130:3,4,7,8",
-      "Rom 3:23-25"
+      "Jas 2:1,5",
+      "1 Cor 10:24",
+      "1 Tim 6:8,9",
+      "1 Cor 1:27‑29",
+      "Psa 131:1"
     ]
   },
   "joomla": "https://git.vdm.dev/christian/mod_dailylight",
   "morning": {
     "body": [
-      "As one whom his mother comforteth, so will I comfort you. -- They brought young children to him, that he should touch them. And he took them up in his arms, put his hands upon them, and blessed them. -- Jesus called his disciples unto him, and said, I have compassion on the multitude, because they continue with me now three days and have nothing to eat; and I will not send them away fasting, lest they faint in the way. -- A high Priest ... touched with the feeling of our infirmities. -- In his love and in his pity he redeemed them.",
-      "I will not leave you comfortless: (marg. orphans) I will come to you. -- Can a woman forget her sucking child, that she should not have compassion on the son of her womb? yea, they may forget, yet will I not forget thee.",
-      "The Lamb which is in the midst of the throne shall feed them, and shall lead them unto living fountains of waters: and God shall wipe away all tears from their eyes."
+      "God, who is rich in mercy, for his great love wherewith he loved us, even when we were dead in sins, hath quickened us together with Christ, (by grace ye are saved;) and hath raised us up together, and made us sit together in heavenly places in Christ Jesus: that in the ages to come he might shew the exceeding riches of his grace in his kindness toward us through Christ Jesus.",
+      "God so loved the world, that he gave his only begotten Son, that whosoever believeth in him should not perish, but have everlasting life. -- He that spared not his own Son, but delivered him up for us all, how shall he not with him also freely give us all things? -- The Lord is good to all: and his tender mercies are over all his works.",
+      "We love him, because he first loved us.",
+      "Blessed is she that believed: for there shall be a performance of those things which were told her from the Lord."
     ],
-    "header": "Leaning on Jesus' bosom.",
+    "header": "We have known and believed the love that God hath to us.",
     "name": "Morning",
     "references": [
-      "Isa 66:13",
-      "Mark 10:13,16",
-      "Matt 15:32",
-      "Heb 4:15",
-      "Isa 63:9",
-      "John 14:18",
-      "Isa 49:15",
-      "Rev 7:17"
+      "Eph 2:4‑7",
+      "John 3:16",
+      "Rom 8:32",
+      "Psa 145:9",
+      "1 John 4:19",
+      "Luke 1:45"
     ]
   },
   "source": "https://github.com/trueChristian/daily-light",
