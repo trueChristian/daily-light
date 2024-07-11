@@ -1,15 +1,11 @@
 **Morning**
 
-**The disciple is not above his master.**
+**I am with thee to save thee.**
  
-Ye call me Master and Lord: and ye say well; for so I am.
+Shall the prey be taken from the mighty, or the lawful captive delivered? But thus saith the Lord, Even the captives of the mighty shall be taken away, and the prey of the terrible shall be delivered: for I will contend with him that contendeth with thee. And all flesh shall know that I the Lord am thy Saviour and thy Redeemer, the mighty One of Jacob. -- Fear thou not; for I am with thee: be not dismayed; for I am thy God: I will strengthen thee; yea, I will help thee; yea, I will uphold thee with the right hand of my righteousness.
  
-It is enough for the disciple that he be as his master, and the servant as his lord. -- If they have persecuted me, they will also persecute you; if they have kept my saying, they will keep yours also. -- I have given them thy word; and the world hath hated them, because they are not of the world, even as I am not of the world.
- 
-Consider him that endured such contradiction of sinners against himself, lest ye be wearied and faint in your minds. Ye have not yet resisted unto blood, striving against sin.
- 
-Let us run with patience the race that is set before us, looking unto Jesus the author and finisher of our faith; who for the joy that was set before him endured the cross, despising the shame, and is set down at the right hand of the throne of God. -- Forasmuch ... as Christ hath suffered for us in the flesh, arm yourselves likewise with the same mind.  
+We have not an high priest which cannot be touched with the feeling of our infirmities; but was in all points tempted like as we are, yet without sin. -- In that he himself hath suffered being tempted, he is able to succour them that are tempted. -- The steps of a good man are ordered by the Lord: and he delighteth in his way. Though he fall, he shall not be utterly cast down: for the Lord upholdeth him with his hand.  
 
-**Matt 10:24; John 13:13; Matt 10:25; John 15:20; John 17:14; Heb 12:3,4; Heb 12:1,2; 1 Pet 4:1**
+**Jer 15:20; Isa 49:24‑26; Isa 41:10; Heb 4:15; Heb 2:18; Psa 37:23,24**
 
-[Wednesday 10-July, 2024](https://t.me/daily_light)
+[Thursday 11-July, 2024](https://t.me/daily_light)
