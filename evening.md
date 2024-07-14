@@ -1,13 +1,13 @@
 **Evening**
 
-**Seek ye out of the book of the Lord.**
+**I trust I shall shortly see thee, and we shall speak face to face.**
  
-Ye shall lay up these my words in your heart and in your soul, and bind them for a sign upon your hand, that they may be as frontlets between your eyes. -- This book of the law shall not depart out of thy mouth; but thou shalt meditate therein day and night, that thou mayest observe to do according to all that is written therein: for then thou shalt make thy way prosperous, and then thou shalt have good success.
+Oh that thou wouldest rend the heavens, that thou wouldest come down! -- As the hart panteth after the water brooks, so panteth my soul after thee, O God. My soul thirsteth for God, for the living God: when shall I come and appear before God? -- Make haste, my beloved, and be thou like to a roe or to a young hart upon the mountains of spices.
  
-The law of his God is in his heart; none of his steps shall slide. -- By the word of thy lips I have kept me from the paths of the destroyer. -- Thy word have I hid in mine heart, that I might not sin against thee.
+Our conversation is in heaven; from whence also we look for the Saviour, the Lord Jesus Christ. -- Looking for that blessed hope, and the glorious appearing of the great God and our Saviour Jesus Christ. -- God our Saviour, and Lord Jesus Christ, which is our hope. -- Whom having not seen, ye love.
  
-We have ... a more sure word of prophecy; whereunto ye do well that ye take heed, as unto a light that shineth in a dark place until the day dawn, and the day star arise in your hearts. -- That we through patience and comfort of the scriptures might have hope.  
+He which testifieth these things saith, Surely I come quickly; Amen. Even so, come, Lord Jesus. -- It shall be said in that day, Lo, this is our God; we have waited for him, and he will save us: this is the Lord; we have waited for him, we will be glad and rejoice in his salvation.  
 
-**Isa 34:16; Deut 11:18; Josh 1:8; Psa 37:31; Psa 17:4; Psa 119:11; 2 Pet 1:19; Rom 15:4**
+**21 John 14; Isa 64:1; Psa 42:1,2; Song 8:14; Phl 3:20; Tit 2:13; 1 Tim 1:1; 1 Pet 1:8; Rev 22:20; Isa 25:9**
 
-[Saturday 13-July, 2024](https://t.me/daily_light)
+[Sunday 14-July, 2024](https://t.me/daily_light)
