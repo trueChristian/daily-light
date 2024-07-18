@@ -1,43 +1,41 @@
 {
-  "date_key": "july-17",
-  "date_name": "Wednesday 17-July, 2024",
+  "date_key": "july-18",
+  "date_name": "Thursday 18-July, 2024",
   "evening": {
     "body": [
-      "Awake, O north wind; and come, thou south; blow upon my garden, that the spices thereof may flow out.",
-      "Behold this selfsame thing, that ye sorrowed after a godly sort, what carefulness it wrought in you, yea, what clearing of yourselves, yea, what indignation, yea, what fear, yea, what vehement desire, yea, what zeal, yea, what revenge! -- Fruit of the Spirit is in all goodness and righteousness and truth: proving what is acceptable unto the Lord.",
-      "The Comforter is the Holy Ghost. -- The love of God is shed abroad in our hearts by the Holy Ghost which is given unto us.",
-      "The fruit of the Spirit is love, joy, peace.",
-      "In a great trial of affliction the abundance of their joy and their deep poverty abounded unto the riches of their liberality.",
-      "All these worketh that one and the selfsame Spirit, dividing to every man severally as he will."
+      "This poor widow hath cast in more than they all. -- Whosoever shall give you a cup of water to drink in my name, because ye belong to Christ, verily I say unto you, he shall not lose his reward. -- If there be first a willing mind, it is accepted according to that a man hath, and not according to that he hath not.",
+      "Let us not love in word, neither in tongue; but in deed and in truth. -- If a brother or sister be naked, and destitute of daily food, and one of you say unto them, Depart in peace, be ye warmed and filled; notwithstanding ye give them not those things which are needful to the body; what doth it profit? -- He which soweth bountifully, shall reap also bountifully. Every man according as he purposeth in his heart, so let him give; not grudgingly, or of necessity: for God loveth a cheerful giver.",
+      "When ye shall have done all those things which are commanded you, say, We are unprofitable servants: we have done that which was our duty to do."
     ],
-    "header": "Sanctification of the Spirit.",
+    "header": "She hath done what she could.",
     "name": "Evening",
     "references": [
-      "Song 4:16",
-      "2 Cor 7:11",
-      "Eph 5:9,10",
-      "John 14:16",
-      "Rom 5:5",
-      "Gal 5:22",
-      "2 Cor 8:2",
-      "1 Cor 12:11"
+      "Luke 21:3",
+      "Mark 9:41",
+      "2 Cor 8:12",
+      "1 John 3:18",
+      "Jas 2:15,16",
+      "2 Cor 9:6,7",
+      "Luke 17:10"
     ]
   },
   "joomla": "https://git.vdm.dev/christian/mod_dailylight",
   "morning": {
     "body": [
-      "I beseech thee, let the power of my Lord be great, according as thou hast spoken, saying, The Lord is longsuffering, and of great mercy, forgiving iniquity and transgression, and by no means clearing the guilty; visiting the iniquity of the fathers upon the children unto the third and fourth generation.",
-      "O remember not against us former iniquities: let thy tender mercies speedily prevent us. Help us, O God of our salvaton, for the glory of thy name: and deliver us, and purge away our sins, for thy name's sake. -- Lord, though our iniquities testify against us, do thou it for thy name's sake: for our backslidings are many; we have sinned against thee. -- We acknowledge, O Lord, our wickedness, and the iniquity of our fathers: for we have sinned against thee.",
-      "If thou, Lord, shouldest mark iniquities, O Lord, who shall stand? But there is forgiveness with thee, that thou mayest be feared."
+      "The foundation of God standeth sure, having this seal, The Lord knoweth them that are his; and, Let every one that nameth the name of Christ, depart from iniquity. -- Many will say to me in that day, Lord, Lord, have we not prophesied in thy name? and in thy name have cast out devils? and in thy name done many wonderful works? And then will I profess unto them, I never knew you ... depart from me, ye that work iniquity. -- The Lord knoweth the way of the righteous; but the way of the ungodly shall perish.",
+      "Behold, I have graven thee upon the palms of my hands; thy walls are continually before me. -- Set me as a seal upon thine heart, as a seal upon thine arm. -- The Lord is good, a strong hold in the day of trouble; and he knoweth them that trust in him.",
+      "I go to prepare a place for you. And if I go and prepare a place for you, I will come again, and receive you unto myself; that where I am, there ye may be also."
     ],
-    "header": "Thou art a gracious God, and merciful, slow to anger, and of great kindness, and repentest thee of the evil.",
+    "header": "He calleth his own sheep by name, and leadeth them out.",
     "name": "Morning",
     "references": [
-      "Num 14:7,18",
-      "Psa 79:8,9",
-      "Jer 14:7",
-      "Jer 14:20",
-      "Psa 130:3,4"
+      "2 Tim 2:19",
+      "Matt 7:22,23",
+      "Psa 1:6",
+      "Isa 49:16",
+      "Song 8:6",
+      "Nah 1:7",
+      "John 14:2,3"
     ]
   },
   "source": "https://github.com/trueChristian/daily-light",
