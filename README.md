@@ -1,32 +1,30 @@
 # Morning
 
-**They are not of the world, even as I am not of the world.**
+**What profit is there of circumcision?**
  
-He is despised and rejected of men; a man of sorrows, and acquainted with grief. -- In the world ye shall have tribulation: but be of good cheer; I have overcome the world.
+Much every way. -- Circumcise yourselves to the Lord, and take away the foreskins of your heart. -- If ... their uncircumcised hearts be humbled, and they then accept of the punishment of their iniquity: then will I remember my covenant with Jacob, and also my covenant with Isaac, and also my covenant with Abraham will I remember.
  
-Such an high priest became us, who is holy, harmless, undefiled, separate from sinners. -- That ye may be blameless and harmless, the sons of God, without rebuke, in the midst of a crooked and perverse nation.
+Jesus Christ was a minister of the circumcision for the truth of God, to confirm the promises made unto the fathers. -- In whom also ye are circumcised with the circumcision made without hands, in putting off the body of the sins of the flesh by the circumcision of Christ. -- You, being dead in your sins and the uncircumcision of your flesh, hath he quickened together with him, having forgiven you all trespasses.
  
-Jesus of Nazareth ... went about doing good, and healing all that were oppressed of the devil; for God was with him. -- As we have therefore opportunity, let us do good unto all men, especially unto them who are of the household of faith.
- 
-That was the true Light, which lighteth every man that cometh into the world. -- Ye are the light of the world. A city that is set on a hill cannot be hid. Let your light so shine before men, that they may see your good works, and glorify your Father which is in heaven.  
+Put off concerning the former conversation the old man, which is corrupt according to the deceitful lusts; and be renewed in the spirit of your mind; and ... put on the new man, which after God is created in righteousness.  
 
-**John 17:16; Isa 53:3; John 16:33; Heb 7:26; Phl 2:15; Acts 10:38; Gal 6:10; John 1:9; Matt 5:14,16**
+**Rom 3:1; Rom 3:2; Jer 4:4; Lev 26:41,42; Rom 15:8; Col 2:11; Col 2:13; Eph 4:22‑24**
 
 # Evening
 
-**He that is of a merry heart hath a continual feast.**
+**The veil of the temple was rent in twain from the top to the bottom.**
  
-The joy of the Lord is your strength. -- The kingdom of God is not meat and drink; but righteousness, and peace, and joy in the Holy Ghost. -- Be filled with the Spirit; speaking to yourselves in psalms and hymns and spiritual songs, singing and making melody in your heart to the Lord; giving thanks always for all things unto God and the Father in the name of our Lord Jesus Christ.
+The Lord Jesus the same night in which he was betrayed took bread: and when he had given thanks, he brake it, and said, Take, eat: this is my body, which is broken for you: this do in remembrance of me. -- The bread that I will give is my flesh, which I will give for the life of the world.
  
-By him ... let us offer the sacrifice of praise to God continually, that is, the fruit of our lips giving thanks to his name.
+Except ye eat the flesh of the Son of man, and drink his blood, ye have no life in you. Whoso eateth my flesh, and drinketh my blood, hath eternal life. He that eateth my flesh, and drinketh my blood, dwelleth in me, and I in him. As the living Father hath sent me, and I live by the Father: so he that eateth me, even he shall live by me. Doth this offend you? What and if ye shall see the Son of man ascend up where he was before? It is the spirit that quickeneth; the flesh profiteth nothing.
  
-Although the fig tree shall not blossom, neither shall fruit be in the vines; the labour of the olive shall fail, and the fields shall yield no meat; the flock shall be cut off from the fold, and there shall be no herd in the stalls: yet I will rejoice in the Lord, I will joy in the God of my salvation. -- Sorrowful, yet alway rejoicing. -- We glory in tribulations also.  
+A new and living way, which he hath consecrated for us, through the veil, that is to say, his flesh; let us draw near.  
 
-**Prov 15:15; Neh 8:10; Rom 14:17; Eph 5:18‑20; Heb 13:15; Hab 3:17,18; 2 Cor 6:10; Rom 5:3**
+**Matt 27:51; 1 Cor 11:23,24; John 6:51; John 6:53,54,56,57,61‑63; Heb 10:20,22**
 
 ---
 
-[Saturday 20-July, 2024](https://t.me/s/daily_light)
+[Sunday 21-July, 2024](https://t.me/s/daily_light)
 
 > Jonathan Bagster, the son of Samuel Bagster, created the Daily Light for his own family's daily devotion in 1875
 
