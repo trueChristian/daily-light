@@ -1,32 +1,30 @@
 # Morning
 
-**In that he died, he died unto sin once: but in that he liveth, he liveth unto God.**
+**Then cometh the end.**
  
-He was numbered with the transgressors. -- Christ was once offered to bear the sins of many. -- Who his own self bare our sins in his own body on the tree, that we, being dead to sins, should live unto righteousness: by whose stripes ye were healed. -- By one offering he hath perfected for ever them that are sanctified.
+Of that day and that hour knoweth no man, no, not the angels which are in heaven, neither the Son, but the Father. Take ye heed, watch and pray: for ye know not when the time is. And what I say unto you I say unto all, Watch. -- The Lord is not slack concerning his promise, as some men count slackness; but is longsuffering to us‑ward, not willing that any should perish, but that all should come to repentance. -- The coming of the Lord draweth nigh. The judge standeth before the door. -- Surely I come quickly.
  
-This man, because he continueth ever, hath an unchangeable priesthood. Wherefore he is able also to save them to the uttermost that come unto God by him, seeing he ever liveth to make intercession for them. -- While we were yet sinners Christ died for us. Much more then, being now justified by his blood, we shall be saved from wrath through him.
+Seeing ... that all these things shall be dissolved, what manner of persons ought ye to be in all holy conversation and godliness.
  
-Forasmuch ... as Christ hath suffered for us in the flesh, arm yourselves likewise with the same mind: for he that hath suffered in the flesh hath ceased from sin; that he no longer should live the rest of his time in the flesh to the lusts of men, but to the will of God.  
+The end of all things is at hand: be ye therefore sober, and watch unto prayer. -- Let your loins be girded about, and your lights burning; and ye yourselves like unto men that wait for their lord, when he will return from the wedding; that when he cometh and knocketh, they may open unto him immediately.  
 
-**Rom 6:10; Isa 53:12; Heb 9:28; 1 Pet 2:24; Heb 10:14; Heb 7:24,25; Rom 5:8,9; 1 Pet 4:1,2**
+**1 Cor 15:24; Matt 13:32,33,37; 2 Pet 3:9; Jas 5:8,9; Rev 22:20; 2 Pet 3:11; 1 Pet 4:7; Luke 12:35,36**
 
 # Evening
 
-**Keep yourselves in the love of God.**
+**Brethren, pray for us.**
  
-Abide in me, and I in you. As the branch cannot bear fruit of itself, except it abide in the vine; no more can ye, except ye abide in me. I am the vine, ye are the branches: He that abideth in me, and I in him, the same bringeth forth much fruit: for without me ye can do nothing.
+Is any sick among you? let him call for the elders of the church; and let them pray over him. And the prayer of faith shall save the sick, and the Lord shall raise him up. Pray one for another, that ye may be healed. The effectual fervent prayer of a righteous man availeth much. Elias was a man subject to like passions as we are, and he prayed earnestly that it might not rain: and it rained not on the earth by the space of three years and six months. And he prayed again, and the heaven gave rain, and the earth brought forth her fruit.
  
-The fruit of the Spirit is love.
+Praying always with all prayer and supplication in the Spirit, and watching thereunto with all perseverance and supplication for all saints.
  
-Herein is my Father glorified, that ye bear much fruit; so shall ye be my disciples. As the Father hath loved me, so have I loved you: continue ye in my love. If ye keep my commandments, ye shall abide in my love; even as I have kept my Father's commandments, and abide in his love. -- Whoso keepeth his word, in him verily is the love of God perfected.
- 
-This is my commandment, That ye love one another, as I have loved you. -- God commendeth his love toward us, in that, while we were yet sinners, Christ died for us. -- God is love; and he that dwelleth in love dwelleth in God, and God in him.  
+Without ceasing I make mention of you always in my prayers. -- Always labouring fervently for you in prayers, that ye may stand perfect and complete in all the will of God.  
 
-**Jude 21; John 15:4,5; Gal 5:22; John 15:8‑10; 1 John 2:5; John 15:12; Rom 5:8; 1 John 4:16**
+**1 Thes 5:25; Jas 5:14‑18; Eph 6:18; Rom 1:9; Col 4:12**
 
 ---
 
-[Monday 22-July, 2024](https://t.me/s/daily_light)
+[Tuesday 23-July, 2024](https://t.me/s/daily_light)
 
 > Jonathan Bagster, the son of Samuel Bagster, created the Daily Light for his own family's daily devotion in 1875
 
