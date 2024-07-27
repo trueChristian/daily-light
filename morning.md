@@ -1,13 +1,13 @@
 **Morning**
 
-**By faith Abraham, ... called to go out into a place which he should after receive for an inheritance, obeyed.**
+**Christ, who is the image of God.**
  
-He shall choose our inheritance for us. -- He led him about, he instructed him, he kept him as the apple of his eye. As an eagle stirreth up her nest, fluttereth over her young, spreadeth abroad her wings, taketh them, beareth them on her wings: so the Lord alone did lead him, and there was no strange god with him.
+The glory of the Lord shall be revealed, and all flesh shall see it together. -- No man hath seen God at any time; the only begotten Son, which is in the bosom of the Father, he hath declared him. And the Word was made flesh, and dwelt among us, (and we beheld his glory, the glory as of the only begotten of the Father,) full of grace and truth. -- He that hath seen me hath seen the Father. -- The brightness of his glory, and the express image of his person. -- God was manifest in the flesh.
  
-I am the Lord thy God which teacheth thee to profit, which leadeth thee by the way that thou shouldest go. -- Who teacheth like Him?
+In whom we have redemption through his blood, even the forgiveness of sins: who is the image of the invisible God, the first‑born of every creature. -- Whom he did foreknow, he also did predestinate to be conformed to the image of his Son, that he might be the firstborn among many brethren.
  
-We walk by faith, not by sight. -- Here have we no continuing city, but we seek one to come. -- Dearly beloved, I beseech you as strangers and pilgrims, abstain from fleshly lusts, which war against the soul. -- Arise ye and depart; for this is not your rest: because it is polluted, it shall destroy you, even with a sore destruction.  
+As we have borne the image of the earthy, we shall also bear the image of the heavenly.  
 
-**Heb 11:8; Psa 47:4; Deut 32:10‑12; Isa 48:17; Job 36:22; 2 Cor 5:7; Heb 13:14; 1 Pet 2:11; Mic 2:10**
+**2 Cor 4:4; Isa 40:5; John 1:18,14; John 14:9; Heb 1:3; 1 Tim 3:16; Col 1:14,15; Rom 8:29; 1 Cor 15:49**
 
-[Friday 26-July, 2024](https://t.me/daily_light)
+[Saturday 27-July, 2024](https://t.me/daily_light)
