@@ -1,32 +1,30 @@
 # Morning
 
-**Whom the Lord loveth he correcteth.**
+**The Comforter, which is the Holy Ghost, whom the Father will send in my name.**
  
-See now that I, even I, am he, and there is no god with me: I kill, and I make alive; I wound, and I heal: neither is there any that can deliver out of my hand. -- I know the thoughts that I think toward you, saith the Lord, thoughts of peace, and not of evil, to give you an expected end. -- My thoughts are not your thoughts, neither are your ways my ways, saith the Lord.
+If thou knewest the gift of God, and who it is that saith to thee, Give me to drink; thou wouldest have asked of him, and he would have given thee living water. -- If ye ... being evil, know how to give good gifts unto your children: how much more shall your heavenly Father give the Holy Spirit to them that ask him? -- Verily, verily, I say unto you, Whatsoever ye shall ask the Father in my name, he will give it you. Hitherto have ye asked nothing in my name: ask, and ye shall receive, that your joy may be full. -- Ye have not, because ye ask not.
  
-I will allure her, and bring her into the wilderness, and speak comfortably unto her. -- As a man chasteneth his son, so the Lord thy God chasteneth thee. -- Now no chastening for the present, seemeth to be joyous, but grievous: nevertheless afterward it yieldeth the peaceable fruit of righteousness unto them which are exercised thereby. -- Humble yourselves therefore under the mighty hand of God, that he may exalt you in due time.
+When ... the Spirit of truth is come, he will guide you into all truth: for he shall not speak of himself; but whatsoever he shall hear, that shall he speak: and he will shew you things to come. He shall glorify me: for he shall receive of mine, and shall shew it unto you.
  
-I know, O Lord, that thy judgments are right, and that thou in faithfulness hast afflicted me.  
+They rebelled, and vexed his Holy Spirit: therefore he was turned to be their enemy, and He fought against them.  
 
-**Prov 3:12; Deut 32:39; Jer 29:11; Isa 55:8; Hos 2:14; Deut 8:5; Heb 12:11; 1 Pet 5:6; Psa 119:75**
+**John 14:26; John 4:10; Luke 11:13; John 16:23,24; Jas 4:2; John 16:13,14; Isa 63:10**
 
 # Evening
 
-**The earth is the Lord's, and the fulness thereof.**
+**What think ye of Christ?**
  
-She did not know that I gave her corn, and wine, and oil, and multiplied her silver and gold. Therefore will I return, and take away my corn in the time thereof, and my wine in the season thereof, and I will recover my wool and my flax.
+Lift up your heads, O ye gates; even lift them up, ye everlasting doors; and the King of glory shall come in. Who is this King of glory? The Lord of hosts, he is the King of glory. -- He hath on his vesture and on his thigh a name written, KING OF KINGS, AND LORD OF LORDS.
  
-All things come of thee, and of thine own have we given thee. For we are strangers before thee, and sojourners, as were all our fathers: our days on the earth are as a shadow, and there is none abiding. O Lord our God, all this store ... cometh of thine hand, and is all thine own. -- Of him, and through him, and to him, are all things: to whom be glory for ever. Amen.
+Unto you ... which believe he is precious: but unto them which be disobedient, the stone which the builders disallowed, the same is made the head of the corner. -- Christ crucified, unto the Jews a stumblingblock, and unto the Greeks foolishness; but unto them which are called, both Jews and Greeks, Christ the power of God, and the wisdom of God.
  
-The living God ... giveth us richly all things to enjoy. -- Every creature of God is good, and nothing to be refused, if it be received with thanksgiving: for it is sanctified by the word of God and prayer.
- 
-My God shall supply all your need according to his riches in glory by Christ Jesus.  
+I count all things but loss for the excellency of the knowledge of Christ Jesus my Lord: for whom I have suffered the loss of all things, and do count them but dung, that I may win Christ. -- Lord, thou knowest all things: thou knowest that I love thee.  
 
-**Psa 24:1; Hos 2:8,9; 1 Chr 29:14‑16; Rom 11:36; 1 Tim 6:17; 1 Tim 4:4,5; Phl 4:19**
+**Matt 22:42; Psa 24:9,10; Rev 9:16; 1 Pet 2:7; 1 Cor 1:23,24; Phl 3:8; John 21:17**
 
 ---
 
-[Tuesday 06-August, 2024](https://t.me/s/daily_light)
+[Wednesday 07-August, 2024](https://t.me/s/daily_light)
 
 > Jonathan Bagster, the son of Samuel Bagster, created the Daily Light for his own family's daily devotion in 1875
 
