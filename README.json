@@ -1,37 +1,34 @@
 {
-  "date_key": "august-11",
-  "date_name": "Sunday 11-August, 2024",
+  "date_key": "august-12",
+  "date_name": "Monday 12-August, 2024",
   "evening": {
     "body": [
-      "God is light, and in him is no darkness at all. -- As long as I am in the world, I am the light of the world.",
-      "If we say that we have fellowship with him, and walk in darkness, we lie, and do not the truth: but if we walk in the light, as he is in the light, we have fellowship one with another, and the blood of Jesus Christ his Son cleanseth us from all sin. -- The Father ... hath made us meet to be partakers of the inheritance of the saints in light, who hath delivered us from the power of darkness, and hath translated us into the kingdom of his dear Son; in whom we have redemption through his blood, even the forgiveness of sins.",
-      "Ye are all the children of light, and the children of the day: we are not of the night, nor of darkness. -- Ye are the light of the world. A city that is set on an hill cannot be hid. Let your light so shine before men, that they may see your good works, and glorify your Father which is in heaven."
+      "When the children of Israel cried unto the LORD, the LORD raised them up a deliverer, Ehud, ... a man lefthanded. After him was Shamgar, ... which slew of the Philistines six hundred men with an ox goad: and he also delivered Israel.",
+      "The LORD looked upon [Gideon], and said, Go in this thy might: ... have not I sent thee? And he said unto him, O my Lord, wherewith shall I save Israel? behold my family is poor in Manasseh, and I am the least in my father's house.",
+      "The LORD said unto Gideon, The people that are with thee are too many for me, ... lest Israel vaunt themselves against me, saying, Mine own hand hath saved me.",
+      "Not by might, nor by power, but by my Spirit, saith the LORD of hosts. -- My brethren, be strong in the Lord, and in the power of his might."
     ],
-    "header": "Where is the way that light dwelleth?",
+    "header": "God hath chosen the weak things of the world to confound the things which are mighty.",
     "name": "Evening",
     "references": [
-      "1 John 1:5",
-      "John 9:5",
-      "1 John 1:6,7",
-      "Col 1:12‑14",
-      "1 Thes 5:5",
-      "Matt 5:14,16"
+      "Judg 3:15,31",
+      "Judg 7:2",
+      "Zech 4:6",
+      "Eph 6:10"
     ]
   },
   "joomla": "https://git.vdm.dev/christian/mod_dailylight",
   "morning": {
     "body": [
-      "Our Saviour Jesus Christ ... hath abolished death, and hath brought life and immortality to light through the gospel. -- He will swallow up death in victory; and the Lord GOD shall wipe away the tears from off all faces; and the rebuke of his people shall he take away from off all the earth: for the Lord hath spoken it. When this corruptible shall have put on incorruption, and this mortal shall have put on immortality, then shall be brought to pass the saying that is written, Death is swallowed up in victory. O death, where is thy sting? O grave, where is thy victory? The sting of death is sin; and the strength of sin is the law. But thanks be to God, which giveth us the victory through our Lord Jesus Christ.",
-      "God hath not given us the spirit of fear; but of power, and of love, and of a sound mind. -- Yea, though I walk through the valley of the shadow of death, I will fear no evil: for thou art with me; thy rod and thy staff they comfort me."
+      "Fear thou not, ... saith the LORD: for I am with thee; I will not make a full end of thee, but correct thee in measure. -- For a small moment have I forsaken thee; but with great mercies will I gather thee. In a little wrath I hid my face from thee for a moment; but with everlasting kindness will I have mercy on thee, saith the LORD thy Redeemer. For the mountains shall depart, and the hills be removed; but my kindness shall not depart from thee, neither shall the covenant of my peace be removed, saith the LORD that hath mercy on thee. O thou afflicted, tossed with tempest, and not comforted, behold, I will lay thy stones with fair colours, and lay thy foundations with sapphires.",
+      "I will bear the indignation of the LORD, because I have sinned against him, until he plead my cause, and execute judgment for me: he will bring me forth to the light, and I shall behold his righteousness."
     ],
-    "header": "That through death He might destroy him that had the power of death.",
+    "header": "The Lord will not cast off for ever: but though he cause grief, yet will he have compassion.",
     "name": "Morning",
     "references": [
-      "2 Tim 1:10",
-      "Isa 25:8",
-      "1 Cor 15:54‑57",
-      "2 Tim 1:7",
-      "Psa 23:4"
+      "Jer 46:28",
+      "Isa 54:7,8,10,11",
+      "Mic 7:9"
     ]
   },
   "source": "https://github.com/trueChristian/daily-light",
