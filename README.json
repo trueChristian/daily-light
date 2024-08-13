@@ -1,34 +1,39 @@
 {
-  "date_key": "august-12",
-  "date_name": "Monday 12-August, 2024",
+  "date_key": "august-13",
+  "date_name": "Tuesday 13-August, 2024",
   "evening": {
     "body": [
-      "When the children of Israel cried unto the LORD, the LORD raised them up a deliverer, Ehud, ... a man lefthanded. After him was Shamgar, ... which slew of the Philistines six hundred men with an ox goad: and he also delivered Israel.",
-      "The LORD looked upon [Gideon], and said, Go in this thy might: ... have not I sent thee? And he said unto him, O my Lord, wherewith shall I save Israel? behold my family is poor in Manasseh, and I am the least in my father's house.",
-      "The LORD said unto Gideon, The people that are with thee are too many for me, ... lest Israel vaunt themselves against me, saying, Mine own hand hath saved me.",
-      "Not by might, nor by power, but by my Spirit, saith the LORD of hosts. -- My brethren, be strong in the Lord, and in the power of his might."
+      "Be not deceived: neither fornicators, nor idolators, nor adulterers, nor effeminate, nor abusers of themselves with mankind, nor thieves, nor covetous, nor drunkards, nor revilers, nor extortioners, shall inherit the kingdom of God. And such were some of you: but ye are washed, but ye are sanctified, but ye are justified in the name of the Lord Jesus, and by the Spirit of our God.",
+      "You hath he quickened, who were dead in trespasses and sins; wherein in time past ye walked according to the course of this world; among whom also we all had our conversation in times past in the lusts of our flesh, fulfilling the desires of the flesh and of the mind.",
+      "According to his mercy he saved us, by the washing of regeneration, and renewing of the Holy Ghost; which he shed on us abundantly through Jesus Christ our Saviour.",
+      "My thoughts are not your thoughts, neither are your ways my ways, saith the LORD."
     ],
-    "header": "God hath chosen the weak things of the world to confound the things which are mighty.",
+    "header": "Base things of the world hath God chosen.",
     "name": "Evening",
     "references": [
-      "Judg 3:15,31",
-      "Judg 7:2",
-      "Zech 4:6",
-      "Eph 6:10"
+      "1 Cor 6:9-11",
+      "Eph 2:1-3",
+      "Tit 3:5,6",
+      "Isa 55:8"
     ]
   },
   "joomla": "https://git.vdm.dev/christian/mod_dailylight",
   "morning": {
     "body": [
-      "Fear thou not, ... saith the LORD: for I am with thee; I will not make a full end of thee, but correct thee in measure. -- For a small moment have I forsaken thee; but with great mercies will I gather thee. In a little wrath I hid my face from thee for a moment; but with everlasting kindness will I have mercy on thee, saith the LORD thy Redeemer. For the mountains shall depart, and the hills be removed; but my kindness shall not depart from thee, neither shall the covenant of my peace be removed, saith the LORD that hath mercy on thee. O thou afflicted, tossed with tempest, and not comforted, behold, I will lay thy stones with fair colours, and lay thy foundations with sapphires.",
-      "I will bear the indignation of the LORD, because I have sinned against him, until he plead my cause, and execute judgment for me: he will bring me forth to the light, and I shall behold his righteousness."
+      "If I go and prepare a place for you, I will come again, and receive you unto myself; that where I am, there ye may be also. -- An inheritance incorruptible, and undefiled, and that fadeth not away, reserved in heaven for you. -- Here have we no continuing city, but we seek one to come.",
+      "This same Jesus, which is taken up from you into heaven, shall so come in like manner as ye have seen him go into heaven. -- Be patient therefore, brethren, unto the coming of the Lord. Behold, the husbandman waiteth for the precious fruit of the earth, and hath long patience for it, until he receive the early and latter rain. -- Be ye also patient; stablish your hearts: for the coming of the the Lord draweth nigh. -- Yet a little while, and he that shall come will come, and will not tarry.",
+      "We which are alive and remain shall be caught up together with them in the clouds, to meet the Lord in the air: and so shall we ever be with the Lord. Wherefore comfort one another with these words."
     ],
-    "header": "The Lord will not cast off for ever: but though he cause grief, yet will he have compassion.",
+    "header": "He hath prepared for them a city.",
     "name": "Morning",
     "references": [
-      "Jer 46:28",
-      "Isa 54:7,8,10,11",
-      "Mic 7:9"
+      "John 14:3",
+      "1 Pet 1:4",
+      "Heb 13:14",
+      "Acts 1:11",
+      "Jas 5:7,8",
+      "Heb 10:37",
+      "1 Thes 4:17,18"
     ]
   },
   "source": "https://github.com/trueChristian/daily-light",
