@@ -1,13 +1,13 @@
 **Evening**
 
-**He is before all things.**
+**As for man, his days are as grass: as a flower of the field, so he flourisheth. For the wind passeth over it, and it is gone; and the place therof shall know it no more.**
  
-The Amen; the beginning of the creation of God. -- The beginning, the firstborn from the dead; that in all things he might have the pre eminence.
+So teach us to number our days, that we may apply our hearts to wisdom. -- What shall it profit a man, if he shall gain the whole world, and lose his own soul?
  
-The LORD possessed me in the beginning of his way, before his works of old. I was set up from everlasting, from the beginning, or ever the earth was. When he prepared the heavens, I was there: when he set a compass upon the face of the depth: when he established the clouds above: when he strengthened the fountains of the deep; when he gave to the sea his decree, that the waters should not pass his commandment. I was daily his delight rejoicing always before him. -- Yea, before the day was I am he.
+Surely the people is grass. The grass withereth, the flower fadeth: but the word of our God shall stand for ever. -- The world passeth away, and the lust thereof: but he that doeth the will of God abideth for ever.
  
-The Lamb slain from the foundation of the world. -- The author and finisher of our faith; who for the joy that was set before him, endured the cross, despising the shame, and is set down at the right hand of the throne of God.  
+Behold, now is the accepted time; behold, now is the day of salvation. -- Use this world, as not abusing it: for the fashion of this world passeth away. -- Let us consider one another to provoke unto love and to good works: not forsaking the assembling of ourselves together, as the manner of some is; but exhorting one another; and so much the more, as ye see the day approaching.  
 
-**Col 1:17; Rev 3:14; Col 1:18; Prov 8:22,23,27,30; Isa 43:13; Rev 13:8; Heb 12:2**
+**Psa 103:15,16; Psa 90:12; Mark 8:36; Isa 40:7,8; 1 John 2:17; 2 Cor 6:2; 1 Cor 7:31; Heb"**
 
-[Friday 16-August, 2024](https://t.me/daily_light)
+[Saturday 17-August, 2024](https://t.me/daily_light)
