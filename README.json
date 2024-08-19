@@ -1,39 +1,36 @@
 {
-  "date_key": "august-18",
-  "date_name": "Sunday 18-August, 2024",
+  "date_key": "august-19",
+  "date_name": "Monday 19-August, 2024",
   "evening": {
     "body": [
-      "Let not the wise man glory in his wisdom, neither let the mighty man glory in his might, let not the rich man glory in his riches: but let him that glorieth glory in this, that he understandeth and knoweth me, that I am the LORD.",
-      "I count all things but loss for the excellency of the knowledge of Christ Jesus my Lord: for whom I have suffered the loss of all things, and do count them but dung, that I may win Christ. -- I am not ashamed of the gospel of Christ: for it is the power of God unto salvation to every one that believeth. -- I have whereof I may glory through Jesus Christ in those things which pertain to God.",
-      "Whom have I in heaven but thee? and there is none upon earth that I desire beside thee. -- My heart rejoiceth in the LORD. ... I rejoice in thy salvation.",
-      "Not unto us, O LORD, not unto us, but unto thy name give glory, for thy mercy, and for thy truth's sake."
+      "A new heart ... will I give you, and a new spirit will I put within you: and I will take away the stony heart out of your flesh, and I will give you an heart of flesh. And I will put my Spirit within you, and cause you to walk in my statutes. Thus saith the Lord God; I will yet for this be enquired of by the house of Israel, to do it for them.",
+      "If two of you shall agree on earth as touching anything that they shall ask, it shall be done for them of my Father which is in heaven. For where two or three are gathered together in my name, there am I in the midst of them.",
+      "Have faith in God. Verily I say unto you, That whosoever shall say unto this mountain, Be thou removed, and be thou cast into the sea; and shall not doubt in his heart, but shall believe that those things which he saith shall come to pass; he shall have whatsoever he saith."
     ],
-    "header": "He that glorieth, let him glory in the Lord.",
+    "header": "Ask me of things to come concerning my sons, and concerning the work of my hands command ye me.",
     "name": "Evening",
     "references": [
-      "Jer 9:23,24",
-      "Phl 3:8",
-      "Rom 1:16",
-      "Rom 15:17",
-      "Psa 73:25",
-      "1 Sam 2:1",
-      "Psa 115:1"
+      "Ezek 36:26,27,37",
+      "Matt 18:19,20",
+      "Mark 11:22,23"
     ]
   },
   "joomla": "https://git.vdm.dev/christian/mod_dailylight",
   "morning": {
     "body": [
-      "Who in the heaven can be compared unto the LORD? who among the sons of the mighty can be likened unto the LORD? O LORD God of hosts, who is a strong LORD like unto thee? or to thy faithfulness round about thee? -- Among the gods there is none like unto thee, O Lord; neither are there any works like unto thy works. -- For thy word's sake, and according to thine own heart hast thou done all these great things, to make thy servant know them. Wherefore thou art great, O LORD God: for there is none like thee, neither is there any God beside thee, according to all that we have heard with our ears.",
-      "Eye hath not seen, nor ear heard, neither have entered into the heart of man, the things which God hath prepared for them that love him. But God hath revealed them unto us by his Spirit. -- The secret things belong unto the LORD our God: but those thing which are revealed belong unto us and to our children."
+      "Ye know how we exhorted ... and charged every one of you, that ye would walk worthy of God, who hath called you unto his kingdom and glory. -- Ye should shew forth the praises of him who hath called you out of darkness into his marvellous light.",
+      "Ye were sometime darkness, but now are ye light in the Lord: walk as children of light: (for the fruit of the Spirit is in all goodness and righteousness and truth;) proving what is acceptable unto the Lord. And have no fellowship with the unfruitful works of darkness, but rather reprove them. -- Being filled with the fruits of righteousness, which are by Jesus Christ, unto the glory and praise of God.",
+      "Let your light so shine before men, that they may see your good works, and glorify your Father which is in heaven. -- Whether therefore ye eat, or drink, or whatsoever ye do, do all to the glory of God."
     ],
-    "header": "What God is there in heaven or in earth, that can do according to thy works, and according to thy might?",
+    "header": "As he which hath called you is holy, so be ye holy in all manner of conversation.",
     "name": "Morning",
     "references": [
-      "Psa 89:6,8",
-      "Psa 86:8",
-      "2 Sam 7:21,22",
-      "1 Cor 2:9,10",
-      "Deut 29:29"
+      "1 Thes 2:11,12",
+      "1 Pet 2:9",
+      "Eph 5:8-11",
+      "Phl 1:11",
+      "Matt 5:16",
+      "1 Cor 10:31"
     ]
   },
   "source": "https://github.com/trueChristian/daily-light",
