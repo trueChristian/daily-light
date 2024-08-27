@@ -1,30 +1,28 @@
 # Morning
 
-**Thou shalt make a plate of pure gold, and grave upon it, like the engravings of a signet: HOLINESS TO THE LORD.**
+**Thy word is a lamp unto my feet, and a light unto my path.**
  
-Holiness, without which no man can see the Lord. -- God is a Spirit: and they that worship him must worship him in spirit and in truth. -- But we are all as an unclean thing, and all our righteousnesses are as filthy rags. -- I will be sanctified in them that come nigh me, and before all the people I will be glorified.
+By the word of thy lips I have kept me from the paths of the destroyer. Hold up my goings in thy paths, that my footsteps slip not. -- When thou goest, it shall lead thee; when thou sleepest, it shall keep thee; and when thou awakest, it shall talk with thee. For the commandment is a lamp; and the law is light. -- Thine ears shall hear a word behind thee, saying, This is the way, walk ye in it, when ye turn to the right hand, and when ye turn to the left.
  
-This is the law of the house: Upon the top of the mountain the whole limit thereof round about shall be most holy. -- Holiness becometh thine house, O LORD, for ever.
- 
-For their sakes I sanctify myself, that they also might be sanctified through the truth. -- Seeing ... that we have a great high priest, that is passed into the heavens, Jesus the Son of God, let us ... come boldly unto the throne of grace. that we may obtain mercy, and find grace to help in time of need.  
+I am the light of the world: he that followeth me shall not walk in darkness, but shall have the light of life. -- We have also a sure word of prophecy; whereunto ye do well that ye take heed, as unto a light that shineth in a dark place. -- Now we see through a glass, darkly; but then face to face: now I know in part; but then shall I know even as also I am known. -- They need no candle, neither light of the sun; for the Lord God giveth them light: and they shall reign for ever and ever.  
 
-**Exo 28:36; Heb 12:14; John 4:24; Isa 64:6; Lev 10:3; Ezek 43:12; Psa 93:5; John 17:19; Heb 4:14,16**
+**Psa 119:105; Psa 17:4,5; Prov 6:22,23; Isa 30:21; John 8:12; 2 Pet 1:19; 1 Cor 13:12; Rev 22:5**
 
 # Evening
 
-**My cup runneth over.**
+**What meanest thou, O sleeper? arise.**
  
-O taste and see that the LORD is good: blessed is the man that trusteth in him. O fear the LORD, ye his saints: for there is no want to them that fear him. The young lions do lack, and suffer hunger: but they that seek the LORD shall not want any good thing. -- His compassions fail not. They are new every morning: great is thy faithfulness.
+This is not your rest: ... it is polluted, it shall destroy you. -- Set your affection on things above, not on things on the earth. -- If riches increase, set not your heart upon them. -- Set your heart and your soul to seek your God: arise therefore.
  
-The LORD is the portion of mine inheritance and of my cup: thou maintainest my lot. The lines are fallen unto me in pleasant places; yea, I have a goodly heritage. -- Whether ... the world, or life, or death, or things present, or things to come; all are yours. -- Blessed be the God and Father of our Lord Jesus Christ, who hath blessed us with all spiritual blessings in heavenly places in Christ.
+Why sleep ye? rise and pray, lest ye enter into temptation. -- Take heed to yourselves, lest at any time your hearts be overcharged with surfeiting, and drunkenness, and cares of this life, and so that day come upon you unawares.
  
-I have learned, in whatsoever state I am, therewith to be content. -- Godliness with contentment is great gain. -- My God shall supply all your need according to his riches in glory by Christ Jesus.  
+While the bridegroom tarried, they all slumbered and slept. -- Yet a little while, and he that shall come will come, and will not tarry. -- Now it is high time to awake out of sleep: for now is our salvation nearer than when we believed. -- Watch ye therefore: for ye know not when the master of the house cometh, at even, or at midnight, or at the cockcrowing, or in the morning: lest coming suddenly he finds you sleeping.  
 
-**Psa 23:5; Psa 34:8-10; Lam 3:22,23; Psa 16:5,6; 1 Cor 3:22; Eph 1:3; Phl 4:11; 1 Tim 6:6; Phl 4:19**
+**Jon 1:6; Mic 2:10; Col 3:2; Psa 62:10; 1 Chr 22:19; Luke 22:46; Luke 21:34; Matt 25:5; Heb 10:37; Rom 13:11; Mark 13:35,36**
 
 ---
 
-[Monday 26-August, 2024](https://t.me/s/daily_light)
+[Tuesday 27-August, 2024](https://t.me/s/daily_light)
 
 > Jonathan Bagster, the son of Samuel Bagster, created the Daily Light for his own family's daily devotion in 1875
 
