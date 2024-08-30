@@ -1,41 +1,41 @@
 {
-  "date_key": "august-29",
-  "date_name": "Thursday 29-August, 2024",
+  "date_key": "august-30",
+  "date_name": "Friday 30-August, 2024",
   "evening": {
     "body": [
-      "Thou shalt not be afraid for the terror by night. He shall cover thee with his feathers, and under his wings shalt thou trust. -- Even as a hen gathereth her chickens under her wings. -- He will not suffer thy foot to be moved: he that keepeth thee will not slumber. Behold, he that keepeth Israel shall neither slumber nor sleep. The LORD is thy keeper: the LORD is thy shade upon thy right hand.",
-      "I will abide in thy tabernacle for ever: I will trust in the covert of thy wings. -- The darkness hideth not from thee; but the night shineth as the day: the darkness and the light are both alike to thee.",
-      "He that spared not his own Son, but delivered him up for us all, how shall he not with him also freely give us all things? -- Ye are Christ's; and Christ is God's. -- I will trust, and not be afraid."
+      "Without controversy great is the mystery of godliness: God was manifest in the flesh. -- The bread of God is he which cometh down from heaven, and giveth life unto the world.",
+      "Your fathers did eat manna in the wilderness, and are dead. -- If any man eat of this bread, he shall live for ever: and the bread that I will give is my flesh, which I will give for the life of the world. -- My flesh is meat indeed, and my blood is drink indeed.",
+      "The children of Israel ... gathered, some more, some less. He that gathered much had nothing over, and he that gathered little had no lack. They gathered it every morning, every man according to his eating.",
+      "Take no thought, saying, What shall we eat: or, What shall we drink? Your heavenly Father knoweth that ye have need of all these things. But seek ye first the kingdom of God and his righteousness; and all these things shall be added unto you."
     ],
-    "header": "I will both lay me down in peace, and sleep: for thou, Lord, only makest me dwell in safety.",
+    "header": "They said, ... it is manna: for they wist not what it was.",
     "name": "Evening",
     "references": [
-      "Psa 91:5,4",
-      "Matt 23:37",
-      "Psa 121:3-5",
-      "Psa 61:4",
-      "Psa 139:12",
-      "Rom 8:32",
-      "1 Cor 3:23",
-      "Isa 12:2"
+      "1 Tim 3:16",
+      "John 6:33",
+      "John 6:49,51,55",
+      "Luke 16:17,18,21",
+      "Exo 16:17,18,21",
+      "Matt 6:31-33"
     ]
   },
   "joomla": "https://git.vdm.dev/christian/mod_dailylight",
   "morning": {
     "body": [
-      "[Abraham] staggered not at the promise of God through unbelief; but was strong in faith, giving glory to God; and being fully persuaded that, what he had promised, he was able also to perform. -- The children of Judah prevailed, because they relied upon the LORD God of their fathers.",
-      "God is our refuge and strength, a very present help in trouble. Therefore will not we fear, though the earth be removed, and though the mountains be carried into the midst of the sea. -- It is better to trust in the LORD than to put confidence in man. It is better to trust in the LORD than to put confidence in princes. -- The steps of a good man are ordered by the LORD: and he delighteth in his way. Though he fall, he shall not be utterly cast down: for the LORD upholdeth him with his hand.",
-      "O taste and see that the LORD is good: blessed is the man that trusteth in him. O fear the LORD, ye his saints: for there is no want to them that fear him."
+      ".",
+      "It shall come to pass, when he crieth unto me, that I will hear; for I am gracious.",
+      "We have known and believed the love that God hath to us. God is love; and he that dwelleth in love dwelleth in God, and God in him. Herein is our love made perfect, that we may have boldness in the day of judgment: because as he is, so are we in this world. There is no fear in love; but perfect love casteth out fear: because fear hath torment. He that feareth is not made perfect in love. We love him, because he first loved us.",
+      "Let us draw near with a true heart, in full assurance of faith, having our hearts sprinkled from an evil conscience, and our bodies washed with pure water. -- For through him we ... have access by one Spirit unto the Father. -- We have boldness and access with confidence by the faith of him. -- Let us therefore come boldly unto the throne of grace, that we may obtain mercy, and find grace to help in time of need."
     ],
-    "header": "Whoso trusteth in the Lord, happy is he.",
+    "header": "The king held out ... the golden sceptre. So Esther drew near, and touched the top of the sceptre",
     "name": "Morning",
     "references": [
-      "Rom 4:20,21",
-      "2 Chr 13:18",
-      "Psa 46:1,2",
-      "Psa 118:8,9",
-      "Psa 37:23,24",
-      "Psa 34:8,9"
+      "Exo 22:27",
+      "1 John 4:16-19",
+      "Heb 10:22",
+      "Eph 2:18",
+      "Eph 3:12",
+      "Heb 4:16"
     ]
   },
   "source": "https://github.com/trueChristian/daily-light",
