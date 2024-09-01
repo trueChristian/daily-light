@@ -1,11 +1,11 @@
 **Morning**
 
-**The free gift is of many offences unto justification.**
+**The fruit of the spirit is meekness.**
  
-Though your sins be as scarlet, they shall be as white as snow; though they be red like crimson, they shall be as wool. -- I, even I, am he that blotteth out thy transgressions for mine own sake, and will not remember thy sins. Put me in remembrance: let us plead together: declare thou, that thou mayest be justified. -- I have blotted out, as a thick cloud, thy transgressions, and, as a cloud, thy sins: return unto me; for I have redeemed thee.
+The meek ... shall increase their joy in the LORD, and the poor among men shall rejoice in the Holy One of Israel. -- Except ye be converted, and become as little children, ye shall not enter into the kingdom of heaven. Whosoever therefore shall humble himself as this little child, the same is greatest in the kingdom of heaven. -- The ornament of a meek and quiet spirit, ... is in the sight of God of great price. -- Charity vaunteth not itself, is not puffed up.
  
-God so loved the world, that he gave his only begotten Son, that whosoever believeth in him should not perish, but have everlasting life. -- Not as the offence, so also is the free gift. For if through the offence of one many be dead, much more the grace of God, and the gift by grace, which is by one man, Jesus Christ, hath abounded unto many. -- And such were some of you: but ye are washed, but ye are sanctified, but ye are justified in the name of the Lord Jesus, and by the Spirit of our God.  
+Follow after meekness. -- Take my yoke upon you and learn O me, for I am meek and lowly in heart. -- He was oppressed, and he was afflicted, yet he opened not his mouth: he is brought as lamb to the slaughter, and as a sheep before her shearers is dumb so he openeth not his mouth. -- Christ also suffered for us, leaving us an example, that ye should follow his steps: who did no sin neither was guile found in his mouth: who, when he was reviled reviled not again, ... but committed himself to him that judgeth righteously.  
 
-**Rom 5:16; Isa 1:18; Isa 43:25,26; Isa 44:22; John 3:16; Rom 5:15; 1 Cor 6:11**
+**Gal 5:22; Isa 29:19; Matt 8:3,4; 1 Cor 3:4; 1 Cor 13:4; 1 Tim 6:11; Matt 11:29; Isa 53:7; 1 Pet 2:21-23**
 
-[Saturday 31-August, 2024](https://t.me/daily_light)
+[Sunday 01-September, 2024](https://t.me/daily_light)
