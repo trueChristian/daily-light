@@ -1,15 +1,15 @@
 **Evening**
 
-**If any man will come after me, let him deny himself, and take up his cross daily, and follow me.**
+**He maketh me to lie down in green pastures.**
  
-By honour and dishonour, by evil report and good report. -- All that will live godly in Christ Jesus shall suffer persecution. -- The offence of the cross.
+The wicked are like the troubled sea, when it cannot rest. There is no peace, saith my God, to the wicked.
  
-If I yet pleased men, I should not be the servant of Christ.
+Come unto me, all ye that labour and are heavy laden, and I will give you rest. -- Rest in the LORD. -- He that is entered into his rest, he also hath ceased from his own works.
  
-If ye be reproached for the name of Christ, happy are ye: but let none of you suffer as a murderer, or as a thief, or as an evildoer, or as a busybody in other men's matters. Yet if any man suffer as a Christian, let him not be ashamed; but let him glorify God on this behalf.
+Be not carried about with divers and strange doctrines. For it is a good thing that the heart be established with grace. -- That ... we be no more children, tossed to and fro, and carried about with every wind of doctrine, by the sleight of men, and cunning craftiness, whereby they lie in wait to deceive; but speaking the truth in love, may grow up into him in all things, which is the head, even Christ.
  
-Unto you it is given in the behalf of Christ, not only to believe on him, but also to suffer for his sake. -- If one died for all, then were all dead: and that he died for all, that they which live should not henceforth live unto themselves, but unto him which died for them, and rose again. -- If we suffer, we shall also reign with him.  
+I sat down under his shadow with great delight, and his fruit was sweet to my taste. He brought me to the banqueting house, and his banner over me was love.  
 
-**Luke 9:23; 2 Cor 6:8; 2 Tim 3:12; Gal 5:11; Gal 1:10; 1 Pet 4:14-16; Phl 1:29; 2 Cor 5:14,15; 2 Tim 2:12**
+**Psa 23:2; Isa 57:20,21; Matt 11:28; Psa 37:7; Heb 4:10; Heb 13:9; Eph 4:14,15; Song 2:3,4**
 
-[Sunday 01-September, 2024](https://t.me/daily_light)
+[Monday 02-September, 2024](https://t.me/daily_light)
