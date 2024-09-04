@@ -1,30 +1,34 @@
 # Morning
 
-**Neither shall there be leaven seen with thee in all thy quarters.**
+**Sit still, my daughter.**
  
-The fear of the LORD is to hate evil. -- Abhor that which is evil. -- Abstain from all appearance of evil. -- Looking diligently lest any man fail of the grace of God; lest any root of bitterness springing up trouble you, and thereby many be defiled.
+Take heed, and be quiet; fear not, neither be fainthearted. -- Be still, and know that I am God. -- Said I not unto thee, that, if thou wouldest believe, thou shouldest see the glory of God? -- The loftiness of man shall be bowed down, and the haughtiness of men shall be made low: and the Lord alone shall be exalted in that day.
  
-If I regard iniquity in my heart, the Lord will not hear me.
+Mary ... sat at Jesus' feet, and heard his word. -- Mary hath chosen that good part, which shall not be taken away from her. -- In returning and rest shall ye be saved; in quietness and in confidence shall be your strength. -- Commune with your own heart upon your bed, and be still.
  
-Know ye not that a little leaven leaveneth the whole lump? Purge out therefore the old leaven, that ye may be a new lump, as ye are unleavened. For even Christ our passover is sacrificed for us: therefore let us keep the feast, not with old leaven, neither with the leaven of malice and wickedness; but with the unleavened bread of sincerity and truth. -- Let a man examine himself, and so let him eat of that bread, and drink of that cup.
+Rest in the LORD, and wait patiently for him: fret not thyself because of him who prospereth in his way, because of the man who bringeth wicked devices to pass.
  
-Let every one that nameth the name of Christ depart from iniquity. -- Such an high priest became us, who is holy, harmless, undefiled, separate from sinners. -- In him is no sin.  
+He shall not be afraid of evil tidings: his heart is fixed, trusting in the LORD. His heart is established.
+ 
+He that believeth shall not make haste.  
 
-**Exo 13:7; Prov 8:13; Rom 12:9; 1 Thes 5:22; Heb 12:15; Psa 66:18; 1 Cor 5:6-8; 1 Cor 11:28; 2 Tim 2:19; Heb 7:26; 1 John 3:5**
+**Ruth 3:18; Isa 7:8; Psa 46:10; John 11:40; Isa 2:17; Luke 10:39; Luke 10:42; Isa 30:15; Psa 4:4; Psa 37:7; Psa 112:7,8; Isa 28:16**
 
 # Evening
 
-**The serpent said unto the woman, Ye shall not surely die: ... your eyes shall be opened, and ye shall be as gods, knowing good and evil.**
+**What I do thou knowest not now; but thou shalt know hereafter. **
  
-I fear, lest by any means, as the serpent beguiled Eve through his subtlety, so your minds should be corrupted from the simplicity that is in Christ.
+Thou shalt remember all the way which the LORD thy God led thee these forty years in the wilderness, to humble thee, and to prove thee, to know what was in thine heart, whether thou wouldest keep his commandments, or no.
  
-My brethren, be strong in the Lord, and in the power of his might. Put on the whole armour of God, that ye may be able to stand against the wiles of the devil. Take unto you the whole armour of God, that ye may be able to withstand in the evil day, and having done all, to stand. Stand therefore, having your loins girt about with truth, and having on the breastplate of righteousness; and your feet shod with the preparation of the gospel of peace; above all, taking the shield of faith, wherewith ye shall be able to quench all the fiery darts of the wicked. And take the helmet of salvation, and the sword of the Spirit, which is the word of God. -- Lest Satan should get an advantage of us; for we are not ignorant of his devices.  
+When I passed by thee, and looked upon thee, behold, thy time was the time of love; yea, I sware unto thee, and entered into a covenant with thee, saith the Lord God, and thou becamest mine. -- Whom the Lord loveth he chasteneth.
+ 
+Beloved, think it not strange concerning the fiery trial which is to try you, as though some strange thing happened unto you: but rejoice, inasmuch as ye are partakers of Christ's sufferings; that, when his glory shall be revealed, ye may be glad also with exceeding joy. -- Our light affliction, which is but for a moment, worketh for us a far more exceeding and eternal weight of glory; while we look not at the things which are seen, but at the things which are not seen.  
 
-**Gen 3:4,5; 2 Cor 11:3; Eph 6:10,11,13-17; 2 Cor 2:11**
+**John 13:7; Deut 8:2; Ezek 16:8; Heb 12:6; 1 Pet 4:12,13; 2 Cor 4:17,18**
 
 ---
 
-[Tuesday 03-September, 2024](https://t.me/s/daily_light)
+[Wednesday 04-September, 2024](https://t.me/s/daily_light)
 
 > Jonathan Bagster, the son of Samuel Bagster, created the Daily Light for his own family's daily devotion in 1875
 
