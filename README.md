@@ -1,34 +1,28 @@
 # Morning
 
-**Let us lift up our heart with our hands unto God in the heavens.**
+**Rejoicing in hope.**
  
-Who is like unto the LORD our God, who dwelleth on high, who humbleth himself to behold the things that are in heaven, and in the earth! -- Unto thee, O LORD, do I lift up my soul. -- I stretch forth my hands unto thee: my soul thirsteth after thee, as a thirsty land. Hide not thy face from me, lest I be like unto them that go down into the pit. Cause me to hear thy lovingkindness in the morning; for in thee do I trust: cause me to know the way wherein I should walk; for I lift up my soul unto thee.
+The hope which is laid up for you in heaven. -- If in this life only we have hope in Christ, we are of all men most miserable. -- We must through much tribulation enter into the kingdom of God. -- Whosoever doth not bear his cross, and come after me cannot be my disciple. -- No man should be moved by these afflictions, for yourselves know that we are appointed thereunto.
  
-Because thy lovingkindness is better than life, my lips shall praise thee. Thus will I bless thee while I live: I will lift up my hands in thy name. -- Rejoice the soul of thy servant: for unto thee, O Lord, do I lift up my soul. For thou, Lord, art good, and ready to forgive; and plenteous in mercy unto all them that call upon thee.
- 
-Whatsoever ye shall ask in my name, that will I do.  
+Rejoice in the Lord alway: and again I say, Rejoice. -- The God of hope fill you with all joy and peace in believing, that ye may abound in hope, through the power of the Holy Ghost. -- Blessed be the God and Father of our Lord Jesus Christ, which according to his abundant mercy hath begotten us again unto lively hope by the resurrection of Jesus Christ from the dead. -- Whom having not seen, ye love; in whom though now ye see him not, yet believing. ye rejoice with joy unspeakable and full of glory. -- By whom also we have access by faith into this grace wherein we stand, and rejoice in hope of the glory of God.  
 
-**Lam 3:41; Psa 113:5,6; Psa 25:1; Psa 143:6-8; Psa 63:3,4; Psa 86:4,5; John 14:13**
+**Rom 12:12; Col 1:5; 1 Cor 15:19; Acts 14:22; Luke 14:27; 1 Thes 3:3; Phl 4:4; Rom 15:13; 1 Pet 1:3; 1 Pet 1:8; Rom 5:2**
 
 # Evening
 
-**Watchman, what of the night?**
+**I am poor and needy; yet the Lord thinketh upon me.**
  
-It is high time to awake out of sleep: for now is our salvation nearer than when we believed. The night is far spent, the day is at hand: let us therefore cast off the works of darkness, and let us put on the armour of light.
+I know the thoughts that I think toward you, saith the LORD, thoughts of peace, and not of evil. -- My thoughts are not your thoughts, neither are your ways my ways, saith the LORD. For as the heavens are higher than the earth, so are my ways higher than your ways, and my thoughts than your thoughts.
  
-Learn a parable of the fig tree; When his branch is yet tender, and putteth forth leaves, ye know that summer is nigh: so likewise ye, when ye shall see all these things, know that it is near, even at the doors. Heaven and earth shall pass away, but my words shall not pass away.
+How precious ... are thy thoughts unto me, O God! how great is the sum of them! If I should count them, they are more in number than the sand: when I awake, I am still with thee. -- LORD, how great are thy works! and thy thoughts are very deep. -- Many, O LORD my God, are thy wonderful works which thou hast done, and thy thoughts which are to usward.
  
-I wait for the LORD, my soul doth wait, and in his word do I hope. My soul waiteth for the Lord more than they that watch for the morning: I say, more than they that watch for the morning.
- 
-He which testifieth these things saith, Surely I come quickly. Amen. Even so, come, Lord Jesus.
- 
-Watch, ... for ye know neither the day nor the hour wherein the Son of man cometh.  
+Not many mighty, not many noble, are called. -- Hath not God chosen the poor of this world rich in faith, and heirs of the kingdom? -- Having nothing, and yet possessing all things. -- The unsearchable riches of Christ.  
 
-**Isa 21:11; Rom 13:11,12; Matt 24:32,33,35; Psa 130:5,6; Rev 22:20; Matt 25:13**
+**Psa 40:17; Jer 29:11; Isa 55:8,9; Psa 139:17,18; Psa 92:5; Psa 40:5; 1 Cor 1:26; Jas 2:5; 2 Cor 6:10; Eph 3:8**
 
 ---
 
-[Friday 06-September, 2024](https://t.me/s/daily_light)
+[Saturday 07-September, 2024](https://t.me/s/daily_light)
 
 > Jonathan Bagster, the son of Samuel Bagster, created the Daily Light for his own family's daily devotion in 1875
 
