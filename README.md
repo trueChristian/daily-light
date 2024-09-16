@@ -1,32 +1,32 @@
 # Morning
 
-**Sin shall not have dominion over you: for ye are not under the law, but under grace.**
+**The Lord pondereth the hearts.**
  
-What then? shall we sin, because we are not under the law, but under grace? God forbid. -- My brethren, ye ... are become dead to the law by the body of Christ; that ye should be married to another, even to him who is raised from the dead, that we should bring forth fruit unto God. -- Being not without law to God, but under the law to Christ. -- The sting of death is sin; and the strength of sin is the law. But thanks be to God, which giveth us the victory through our Lord Jesus Christ.
+The LORD knoweth the way of the righteous: but the way of the ungodly shall perish. -- The LORD will shew who are his, and who is holy. -- Thy Father which seeth in secret himself shall reward thee openly.
  
-The law of the Spirit of life in Christ Jesus hath made me free from the law of sin and death. -- Whosoever committeth sin is the servant of sin. -- If the Son ... shall make you free, ye shall be free indeed.
+Search me, O God, and know my heart: try me, and know my thoughts: and see if there be any wicked way in me, and lead me in the way everlasting. -- There is no fear in love; but perfect love casteth out fear.
  
-Stand fast therefore in the liberty wherewith Christ hath made us free, and be not entangled again with the yoke of bondage.  
+Lord, all my desire is before thee; and my groaning is not hid from thee. -- When my spirit was overwhelmed within me, then thou knewest my path. -- He that searcheth the hearts knoweth what is the mind of the Spirit, because he maketh intercession for the saints according to the will of God.
+ 
+The foundation of God standeth sure, having this seal, The Lord knoweth them that are his. And, Let every one that nameth the name of Christ depart from iniquity.  
 
-**Rom 6:14; Rom 6:15; Rom 7:4; 1 Cor 9:21; 1 Cor 15:56,57; Rom 8:2; John 8:34; John 8:36; Gal 5:1**
+**Prov 21:2; Psa 1:6; Num 16:5; Matt 6:4; Psa 139:23,24; 1 John 4:18; Psa 38:9; Psa 142:3; Rom 8:27; 2 Tim 2:19**
 
 # Evening
 
-**A double minded man is unstable in all his ways.**
+**Weeping may endure for a night, but joy cometh in the morning.**
  
-No man, having put his hand to the plough and looking back, is fit for the kingdom of God.
+No man should be moved by these afflictions: for yourselves know that we are appointed thereunto. For verily, when we were with you, we told you before that we should suffer tribulation. -- In me ye ... have peace. In the world ye shall have tribulation: but be of good cheer; I have overcome the world.
  
-He that cometh to God must believe that he is, and that he is a rewarder of them that diligently seek him. -- Let him ask in faith, nothing wavering. For he that wavereth is like a wave of the sea driven with the wind and tossed. For let not that man think that he shall receive anything of the Lord. -- What things soever ye desire, when ye pray, believe that ye receive them, and ye shall have them.
+I shall be satisfied, when I awake, with thy likeness. -- The night is far spent, the day is at hand. -- He shall be as the light of the morning, when the sun riseth, even a morning without clouds; as the tender grass springing out of the earth by clear shining after rain.
  
-Be no more children, tossed to and fro, and carried about with every wind of doctrine, by the sleight of men, and cunning craftiness, whereby they lie in wait to deceive: but speaking the truth in love, ... grow up into him in all things which is the head, even Christ.
- 
-Abide in me. -- Be ye steadfast, unmoveable, always abounding in the work of the Lord, forasmuch as ye know that your labour is not in vain in the Lord.  
+He will swallow up death in victory; and the Lord GOD will wipe away tears from off all faces. -- There shall be no more death, neither sorrow, nor crying, neither shall there be any more pain: for the former things are passed away. -- We which are alive and remain shall be caught up together with them in the clouds, to meet the Lord in the air. Wherefore comfort one another with these words.  
 
-**Jas 1:8; Luke 9:62; Heb 11:6; Jas 1:6,7; Mark 11:24; Eph 4:14,15; John 15:4; 1 Cor 15:58**
+**Psa 30:5; 1 Thes 3:3,4; John 16:33; Psa 17:15; Rom 13:12; 2 Sam 23:4; Isa 25:8; Rev 21:4; 1 Thes 4:17,18**
 
 ---
 
-[Sunday 15-September, 2024](https://t.me/s/daily_light)
+[Monday 16-September, 2024](https://t.me/s/daily_light)
 
 > Jonathan Bagster, the son of Samuel Bagster, created the Daily Light for his own family's daily devotion in 1875
 
