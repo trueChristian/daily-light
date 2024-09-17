@@ -1,13 +1,17 @@
 **Evening**
 
-**Weeping may endure for a night, but joy cometh in the morning.**
+**O taste and see that the Lord is good: blessed is the man that trusteth in him.**
  
-No man should be moved by these afflictions: for yourselves know that we are appointed thereunto. For verily, when we were with you, we told you before that we should suffer tribulation. -- In me ye ... have peace. In the world ye shall have tribulation: but be of good cheer; I have overcome the world.
+When the ruler of the feast had tasted the water that was made wine, and knew not whence it was: he saith, ... Every man at the beginning doth set forth good wine; and when men have well drunk, then that which is worse: but thou hast kept the good wine until now.
  
-I shall be satisfied, when I awake, with thy likeness. -- The night is far spent, the day is at hand. -- He shall be as the light of the morning, when the sun riseth, even a morning without clouds; as the tender grass springing out of the earth by clear shining after rain.
+The ear trieth words, as the mouth tasteth meat. --I believed, and therefore have I spoken. -- I know whom I have believed. -- I sat down under his shadow with great delight, and his fruit was sweet to my taste.
  
-He will swallow up death in victory; and the Lord GOD will wipe away tears from off all faces. -- There shall be no more death, neither sorrow, nor crying, neither shall there be any more pain: for the former things are passed away. -- We which are alive and remain shall be caught up together with them in the clouds, to meet the Lord in the air. Wherefore comfort one another with these words.  
+The goodness of God. -- He that spared not his own Son, but delivered him up for us all, how shall he not with him also freely give us all things?
+ 
+As newborn babes, desire the sincere milk of the word, that ye may grow thereby: if so be ye have tasted that the Lord is gracious.
+ 
+Let all those that put their trust in thee rejoice: let them ever shout for joy.  
 
-**Psa 30:5; 1 Thes 3:3,4; John 16:33; Psa 17:15; Rom 13:12; 2 Sam 23:4; Isa 25:8; Rev 21:4; 1 Thes 4:17,18**
+**Psa 34:8; John 2:9,10; Job 34:3; 2 Cor 4:13; 2 Tim 1:12; Song 2:3; Rom 2:4; Rom 8:32; 1 Pet 2:2,3; Psa 5:11**
 
-[Monday 16-September, 2024](https://t.me/daily_light)
+[Tuesday 17-September, 2024](https://t.me/daily_light)

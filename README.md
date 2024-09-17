@@ -1,32 +1,32 @@
 # Morning
 
-**The Lord pondereth the hearts.**
+**A bruised reed shall he not break.**
  
-The LORD knoweth the way of the righteous: but the way of the ungodly shall perish. -- The LORD will shew who are his, and who is holy. -- Thy Father which seeth in secret himself shall reward thee openly.
+The sacrifices of God are a broken spirit: a broken and a contrite heart, O God, thou wilt not despise. -- He healeth the broken in heart, and bindeth up their wounds. -- Thus saith the high and lofty One that inhabiteth eternity, whose name is Holy; I dwell in the high and holy place, with him also that is of a contrite and humble spirit, to revive the spirit of the humble, and to revive the heart of the contrite ones. For I will not contend for ever, neither will I be always wroth: for the spirit should fail before me, and the souls which I have made.
  
-Search me, O God, and know my heart: try me, and know my thoughts: and see if there be any wicked way in me, and lead me in the way everlasting. -- There is no fear in love; but perfect love casteth out fear.
- 
-Lord, all my desire is before thee; and my groaning is not hid from thee. -- When my spirit was overwhelmed within me, then thou knewest my path. -- He that searcheth the hearts knoweth what is the mind of the Spirit, because he maketh intercession for the saints according to the will of God.
- 
-The foundation of God standeth sure, having this seal, The Lord knoweth them that are his. And, Let every one that nameth the name of Christ depart from iniquity.  
+I will seek that which was lost, and bring again that which was driven away, and will bind up that which was broken, and will strengthen that which was sick. -- Wherefore lift up the hands which hang down, and the feeble knees; and make straight paths for your feet, lest that which is lame be turned out of the way; but let it rather be healed. -- Behold, your God ... will come and save you.  
 
-**Prov 21:2; Psa 1:6; Num 16:5; Matt 6:4; Psa 139:23,24; 1 John 4:18; Psa 38:9; Psa 142:3; Rom 8:27; 2 Tim 2:19**
+**Matt 12:20; Psa 51:17; Psa 147:3; Isa 57:15,16; Ezek 34:16; Heb 12:12,13; Isa 35:4**
 
 # Evening
 
-**Weeping may endure for a night, but joy cometh in the morning.**
+**O taste and see that the Lord is good: blessed is the man that trusteth in him.**
  
-No man should be moved by these afflictions: for yourselves know that we are appointed thereunto. For verily, when we were with you, we told you before that we should suffer tribulation. -- In me ye ... have peace. In the world ye shall have tribulation: but be of good cheer; I have overcome the world.
+When the ruler of the feast had tasted the water that was made wine, and knew not whence it was: he saith, ... Every man at the beginning doth set forth good wine; and when men have well drunk, then that which is worse: but thou hast kept the good wine until now.
  
-I shall be satisfied, when I awake, with thy likeness. -- The night is far spent, the day is at hand. -- He shall be as the light of the morning, when the sun riseth, even a morning without clouds; as the tender grass springing out of the earth by clear shining after rain.
+The ear trieth words, as the mouth tasteth meat. --I believed, and therefore have I spoken. -- I know whom I have believed. -- I sat down under his shadow with great delight, and his fruit was sweet to my taste.
  
-He will swallow up death in victory; and the Lord GOD will wipe away tears from off all faces. -- There shall be no more death, neither sorrow, nor crying, neither shall there be any more pain: for the former things are passed away. -- We which are alive and remain shall be caught up together with them in the clouds, to meet the Lord in the air. Wherefore comfort one another with these words.  
+The goodness of God. -- He that spared not his own Son, but delivered him up for us all, how shall he not with him also freely give us all things?
+ 
+As newborn babes, desire the sincere milk of the word, that ye may grow thereby: if so be ye have tasted that the Lord is gracious.
+ 
+Let all those that put their trust in thee rejoice: let them ever shout for joy.  
 
-**Psa 30:5; 1 Thes 3:3,4; John 16:33; Psa 17:15; Rom 13:12; 2 Sam 23:4; Isa 25:8; Rev 21:4; 1 Thes 4:17,18**
+**Psa 34:8; John 2:9,10; Job 34:3; 2 Cor 4:13; 2 Tim 1:12; Song 2:3; Rom 2:4; Rom 8:32; 1 Pet 2:2,3; Psa 5:11**
 
 ---
 
-[Monday 16-September, 2024](https://t.me/s/daily_light)
+[Tuesday 17-September, 2024](https://t.me/s/daily_light)
 
 > Jonathan Bagster, the son of Samuel Bagster, created the Daily Light for his own family's daily devotion in 1875
 
