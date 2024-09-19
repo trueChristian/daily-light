@@ -1,9 +1,13 @@
 **Morning**
 
-**Open thou mine eyes, that I may behold wondrous things out of thy law.**
+**The God of all grace.**
  
-Then opened he their understanding, that they might understand the scriptures. -- It is given unto you to know the mysteries of the kingdom of heaven, but to them it is not given. -- I thank thee, O Father, Lord of heaven and earth, because thou hast hid these things from the wise and prudent, and hast revealed them unto babes. Even so, Father: for so it seemed good in thy sight. -- We have received, not the spirit of the world, but the spirit which is of God; that we might know the things that are freely given to us of God. -- How precious also are thy thoughts unto me, O God! how great is the sum of them! If I should count them, they are more in number than the sand. -- O the depth of the riches both of the wisdom and knowledge of God! how unsearchable are his judgments, and his ways past finding out! For who hath known the mind of the Lord? or who hath been his counsellor? For of him, and through him, and to him are all things: to whom be glory for ever. Amen.  
+I will proclaim the name of the LORD before thee; and will be gracious to whom I will be gracious. -- He is gracious unto him, and saith, Deliver him from going down to the pit: I have found a ransom. -- Being justified freely by his grace, through the redemption that is in Christ Jesus: whom God hath set forth to be a propitiation through faith in his blood, to declare his righteousness for the remission of sins that are past, through the forbearance of God. -- Grace and truth came by Jesus Christ.
+ 
+By grace are ye saved through faith; and that not of yourselves: it is the gift of God. -- Grace, mercy, and peace, from God our Father and Jesus Christ our Lord. -- Unto every one of us is given grace according to the measure of the gift of Christ. -- As every man hath received the gift, even so minister the same one to another, as good stewards of the manifold grace of God. -- He giveth more grace.
+ 
+Grow in grace, and in the knowledge of our Lord and Saviour Jesus Christ. To him be glory both now and for ever.  
 
-**Psa 119:18; Luke 24:45; Matt 13:11; Matt 11:25,26; 1 Cor 2:12; Psa 139:17,18; Rom 11:33,34,36**
+**1 Pet 5:10; Exo 33:19; Job 33:24; Rom 3:24,25; John 1:17; Eph 2:8; 1 Tim 1:2; Eph 4:7; 1 Pet 4:10; Jas 4:6; 2 Pet 3:18**
 
-[Wednesday 18-September, 2024](https://t.me/daily_light)
+[Thursday 19-September, 2024](https://t.me/daily_light)
