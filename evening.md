@@ -1,13 +1,15 @@
 **Evening**
 
-**Shew me thy ways, O Lord; teach me thy paths.**
+**Grow up into him in all things, which is the head, even Christ.**
  
-Moses said unto the LORD, I pray thee, if I have found grace in thy sight, shew me now thy way, that I may know thee. And he said, My presence shall go with thee, and I will give thee rest. -- He made known his ways unto Moses, his acts unto the children of Israel.
+First the blade, then the ear, after that the full corn in the ear. -- Till we all come to the unity of the faith, and of the knowledge of the Son of God, unto a perfect man, unto the measure of the stature of the fulness of Christ.
  
-The meek will he guide in judgment; and the meek will he teach his way. What man is he that feareth the LORD? him shall he teach in the way that he shall choose. -- Trust in the LORD with all thine heart; and lean not unto thine own understanding. In all thy ways acknowledge him, and he shall direct thy paths.
+They measuring themselves by themselves, and comparing themselves among themselves, are not wise. But he that glorieth, let him glory in the Lord. For not he that commendeth himself is approved, but whom the Lord commendeth.
  
-Thou wilt shew me the path of life: in thy presence is fulness of joy; at thy right hand there are pleasures for evermore. -- I will instruct thee and teach thee in the way which thou shalt go: I will guide thee with mine eye. -- The path of the just is as the shining light, that shineth more and more unto the perfect day.  
+The body is of Christ. Let no man beguile you of your reward in a voluntary humility and worshipping of angels, intruding into those things which he hath not seen, vainly puffed up by his fleshly mind, and not holding the Head from which all the body by joints and bands, having nourishment ministered and knit together, increaseth with the increase of God.
+ 
+Grow in grace, and in the knowledge of our Lord and Saviour Jesus Christ.  
 
-**Psa 25:4; Exo 33:12-14; Psa 103:7; Psa 25:9,12; Prov 3:5,6; Psa 16:11; Psa 32:8; Prov 4:18**
+**Eph 4:15; Matt 4:28; Eph 4:13; 2 Cor 10:12,17,18; Col 2:17-19; 2 Pet 3:18**
 
-[Monday 30-September, 2024](https://t.me/daily_light)
+[Tuesday 01-October, 2024](https://t.me/daily_light)
