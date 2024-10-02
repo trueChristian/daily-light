@@ -1,15 +1,11 @@
 **Morning**
 
-**The fruit of the Spirit is temperance.**
+**The goat shall bear upon him all their iniquities unto a land not inhabited: and he shall let go the goat in the wilderness.**
  
-Every man that striveth for the mastery is temperate in all things. Now they do it to obtain a corruptible crown; but we an incorruptible. I therefore so run, not as uncertainly; so fight I, not as one that beateth the air: but I keep under my body, and bring it into subjection: lest that by any means, when I have preached to others, I myself should be a castaway.
+As far as the east is from the west, so far hath he removed our transgressions from us. -- In those days, and in that time, saith the LORD, the iniquity of Israel shall be sought for, and there shall be none; and the sins of Judah, and they shall not be found: for I will pardon them whom I reserve. -- Thou wilt cast all their sins into the depths of the sea. -- Who is a God like unto thee, that pardoneth iniquity?
  
-Be not drunk with wine, wherein is excess: but be filled with the Spirit.
- 
-If any man will come after me let him deny himself, and take up his cross, and follow me.
- 
-Let us not sleep, as do others: but let us watch and be sober. For they that sleep sleep in the night; and they that be drunken are drunken in the night. But let us, who are of the day, be sober. -- Denying ungodliness and worldly lusts, we should live soberly, righteously, and godly, in this present world: looking for that blessed hope, and the glorious appearing of the great God and our Saviour Jesus Christ.  
+All we like sheep have gone astray; we have turned every one to his own way; and the LORD hath laid on him the iniquity of us all. -- He shall bear their iniquities. Therefore will I divide him a portion with the great, and he shall divide the spoil with the strong, because he hath poured out his soul unto death; and he was numbered with the transgressors; and he bare the sin of many, and made intercession for the transgressors. -- The Lamb of God, which taketh away the sin of the world.  
 
-**Gal 5:22; 1 Cor 9:25-27; Eph 5:18; Matt 16:24; 1 Thes 5:6-8; Tit 2:12,13**
+**Lev 16:22; Psa 103:12; Jer 50:20; Mic 7:19; Mic 7:18; Isa 53:6; Isa 53:11,12; John 1:29**
 
-[Tuesday 01-October, 2024](https://t.me/daily_light)
+[Wednesday 02-October, 2024](https://t.me/daily_light)
