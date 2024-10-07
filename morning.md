@@ -1,13 +1,19 @@
 **Morning**
 
-**The Lord God omnipotent reigneth.**
+**The meek will he teach his way.**
  
-I know that thou canst do every thing. -- The things which are impossible with men are possible with God. -- He doeth according to his will in the army of heaven, and among the inhabitants of the earth: and none can stay his hand, or say unto him, What doest thou? -- There is none that can deliver out of my hand: I will work, and who shall let it? -- Abba, Father, all things are possible unto thee.
+Blessed are the meek.
  
-Believe ye that I am able to do this? They said unto him, Yea, Lord. Then touched he their eyes, saying, According to your faith be it unto you. -- Lord, if thou wilt, thou canst make me clean. And Jesus put forth his hand and touched him, saying, I will; be thou clean. -- The mighty God. -- All power is given unto me in heaven and in earth.
+I returned, and saw under the sun, that the race is not to the swift, nor the battle to the strong, neither yet bread to the wise, nor yet riches to men of understanding, nor yet favour to men of skill. -- A man's heart deviseth his way: but the LORD directeth his steps.
  
-Some trust in chariots, and some in horses: but we will remember the name of the LORD our God. -- Be strong and courageous, be not afraid nor dismayed, ... there be more with us than with him.  
+Unto thee lift I up mine eyes, O Thou that dwellest in the heavens. Behold, as the eyes of servants look unto the hand of their masters, and as the eyes of a maiden unto the hand of her mistress; so our eyes wait upon the LORD our God. -- Cause me to know the way wherein I should walk; for I lift up my soul unto thee.
+ 
+O our God, wilt thou not judge them? for we have no might against this great company that cometh against us; neither know we what to do: but our eyes are upon thee.
+ 
+If any of you lack wisdom, let him ask of God, that giveth to all men liberally, and upbraideth not; and it shall be given him.
+ 
+When he, the Spirit of truth, is come, he will guide you into all truth.  
 
-**Rev 19:6; Job 42:2; Luke 18:27; Dan 4:35; Isa 43:13; Mark 14:36; Matt 9:28,29; Matt 8:23; Isa 9:6; Matt 28:18; Psa 20:7; 2 Chr 32:7**
+**Psa 25:9; Matt 5:5; Eccl 9:11; Prov 16:9; Psa 123:1,2; Psa 143:8; 2 Chr 20:12; Jas 1:5; John 16:13**
 
-[Sunday 06-October, 2024](https://t.me/daily_light)
+[Monday 07-October, 2024](https://t.me/daily_light)
