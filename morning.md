@@ -1,13 +1,15 @@
 **Morning**
 
-**The whole family in heaven and earth.**
+**Be not far from me; for trouble is near.**
  
-One God and Father of all, who is above all, and through all, and in you all. -- Ye are all the children of God by faith in Christ Jesus. -- That in the dispensation of the fulness of times, he might gather together in one all things in Christ, both which are in heaven, and which are on earth; even in him.
+How long wilt thou forget me, O LORD? for ever? how long wilt thou hide thy face from me? How long shall I take counsel in my soul, having sorrow in my heart daily? -- Hide not thy face far from me; put not thy servant away in anger: thou hast been my help; leave me not, neither forsake me, O God of my salvation.
  
-He is not ashamed to call them brethren. -- Behold my mother and my brethren! Whosoever shall do the will of my Father which is in heaven, the same is my brother, and sister, and mother. -- Go to my brethren, and say unto them, I ascend unto my Father, and your Father.
+He shall call upon me, and I will answer him: I will be with him in trouble; I will deliver him, and honour him. -- The LORD is nigh unto all them that call upon him, to all that call upon him in truth. He will fulfil the desire of them that fear him: he also will hear their cry, and will save them.
  
-I saw under the altar the souls of them that were slain for the word of God, and for the testimony which they held: ... and white robes were given unto every one of them; and it was said unto them, that they should rest for a little season, until their fellow servants also and their brethren, that should be killed as they were, should be fulfilled. -- That they without us should not be made perfect.  
+I will not leave you comfortless: I will come to you. -- Lo, I am with you alway, even unto the end of the world.
+ 
+God is our refuge and strength, a very present help in trouble. -- Truly my soul waiteth upon God: from him cometh my salvation. -- My soul, wait thou only upon God; for my expectation is from him.  
 
-**Eph 3:15; Eph 4:6; Gal 3:26; Eph 1:10; Heb 2:11; Matt 12:49,50; John 20:17; Rev 6:9-11; Heb 11:40**
+**Psa 22:11; Psa 13:1,2; Psa 27:9; Psa 91:15; Psa 145:18,19; John 14:18; Matt 28:20; Psa 46:1; Psa 62:1; Psa 62:5**
 
-[Thursday 10-October, 2024](https://t.me/daily_light)
+[Friday 11-October, 2024](https://t.me/daily_light)
