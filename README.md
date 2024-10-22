@@ -1,32 +1,34 @@
 # Morning
 
-**Of his fulness have all we received, and grace for grace.**
+**O God, my heart is fixed.**
  
-This is my beloved Son, in whom I am well pleased. -- Behold, what manner of love the Father hath bestowed upon us, that we should be called the sons of God.
+The Lord is my light and my salvation; whom shall I fear? the LORD is the strength of my life; of whom shall I be afraid?
  
-His Son, whom he hath appointed heir of all things. -- If children, then heirs; heirs of God, and joint heirs with Christ; if so be that we suffer with him, that we may be also glorified together.
+Thou wilt keep him in perfect peace, whose mind is stayed on thee: because he trusteth in thee. -- He shall not be afraid of evil tidings: his heart is fixed, trusting in the LORD. His heart is established, he shall not be afraid, until he see his desire upon his enemies.
  
-I and my Father are one. The Father is in me, and I in him. -- My Father, and your Father; and ... my God, and your God. -- I in them, and thou in me, that they may be made perfect in one.
+What time I am afraid, I will trust in thee. -- In the time of trouble he shall hide me in his pavilion: in the secret of his tabernacle shall he hide me; he shall set me up upon a rock. And now shall mine head be lifted up above mine enemies round about me: therefore will I offer in his tabernacle sacrifices of joy: I will sing, yea, I will sing praises unto the LORD.
  
-The Church, which is his body, the fulness of him that filleth all in all.
- 
-Having ... these promises, dearly beloved, let us cleanse ourselves from all filthiness of the flesh and spirit, perfecting holiness in the fear of God.  
+The God of all grace, who hath called us unto his eternal glory by Christ Jesus, after that ye have suffered awhile, make you perfect, stablish, strengthen, settle you. To him be glory and dominion for ever and ever.  
 
-**John 1:16; Matt 17:5; 1 John 3:1; Heb 1:2; Rom 8:17; John 10:30,38; John 20:17; John 17:23; Eph 1:22,23; 2 Cor 7:1**
+**Psa 108:1; Psa 27:1; Isa 26:3; Psa 112:7,8; Psa 56:3; Psa 27:5,6; 1 Pet 5:10,11**
 
 # Evening
 
-**The servant is not greater than his lord; neither he that is sent greater than he that sent him. If ye know these things, happy are ye if ye do them.**
+**The Lord hath prepared his throne in the heavens; and his kingdom ruleth over all.**
  
-There was ... a strife among them, which of them should be accounted the greatest. And he said unto them, The kings of the Gentiles exercise lordship over them; and they that exercise authority upon them are called benefactors. But ye shall not be so: but he that is greatest among you, let him be as the younger; and he that is chief, as he that doth serve. For whether is greater, he that sitteth at meat, or he that serveth? is not he that sitteth at meat? but I am among you as he that serveth. -- Even the Son man came not to be ministered unto, but to minister, and to give his life a ransom for many.
+The lot is cast into the lap; but the whole disposing thereof is of the LORD. -- Shall there be evil in a city, and the LORD hath not done it?
  
-Jesus riseth from supper, and laid aside his garments, and took a towel, and girded himself. After that he poureth water into a basin, and began to wash the disciples' feet, and to wipe them with the towel wherewith he was girded.  
+I am the LORD, and there is none else; there is no God beside me: I girded thee, though thou hast not known me: that they may know from the rising of the sun, and from the west, that there is none beside me. I am the LORD, and there is none else. I form the light, and create darkness: I make peace, and create evil: I the LORD do all these things.
+ 
+He doeth according to his will in the army of heaven, and among the inhabitants of the earth: and none can stay his hand, or say unto him, What doest thou? -- If God be for us, who can be against us?
+ 
+He must reign, till he hath put all enemies under his feet. -- Fear not, little flock; for it is your Father’s good pleasure to give you the kingdom.  
 
-**John 13:16,17; Luke 22:24-27; Matt 20:28; John 13:3-5**
+**Psa 103:19; Prov 16:33; Amos 3:6; Isa 45:5-7; Dan 4:35; Rom 8:31; 1 Cor 15:25; Luke 12:32**
 
 ---
 
-[Monday 21-October, 2024](https://t.me/s/daily_light)
+[Tuesday 22-October, 2024](https://t.me/s/daily_light)
 
 > Jonathan Bagster, the son of Samuel Bagster, created the Daily Light for his own family's daily devotion in 1875
 
