@@ -1,30 +1,28 @@
 # Morning
 
-**The ways of the Lord are right, and the just shall walk in them: but the transgressors shall fall therein.**
+**Now for a season, if need be, ye are in heaviness through manifold temptations.**
  
-Unto you ... which believe he is precious: but unto them which be disobedient, ... a stone of stumbling, and a rock of offence. -- The way of the LORD is strength to the upright: but destruction shall be to the workers of iniquity.
+Beloved, think it not strange concerning the fiery trial which is to try you, as though some strange thing happened unto you: but rejoice, inasmuch as ye are partakers of Christ's sufferings; that, when his glory shall be revealed, ye may be glad also with exceeding joy. -- The exhortation ... speaketh unto you as unto children, My son, despise not thou the chastening of the Lord, nor faint when thou art rebuked of him. -- Now no chastening for the present seemeth to be joyous but grievous: nevertheless, afterward it yieldeth the peaceable fruit of righteousness unto them which are exercised thereby.
  
-He that hath ears to hear, let him hear. -- Whoso is wise, and will observe these things, even they shall understand the lovingkindness of the LORD. -- The light of the body is the eye: if therefore thine eye be single, thy whole body shall be full of light. -- If any man will do his will, he shall know of the doctrine, whether it be of God. -- Whosoever hath, to him shall be given, and he shall have more abundance.
- 
-He that is of God heareth God's words: ye therefore hear them not, because ye are not of God. -- Ye will not come unto me, that ye might have life. -- My sheep hear my voice, and I know them, and they follow me.  
+We have not a high priest which cannot be touched with the feeling of our infirmities; but was in all points tempted like as we are, yet without sin. -- For in that he himself hath suffered being tempted, he is able to succour them that are tempted. -- God is faithful, who will not suffer you to be tempted above that ye are able.  
 
-**Hos 14:9; 1 Pet 2:7,8; Prov 10:29; Mark 11:15; Psa 107:43; Matt 6:22; John 7:17; Matt 13:12; John 8:47; John 5:40; John 10:27**
+**1 Pet 1:6; 1 Pet 4:12,13; Heb 12:5; Heb 12:11; Heb 4:15; Heb 2:18; 1 Cor 10:13**
 
 # Evening
 
-**The everlasting Father.**
+**The Prince of Peace.**
  
-Hear, O Israel: The LORD our God is one LORD.
+He shall judge thy people with righteousness, and thy poor with judgment. The mountains shall bring peace to the people, and the little hills, by righteousness. He shall come down like rain upon the mown grass; as showers that water the earth. In his days shall the righteous flourish; and abundance of peace so long as the moon endureth. -- Glory to God ... on earth peace, good will toward men.
  
-I and my Father are one, the Father is in me, and I in him. -- Had ye had known me, ye should have known my Father also. -- Philip saith unto him, Lord, shew us the Father, and it sufficeth us. Jesus saith unto him, Have I been so long time with you, and yet hast thou not known me, Philip? he that hath seen me hath seen the Father. -- Behold I and the children which God hath given me. -- He shall see of the travail of his soul, and shall be satisfied. -- I am Alpha and Omega, the beginning and the ending, saith the Lord, which is, and which was, and which is to come, the Almighty. -- Before Abraham was, I am. -- God said unto Moses, I AM THAT I AM: and he said, Thus shalt thou say unto the children of Israel, I AM hath sent me unto you.
+Through the tender mercy of our God; ... the dayspring from on high hath visited us. To give light to them that sit in darkness and in the shadow of death, to guide our feet into the way of peace; -- peace by Jesus Christ: (he is Lord of all).
  
-Unto the Son he saith, Thy throne, O God, is for ever and ever. -- He is before all things, and by him all things consist. -- In him dwelleth all the fulness of the Godhead bodily.  
+These things I have spoken unto you, that in me ye might have peace. In the world ye shall have tribulation: but be of good cheer; I have overcome the world. -- Peace I leave with you, my peace I give unto you: not as the world giveth give I unto you. -- The peace of God, which passeth all understanding, shall keep your hearts and minds through Christ Jesus.  
 
-**Isa 9:6; Deut 6:4; John 10:30,38; John 8:19; John 14:8,9; Heb 2:13; Isa 53:11; Rev 1:8; John 8:58; Exo 3:14; Heb 1:8; Col 1:17; Col 2:9**
+**Isa 9:6; Psa 72:2-7; Luke 2:14; Luke 1:78,79; Acts 10:36; John 16:33; John 14:27; Phl 4:7**
 
 ---
 
-[Sunday 03-November, 2024](https://t.me/s/daily_light)
+[Monday 04-November, 2024](https://t.me/s/daily_light)
 
 > Jonathan Bagster, the son of Samuel Bagster, created the Daily Light for his own family's daily devotion in 1875
 
