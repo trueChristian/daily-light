@@ -1,13 +1,9 @@
 **Evening**
 
-**Lead me in thy truth, and teach me**
+**Behold, we count them happy which endure.**
  
-When ... the Spirit of truth is come, he will guide you into all truth. -- Ye have an unction from the Holy One, and ye know all things.
- 
-To the law and to the testimony: if they speak not according to this word, it is because there is no light in them. -- All scripture is given by inspiration of God, and is profitable for doctrine, for reproof, for correction, for instruction in righteousness; That the man of God may be perfect, throughly furnished unto all good works. -- The holy Scriptures ... are able to make thee wise unto salvation through faith which is in Christ Jesus.
- 
-I will instruct thee and teach thee in the way which thou shalt go: I will guide thee with mine eye. -- The light of the body is the eye: if therefore thine eye be single, thy whole body shall be full of light. -- If any man will do his will, he shall know of the doctrine, whether it be of God. -- The wayfaring men, though fools, shall not err therein.  
+We glory in tribulations: ... knowing that tribulation worketh patience; and patience, experience; and experience, hope: And hope maketh not ashamed; because the love of God is shed abroad in our hearts by the Holy Ghost which is given unto us. -- No chastening for the present seemeth to be joyous, but grievous: nevertheless afterward it yieldeth the peaceable fruit of righteousness unto them which are exercised thereby. -- My brethren, count it all joy when ye fall into divers temptations; knowing this, that the trying of your faith worketh patience. But let patience have her perfect work, that ye may be perfect and entire, wanting nothing. Blessed is the man that endureth temptation: for when he is tried, he shall receive the crown of life, which the Lord hath promised to them that love him. -- Most gladly therefore will I rather glory in my infirmities, that the power of Christ may rest upon me. For when I am weak, then am I strong.  
 
-**Psa 25:5; John 16:13; 1 John 2:20; Isa 8:20; 2 Tim 3:16,17; 2 Tim 3:15; Psa 32:8; Matt 6:22; John 7:17; Isa 35:8**
+**Jas 5:11; Rom 5:3-5; Heb 12:11; Jas 1:2-4,12; 2 Cor 12:9,10**
 
-[Wednesday 06-November, 2024](https://t.me/daily_light)
+[Thursday 07-November, 2024](https://t.me/daily_light)
