@@ -1,37 +1,40 @@
 {
-  "date_key": "november-20",
-  "date_name": "Wednesday 20-November, 2024",
+  "date_key": "november-21",
+  "date_name": "Thursday 21-November, 2024",
   "evening": {
     "body": [
-      "Hear, O Israel: The LORD our God is one LORD. -- A mediator is not a mediator of one, but God is one.",
-      "We have sinned with our fathers, we have committed iniquity, we have done wickedly. Our fathers understood not thy wonders in Egypt; they remembered not the multitude of thy mercies ... Therefore he said that he would destroy them, had not Moses his chosen stood before him in the breach, to turn away his wrath, lest he should destroy them.",
-      "Wherefore, holy brethren, partakers of the heavenly calling, consider the Apostle and High Priest of our profession, Christ Jesus; who was faithful to him that appointed him, as also Moses was faithful in all his house.",
-      "He is the mediator of a better covenant, which was established upon better promises. I will be merciful to their unrighteousness, and their sins and their iniquities will I remember no more."
+      "Lo a voice from heaven, saying, This is my beloved Son, in whom I am well pleased. -- Behold my servant, whom I uphold; mine elect, in whom my soul delighteth. -- The only begotten Son, which is in the bosom of the Father.",
+      "In this was manifested the love of God toward us, because that God sent his only begotten Son into the world, that we might live through him. Herein is love, not that we loved God, but that he loved us, and sent his son to be the propitiation for our sins. And we have known and believed the love that God hath to us. God is love.",
+      "The glory which thou gavest me I have given them; that they may be one, even as we are one: I in them, and thou in me, that they may be made perfect in one; and that the world may know that thou hast sent me, and hast loved them, as thou hast loved me. -- Behold, what manner of love the Father hath bestowed upon us, that we should be called the sons of God."
     ],
-    "header": "One God, and one mediator between God and men, the man Christ Jesus.",
+    "header": "His dear Son.",
     "name": "Evening",
     "references": [
-      "Deut 6:4",
-      "Gal 3:20",
-      "Psa 106:6,7,23",
-      "Heb 3:1-3",
-      "Heb 8:6,12"
+      "Matt 3:17",
+      "Isa 42:1",
+      "John 1:18",
+      "1 John 4:9,10,16",
+      "John 17:22-24",
+      "1 John 3:1"
     ]
   },
   "joomla": "https://git.vdm.dev/christian/mod_dailylight",
   "morning": {
     "body": [
-      "When thou passest through the waters, I will be with thee; and through the rivers, they shall not overflow thee: when thou walkest through the fire, thou shalt not be burned; neither shall the flame kindle upon thee. For I am the LORD thy God, the Holy One of Israel, thy Saviour. -- I will bring the blind by a way that they knew not; I will lead them in paths that they have not known: I will make darkness light before them, and crooked things straight. These things will I do unto them, and not forsake them.",
-      "Yea, though I walk through the valley of the shadow of death, I will fear no evil: for thou art with me; thy rod and thy staff they comfort me. -- What time I am afraid, I will trust in thee. In God I will praise his word, in God I have put my trust; I will not fear what flesh can do unto me. -- The LORD is my light and my salvation; whom shall I fear? the LORD is the strength of my life; of whom shall I be afraid?"
+      "It shall come to pass, when he crieth unto me, that I will hear; for I am gracious. -- I will not cast them away, neither will I abhor them, to destroy them utterly, and to break my covenant with them: for I am the LORD their God. -- I will remember my covenant with thee in the days of thy youth, and I will establish unto thee an everlasting covenant.",
+      "Come now, and let us reason together, saith the LORD: though your sins be as scarlet, they shall be as white as snow; though they be red like crimson, they shall be as wool. -- Let the wicked forsake his way, and the unrighteous man his thoughts: and let him return unto the LORD, and he will have mercy upon him; and to our God, for he will abundantly pardon. -- Lord, remember me when thou comest into thy kingdom. And Jesus said unto him, Verily I say unto thee, To day shalt thou be with me in paradise.",
+      "A bruised reed shall he not break, and the smoking flax shall he not quench."
     ],
-    "header": "When I sit in darkness, the Lord shall be a light unto me.",
+    "header": "Him that cometh to me I will in no wise cast out.",
     "name": "Morning",
     "references": [
-      "Isa 43:2,3",
-      "Isa 42:16",
-      "Psa 23:4",
-      "Psa 56:3,4",
-      "Psa 27:1"
+      "Exo 22:27",
+      "Lev 26:44",
+      "Ezek 16:60",
+      "Isa 1:18",
+      "Isa 55:7",
+      "Luke 23:42,43",
+      "Isa 42:3"
     ]
   },
   "source": "https://github.com/trueChristian/daily-light",
