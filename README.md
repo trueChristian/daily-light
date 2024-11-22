@@ -1,30 +1,34 @@
 # Morning
 
-**Him that cometh to me I will in no wise cast out.**
+**Praying in the Holy Ghost.**
  
-It shall come to pass, when he crieth unto me, that I will hear; for I am gracious. -- I will not cast them away, neither will I abhor them, to destroy them utterly, and to break my covenant with them: for I am the LORD their God. -- I will remember my covenant with thee in the days of thy youth, and I will establish unto thee an everlasting covenant.
+God is a Spirit: and they that worship him must worship him in spirit and in truth. -- We ... have access by one Spirit unto the Father.
  
-Come now, and let us reason together, saith the LORD: though your sins be as scarlet, they shall be as white as snow; though they be red like crimson, they shall be as wool. -- Let the wicked forsake his way, and the unrighteous man his thoughts: and let him return unto the LORD, and he will have mercy upon him; and to our God, for he will abundantly pardon. -- Lord, remember me when thou comest into thy kingdom. And Jesus said unto him, Verily I say unto thee, To day shalt thou be with me in paradise.
+O my Father, if it be possible, let this cup pass from me: nevertheless not as I will, but as thou wilt.
  
-A bruised reed shall he not break, and the smoking flax shall he not quench.  
+The Spirit ... helpeth our infirmities: for we know not what we should pray for as we ought: but the Spirit itself maketh intercession for us with groanings which cannot be uttered. And he that searcheth the hearts knoweth what is the mind of the Spirit, because he maketh intercession for the saints according to the will of God. -- This is the confidence that we have in him, that, if we ask any thing according to his will, he heareth us. -- When he, the Spirit of truth, is come, he will guide you into all truth.
+ 
+Praying always with all prayer and supplication in the Spirit, and watching thereunto with all perseverance and supplication.  
 
-**John 6:37; Exo 22:27; Lev 26:44; Ezek 16:60; Isa 1:18; Isa 55:7; Luke 23:42,43; Isa 42:3**
+**Jude 20; John 4:24; Eph 2:18; Matt 26:39; Rom 8:26,27; 1 John 5:14; John 16:13; Eph 6:18**
 
 # Evening
 
-**His dear Son.**
+**There is a hope of a tree, if it be cut down, that it will sprout again, and that the tender branch thereof will not cease.**
  
-Lo a voice from heaven, saying, This is my beloved Son, in whom I am well pleased. -- Behold my servant, whom I uphold; mine elect, in whom my soul delighteth. -- The only begotten Son, which is in the bosom of the Father.
+A bruised reed shall he not break. -- He restoreth my soul.
  
-In this was manifested the love of God toward us, because that God sent his only begotten Son into the world, that we might live through him. Herein is love, not that we loved God, but that he loved us, and sent his son to be the propitiation for our sins. And we have known and believed the love that God hath to us. God is love.
+Godly sorrow worketh repentance to salvation not to be repented of: but the sorrow of the world worketh death. -- No chastening for the present seemeth to be joyous, but grievous: nevertheless, afterward it yieldeth the peaceful fruit of righteousness unto them which are exercised thereby.
  
-The glory which thou gavest me I have given them; that they may be one, even as we are one: I in them, and thou in me, that they may be made perfect in one; and that the world may know that thou hast sent me, and hast loved them, as thou hast loved me. -- Behold, what manner of love the Father hath bestowed upon us, that we should be called the sons of God.  
+Before I was afflicted I went astray: but now have I kept thy word. -- After all that is come upon us for our evil deeds, and for our great trespass, seeing that thou our God hast punished us less than our iniquities deserve, and hast given us such deliverance as this.
+ 
+Rejoice not against me, O mine enemy: when I fall, I shall arise; when I sit in darkness, the LORD shall be a light unto me. He will bring me forth to the light, and I shall behold his righteousness.  
 
-**Col 1:13; Matt 3:17; Isa 42:1; John 1:18; 1 John 4:9,10,16; John 17:22-24; 1 John 3:1**
+**Job 14:7; Isa 42:3; Psa 23:3; 2 Cor 7:10; Heb 12:11; Psa 119:67; Ezra 9:13; Mic 7:8,9**
 
 ---
 
-[Thursday 21-November, 2024](https://t.me/s/daily_light)
+[Friday 22-November, 2024](https://t.me/s/daily_light)
 
 > Jonathan Bagster, the son of Samuel Bagster, created the Daily Light for his own family's daily devotion in 1875
 

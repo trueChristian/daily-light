@@ -1,13 +1,15 @@
 **Morning**
 
-**Him that cometh to me I will in no wise cast out.**
+**Praying in the Holy Ghost.**
  
-It shall come to pass, when he crieth unto me, that I will hear; for I am gracious. -- I will not cast them away, neither will I abhor them, to destroy them utterly, and to break my covenant with them: for I am the LORD their God. -- I will remember my covenant with thee in the days of thy youth, and I will establish unto thee an everlasting covenant.
+God is a Spirit: and they that worship him must worship him in spirit and in truth. -- We ... have access by one Spirit unto the Father.
  
-Come now, and let us reason together, saith the LORD: though your sins be as scarlet, they shall be as white as snow; though they be red like crimson, they shall be as wool. -- Let the wicked forsake his way, and the unrighteous man his thoughts: and let him return unto the LORD, and he will have mercy upon him; and to our God, for he will abundantly pardon. -- Lord, remember me when thou comest into thy kingdom. And Jesus said unto him, Verily I say unto thee, To day shalt thou be with me in paradise.
+O my Father, if it be possible, let this cup pass from me: nevertheless not as I will, but as thou wilt.
  
-A bruised reed shall he not break, and the smoking flax shall he not quench.  
+The Spirit ... helpeth our infirmities: for we know not what we should pray for as we ought: but the Spirit itself maketh intercession for us with groanings which cannot be uttered. And he that searcheth the hearts knoweth what is the mind of the Spirit, because he maketh intercession for the saints according to the will of God. -- This is the confidence that we have in him, that, if we ask any thing according to his will, he heareth us. -- When he, the Spirit of truth, is come, he will guide you into all truth.
+ 
+Praying always with all prayer and supplication in the Spirit, and watching thereunto with all perseverance and supplication.  
 
-**John 6:37; Exo 22:27; Lev 26:44; Ezek 16:60; Isa 1:18; Isa 55:7; Luke 23:42,43; Isa 42:3**
+**Jude 20; John 4:24; Eph 2:18; Matt 26:39; Rom 8:26,27; 1 John 5:14; John 16:13; Eph 6:18**
 
-[Thursday 21-November, 2024](https://t.me/daily_light)
+[Friday 22-November, 2024](https://t.me/daily_light)
