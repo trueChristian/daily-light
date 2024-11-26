@@ -1,11 +1,13 @@
 **Evening**
 
-**Whosoever shall call on the name of the Lord shall he saved.**
+**The sorrow of the world worketh death.**
  
-Manasseh did that which was evil in the sight of the LORD, after the abominations of the heathen, and he reared up altars for Baal. And he built altars for all the host of heaven in the two courts of the house of the LORD. -- And he made his son pass through the fire, and observed times, and used enchantments, and dealt with familiar spirits and wizards: he wrought much wickedness in the sight of the LORD, to provoke him to anger. -- And when he was in affliction, he besought the LORD his God, and humbled himself greatly before the God of his fathers, and prayed unto him: and he was intreated of him, and heard his supplication.
+When Ahithophel saw that his counsel was not followed, he saddled his ass, and arose, and gat him home to his house, to his city, and put his household in order, and hanged himself, and died. -- A wounded spirit who can bear?
  
-Come now, and let us reason together, saith the LORD: though your sins be as scarlet, they shall be as white as snow; though they be red like crimson, they shall be as wool. -- The Lord is longsuffering to us ward, not willing that any should perish.  
+Is there no balm in Gilead? is there no physician there? why then is not the health of the daughter of my people recovered? -- The LORD hath anointed me to preach good tidings unto the meek: he hath sent me to bind up the broken hearted, to comfort all that mourn; to appoint unto them that mourn in Zion, to give unto them beauty for ashes, the oil of joy for mourning, the garment of praise for the spirit of heaviness. -- Come unto me, all ye that labour and are heavy laden, and I will give you rest. Take my yoke upon you, and learn of me; for I am meek and lowly in heart: and ye shall find rest unto your souls. For my yoke is easy, and my burden is light.
+ 
+Philip preached unto him Jesus. -- He healeth the broken in heart, and bindeth up their wounds.  
 
-**Acts 2:21; 2 Kgs 21:1,2,3,5,6; 2 Chr 33:12,13; Isa 1:18; 2 Pet 3:9**
+**2 Cor 7:10; 2 Sam 17:23; Prov 18:14; Jer 8:22; Isa 61:1-3; Matt 11:28-30; Acts 8:35; Psa 147:3**
 
-[Monday 25-November, 2024](https://t.me/daily_light)
+[Tuesday 26-November, 2024](https://t.me/daily_light)
