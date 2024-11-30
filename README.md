@@ -1,34 +1,36 @@
 # Morning
 
-**We shall be satisfied with the goodness of thy house.**
+**The Lord of peace himself give you peace always by all means. The Lord be with you all.**
  
-One thing have I desired of the LORD, that will I seek after; that I may dwell in the house of the LORD all the days of my life, to behold the beauty of the LORD, and to enquire in his temple.
+Peace, from him which is, and which was, and which is to come. -- The peace of God, which passeth all understanding, shall keep your hearts and minds through Christ Jesus.
  
-Blessed are they which do hunger and thirst after righteousness: for they shall be filled. -- He hath filled the hungry with good things; and the rich he hath sent empty away.
+Jesus himself stood in the midst of them, and saith unto them, Peace be unto you. -- Peace I leave with you, my peace I give unto you: not as the world giveth, give I unto you. Let not your heart be troubled, neither let it be afraid.
  
-He satisfieth the longing soul, and filleth the hungry soul with goodness. -- I am the bread of life: he that cometh to me shall never hunger; and he that believeth on me shall never thirst.
+The Comforter ... even the Spirit of truth. -- The fruit of the Spirit is love, joy, peace. -- The Spirit itself beareth witness with our spirit, that we are the children of God.
  
-How excellent is thy lovingkindness, O God! therefore the children of men put their trust under the shadow of thy wings. They shall be abundantly satisfied with the fatness of thy house; and thou shalt make them drink of the river of thy pleasures. For with thee is the fountain of life: in thy light shall we see light.  
+My presence shall go with thee and I will give thee rest. And he said unto him, If thy presence go not with me, carry us not up hence. For wherein shall it be known here that I and thy people have found grace in thy sight? is it not in that thou goest with us?  
 
-**Psa 65:4; Psa 27:4; Matt 5:6; Luke 1:53; Psa 107:9; John 6:35; Psa 36:7-9**
+**2 Thes 3:16; Rev 1:4; Phl 4:7; Luke 24:36; John 14:27; John 15:26; Gal 5:22; Rom 8:16; Exo 33:14-16**
 
 # Evening
 
-**Do ye now believe?**
+**We glory in tribulations.**
  
-What doth it profit, my brethren, though a man say he hath faith, and have not works? can faith save him? Faith, if it hath not works, is dead, being alone.
+If in this life only we have hope in Christ, we are of all men most miserable.
  
-By faith Abraham, when he was tried, offered up Isaac: and he that had received the promises offered up his only begotten son. Accounting that God was able to raise him up, even from the dead. -- Was not Abraham our father justified by works, when he had offered Isaac his son upon the altar? Ye see then how that by works a man is justified, and not by faith only.
+Beloved, think it not strange concerning the fiery trial which is to try you, as though some strange thing happened unto you: but rejoice, inasmuch as ye are partakers of Christ's sufferings; that, when his glory shall be revealed, ye may be glad also with exceeding joy. -- Sorrowful, yet alway rejoicing.
  
-Whoso looketh into the perfect law of liberty, and continueth therein, he being not a forgetful hearer, but a doer of the work, this man shall be blessed in his deed.
+Rejoice in the Lord alway: and again I say, rejoice. -- They departed from the presence of the council, rejoicing that they were counted worthy to suffer shame for his name.
  
-By their fruits ye shall know them. Not every one that saith unto me, Lord, Lord, shall enter into the kingdom of heaven; but he that doeth the will of my Father which is in heaven. -- If ye know these things, happy are ye if ye do them.  
+The God of hope fill you with all joy and peace in believing.
+ 
+Although the fig tree shall not blossom, neither shall fruit be in the vines; the labour of the olive shall fail, and the fields shall yield no meat; the flock shall be cut off from the fold, and there shall be no herd in the stalls: Yet I will rejoice in the LORD, I will joy in the God of my salvation.  
 
-**John 16:31; Jas 2:14,17; Heb 11:17-19; Jas 2:21,24; Jas 1:25; Matt 7:20,21; John 13:17**
+**Rom 5:3; 1 Cor 15:19; 1 Pet 4:12,13; 2 Cor 6:10; Phl 4:4; Acts 5:41; Rom 15:13; Hab 3:17,18**
 
 ---
 
-[Friday 29-November, 2024](https://t.me/s/daily_light)
+[Saturday 30-November, 2024](https://t.me/s/daily_light)
 
 > Jonathan Bagster, the son of Samuel Bagster, created the Daily Light for his own family's daily devotion in 1875
 
