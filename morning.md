@@ -1,15 +1,13 @@
 **Morning**
 
-**It is God which worketh in you.**
+**He hath made him to be sin for us, who knew no sin; that we might be made the righteousness of God in him.**
  
-Not that we are sufficient of ourselves to think any thing as of ourselves; but our sufficiency is of God. -- A man can receive nothing, except it be given him from heaven. -- No man can come to me, except the Father which hath sent me draw him: and I will raise him up at the last day. -- And I will give them one heart, and one way, that they may fear me for ever.
+The LORD hath laid on him the iniquity of us all. -- Who his own self bare our sins in his own body on the tree, that we, being dead to sins, should live unto righteousness: by whose stripes ye were healed. -- As by one man's disobedience many were made sinners, so by the obedience of one shall many be made righteous.
  
-Do not err, my beloved brethren. Every good gift and every perfect gift is from above, and cometh down from the Father of lights, with whom is no variableness, neither shadow of turning. Of his own will begat he us with the word of truth, that we should be a kind of firstfruits of his creatures.
+After that the kindness and love of God our Saviour toward man appeared, not by works of righteousness which we have done, but according to his mercy he saved us, by the washing of regeneration, and renewing of the Holy Ghost; which he shed on us abundantly through Jesus Christ our Saviour; that being justified by his grace, we should be made heirs according to the hope of eternal life. -- There is therefore now no condemnation to them which are in Christ Jesus, who walk not after the flesh, but after the Spirit.
  
-For we are his workmanship, created in Christ Jesus unto good works, which God hath before ordained that we should walk in them.
- 
-LORD, thou wilt ordain peace for us: for thou also hast wrought all our works in us.  
+The LORD our Righteousness.  
 
-**Phl 2:13; 2 Cor 3:5; John 3:27; John 6:44; Jer 32:39; Jas 1:16-18; Eph 2:10; Isa 26:12**
+**2 Cor 5:21; Isa 53:6; 1 Pet 2:24; Rom 5:19; Tit 3:4-7; Rom 8:1; Jer 23:6**
 
-[Friday 06-December, 2024](https://t.me/daily_light)
+[Saturday 07-December, 2024](https://t.me/daily_light)
