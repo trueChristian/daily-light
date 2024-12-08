@@ -1,34 +1,32 @@
 # Morning
 
-**He hath made him to be sin for us, who knew no sin; that we might be made the righteousness of God in him.**
+**By love serve one another.**
  
-The LORD hath laid on him the iniquity of us all. -- Who his own self bare our sins in his own body on the tree, that we, being dead to sins, should live unto righteousness: by whose stripes ye were healed. -- As by one man's disobedience many were made sinners, so by the obedience of one shall many be made righteous.
+Brethren, if a man be overtaken in a fault, ye which are spiritual, restore such an one in the spirit of meekness; considering thyself, lest thou also be tempted. Bear ye one another's burdens, and so fulfil the law of Christ.
  
-After that the kindness and love of God our Saviour toward man appeared, not by works of righteousness which we have done, but according to his mercy he saved us, by the washing of regeneration, and renewing of the Holy Ghost; which he shed on us abundantly through Jesus Christ our Saviour; that being justified by his grace, we should be made heirs according to the hope of eternal life. -- There is therefore now no condemnation to them which are in Christ Jesus, who walk not after the flesh, but after the Spirit.
+Brethren, if any of you do err from the truth, and one convert him; let him know, that he which converteth the sinner from the error of his way shall save a soul from death, and shall hide a multitude of sins. -- Seeing ye have purified your souls in obeying the truth through the Spirit unto unfeigned love of the brethren, see that ye love one another with a pure heart fervently. -- Owe no man any thing, but to love one another: for he that loveth another hath fulfilled the law. -- Be kindly affectioned one to another in brotherly love; in honour preferring one another. -- Yea, all of you be subject one to another, and be clothed with humility: for God resisteth the proud, and giveth grace to the humble.
  
-The LORD our Righteousness.  
+We ... that are strong ought to bear the infirmities of the weak, and not to please ourselves.  
 
-**2 Cor 5:21; Isa 53:6; 1 Pet 2:24; Rom 5:19; Tit 3:4-7; Rom 8:1; Jer 23:6**
+**Gal 5:13; Gal 6:1,2; Jas 5:19,20; 1 Pet 1:22; Rom 13:8; Rom 12:10; 1 Pet 5:5; Rom 15:1**
 
 # Evening
 
-**I will be as the dew unto Israel.**
+**The dust shall return to the earth as it was.**
  
-The meekness and gentleness of Christ.
+It is sown in corruption; it is sown in dishonour; it is sown in weakness; it is sown a natural body. -- The first man is of the earth, earthy.
  
-A bruised reed shall he not break, and the smoking flax shall he not quench.
+Dust thou art, and unto dust shalt thou return. -- One dieth in his full strength, being wholly at ease and quiet. And another dieth in the bitterness of his soul, and never eateth with pleasure. They shall lie down alike in the dust, and the worms shall cover them.
  
-The Spirit of the Lord is upon me, because he hath anointed me to preach the gospel to the poor; he hath sent me to heal the brokenhearted, to preach deliverance to the captives, and recovering of sight to the blind, to set at liberty them that are bruised, to preach the acceptable year of the Lord. And he began to say unto thern, This day is this scripture fulfilled in your ears. And all bare him witness, and wondered at the gracious words which proceeded out of his mouth.
+My flesh ... shall rest in hope. -- Though after my skin worms destroy this body, yet in my flesh shall I see God. -- The Lord Jesus Christ shall change our vile body, that it may be fashioned like unto his glorious body, according to the working whereby he is able even to subdue all things unto himself.
  
-And the Lord turned, and looked upon Peter, and Peter remembered the word of the Lord, how he had said unto him, Before the cock crow, thou shalt deny me thrice. And Peter went out and wept bitterly.
- 
-He shall feed his flock like a shepherd: he shall gather the lambs with his arm, and carry them in his bosom, and shall gently lead those that are with young.  
+LORD, make me to know mine end, and the measure of my days, what it is; that I may know how frail I am. -- So teach us to number our days, that we may apply our hearts unto wisdom.  
 
-**Hos 14:5; 2 Cor 10:1; Isa 42:3; Luke 4:18,19,21,22; Luke 22:61,62; Isa 40:11**
+**Eccl 12:7; 1 Cor 15:42-44; 1 Cor 15:47; Gen 3:19; Job 21:23,25,26; Psa 16:9; Job 19:26; Phl 3:20,21; Psa 39:4; Psa 90:12**
 
 ---
 
-[Saturday 07-December, 2024](https://t.me/s/daily_light)
+[Sunday 08-December, 2024](https://t.me/s/daily_light)
 
 > Jonathan Bagster, the son of Samuel Bagster, created the Daily Light for his own family's daily devotion in 1875
 
