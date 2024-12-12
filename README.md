@@ -1,30 +1,30 @@
 # Morning
 
-**Let not your good be evil spoken of.**
+**The Lord is in the midst of thee.**
  
-Abstain from all appearance of evil. -- Providing for honest things, not only in the sight of the Lord, but also in the sight of men. -- For so is the will of God, that with well doing ye may put to silence the ignorance of foolish men.
+Fear thou not; for I am with thee: be not dismayed; for I am thy God: I will strengthen thee; yea, I will help thee; yea, I will uphold thee with the right hand of my righteousness. -- Strengthen ye the weak hands, and confirm the feeble knees. Say to them that are of a fearful heart, Be strong, fear not: behold, your God will come with vengeance, even God with a recompence; He will come and save you. -- The LORD thy God in the midst of thee is mighty; he will save, he will rejoice over thee with joy; he will rest in his love, he will joy over thee with singing. -- Wait on the LORD: be of good courage, and he shall strengthen thine heart.
  
-But let none of you suffer as a murderer, or as a thief, or as an evildoer, or as a busybody in other men's matters. Yet if any man suffer as a Christian, let him not be ashamed; but let him glorify God on this behalf.
- 
-Brethren, ye have been called unto liberty; only use not liberty for an occasion to the flesh, but by love serve one another. -- Take heed lest by any means this liberty of yours become a stumblingblock to them that are weak. -- Whoso shall offend one of these little ones which believe in me, it were better for him that a millstone were hanged about his neck, and that he were drowned in the depth of the sea. -- Inasmuch as ye have done it unto one of the least of these my brethren, ye have done it unto me.  
+I heard a great voice out of heaven, saying, Behold, the tabernacle of God is with men, and he will dwell with them, and they shall be his people, and God himself shall be with them, and be their God. And God shall wipe away all tears from their eyes; and there shall be no more death, neither sorrow, nor crying, neither shall there be any more pain.  
 
-**Rom 14:16; 1 Thes 5:22; 2 Cor 8:21; 1 Pet 2:15; 1 Pet 4:15,16; Gal 5:13; 1 Cor 8:9; Matt 18:6; Matt 25:40**
+**Zeph 3:15; Isa 41:10; Isa 35:3,4; Zeph 3:17; Psa 27:14; Rev 21:3,4**
 
 # Evening
 
-**Awake thou that sleepest, and arise from the dead, and Christ shall give thee light.**
+**Wherefore criest thou unto me? speak unto the children of Israel, that they go forward.**
  
-It is high time to awake out of sleep: for now is our salvation nearer than when we believed. -- Therefore let us not sleep, as do others; but let us watch and be sober. For they that sleep sleep in the night: and they that be drunken are drunken in the night. But let us, who are of the day, be sober, putting on the breastplate of faith and love; and for an helmet, the hope of salvation.
+Be of good courage, and let us behave ourselves valiantly for our people, and for the cities of our God: and let the LORD do that which is good in his sight. -- We made our prayer unto our God, and set a watch against them day and night.
  
-Arise, shine; for thy light is come, and the glory of the Lord is risen upon thee. For behold darkness shall cover the earth, and gross darkness the people, but the Lord shall arise upon thee, and his glory shall be seen upon thee.
+Not every one that saith unto me, Lord, Lord, shall enter into the kingdom of heaven; but he that doeth the will of my Father which is in heaven. -- If any man will do his will, he shall know of the doctrine, whether it be of God. -- Then shall we know, if we follow on to know the LORD.
  
-Wherefore gird up the loins of your mind, be sober, and hope to the end for the grace that is to be brought unto you at the revelation of Jesus Christ. -- Let your loins be girded about, and your lights burning; and ye yourselves like unto men that wait for their lord.  
+Watch and pray, that ye enter not into temptation. -- Watch ye, stand fast in the faith, quit you like men, be strong. -- Not slothful in business; fervent in spirit; serving the Lord.
+ 
+Strengthen ye the weak hands, and confirm the feeble knees. Say to them that are of a fearful heart, Be strong, fear not.  
 
-**Eph 5:14; Rom 13:11; 1 Thes 5:6-8; Isa 60:1,2; 1 Pet 1:13; Luke 12:35,36**
+**Exo 14:15; 1 Chr 19:13; Neh 4:9; Matt 7:21; John 7:17; Hos 6:3; Matt 26:41; 1 Cor 16:13; Rom 12:11; Isa 35:3,4**
 
 ---
 
-[Wednesday 11-December, 2024](https://t.me/s/daily_light)
+[Thursday 12-December, 2024](https://t.me/s/daily_light)
 
 > Jonathan Bagster, the son of Samuel Bagster, created the Daily Light for his own family's daily devotion in 1875
 
