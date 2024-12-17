@@ -1,13 +1,13 @@
 **Morning**
 
-**Having loved his own which were in the world, he loved them unto the end.**
+**Quicken us, and we will call upon thy name.**
  
-I pray for them: I pray not for the world, but for them which thou hast given me; for they are thine. And all mine are thine, and thine are mine; and I am glorified in them. I pray not that thou shouldest take them out of the world, but that thou shouldest keep them from the evil. They are not of the world, even as I am not of the world.
+It is the Spirit that quickeneth. -- The Spirit also helpeth our infirmities: for we know not what we should pray for as we ought: but the Spirit itself maketh intercession for us with groanings which cannot be uttered. And he that searcheth the hearts knoweth what is the mind of the Spirit, because he maketh intercession for the saints according to the will of God. -- Praying always with all prayer and supplication in the Spirit, and watching thereunto with all perseverance.
  
-As the Father hath loved me, so have I loved you: continue ye in my love. -- Greater love hath no man than this, that a man lay down his life for his friends. Ye are my friends, if ye do whatsoever I command you. -- A new commandment I give unto you, That ye love one another; as I have loved you, that ye also love one another.
+I will never forget thy precepts: for with them thou hast quickened me. -- The words that I speak unto you, they are spirit, and they are life. -- The letter killeth, but the spirit giveth life. -- If ye abide in me, and my words abide in you, ye shall ask what ye will, and it shall be done unto you. -- This is the confidence that we have in him, that, if we ask any thing according to his will, he heareth us.
  
-He which hath begun a good work in you will perform it until the day of Jesus Christ. -- Christ ... loved the church, and gave himself for it; that he might sanctify and cleanse it with the washing of water by the word.  
+No man can say that Jesus is the Lord, but by the Holy Ghost.  
 
-**John 13:1; John 17:9,10,15,16; John 15:9; John 15:13,14; John 13:34; Phl 1:6; Eph 5:25,26**
+**Psa 80:18; John 6:63; Rom 8:26,27; Eph 6:18; Psa 119:93; John 6:63; 2 Cor 3:6; John 15:7; 1 John 5:14; 1 Cor 12:3**
 
-[Monday 16-December, 2024](https://t.me/daily_light)
+[Tuesday 17-December, 2024](https://t.me/daily_light)
