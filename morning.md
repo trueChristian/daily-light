@@ -1,13 +1,13 @@
 **Morning**
 
-**Unto the upright there ariseth light in the darkness.**
+**He hath chosen us in Him before the foundation of the world.**
  
-Who is among you that feareth the LORD, that obeyeth the voice of his servant, that walketh in darkness, and hath no light? let him trust in the name of the LORD, and stay upon his God. -- Though he fall, he shall not be utterly cast down: for the LORD upholdeth him with his hand. -- The commandment is a lamp, and the law is light.
+That we should be holy and without blame before him in love.
  
-Rejoice not against me, O mine enemy: when I fall, I shall arise; when I sit in darkness, the LORD shall be a light unto me. I will bear the indignation of the LORD, because I have sinned against him, until he plead my cause, and execute judgment for me: he will bring me forth to the light, and I shall behold his righteousness.
+God hath from the beginning chosen you to salvation through sanctification of the Spirit and belief of the truth: whereunto he called you, ... to the obtaining of the glory of our Lord Jesus Christ. -- Whom he did foreknow, he also did predestinate to be conformed to the image of his Son, that he might be the firstborn among many brethren. Moreover whom he did predestinate, them he also called: and whom he called, them he also justified: and whom he justified, them he also glorified. -- Elect according to the foreknowledge of God the Father, through sanctification of the Spirit, unto obedience and sprinkling of the blood of Jesus Christ.
  
-The light of the body is the eye: if therefore thine eye be single, thy whole body shall be full of light. But if thine eye be evil, thy whole body shall be full of darkness. If therefore the light that is in thee be darkness, how great is that darkness!  
+A new heart also will I give you, and a new spirit will I put within you: and I will take away the stony heart out of your flesh, and I will give you a heart of flesh. -- God hath not called us unto uncleanness, but unto holiness.  
 
-**Psa 112:4; Isa 50:10; Psa 37:24; Prov 6:23; Mic 7:8,9; Matt 6:22,23**
+**Eph 1:4; Eph 1:4; 2 Thes 2:13,14; Rom 8:29,30; 1 Pet 1:2; Eze 36:26; 1 Thes 4:7**
 
-[Thursday 19-December, 2024](https://t.me/daily_light)
+[Friday 20-December, 2024](https://t.me/daily_light)
