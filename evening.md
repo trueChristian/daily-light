@@ -1,11 +1,15 @@
 **Evening**
 
-**God hath given to us eternal life, and this life is in his Son.**
+**Then said the princes of the Phillstines, What do these Hebrews here?**
  
-As the Father hath life in himself; so hath he given to the Son to have life in himself. As the Father raiseth up the dead, and quickeneth them; even so the Son quickeneth whom he will.
+If ye be reproached for the name of Christ, happy are ye: for the spirit of glory and of God resteth upon you: on their part he is evil spoken of, but on your part he is glorified. But let none of you suffer as a murderer, or as a thief, ... or as a busybody in other men's matters.
  
-I am the resurrection, and the life: he that believeth in me, though he were dead, yet shall he live: and whosoever liveth and believeth in me shall never die. -- I am the good shepherd: the good shepherd giveth his life for the sheep. I lay down my life, that I might take it again. No man taketh it from me, but I lay it down of myself. I have power to lay it down, and I have power to take it again. This commandment have I received of my Father. -- No man cometh unto the Father, but by me. -- He that hath the Son, hath life; and he that hath not the Son of God, hath not life. -- For ye are dead and your life is hid with Christ in God. When Christ, who is our life, shall appear, then shall ye also appear with him in glory.  
+Let not ... your good be evil spoken of. -- Having your conversation honest among the Gentiles.
+ 
+Be ye not unequally yoked together with unbelievers: for what fellowship hath righteousness with unrighteousness? and what communion hath light with darkness? Ye are the temple of the living God. Wherefore come out from among them, and be ye separate, saith the Lord, and touch not the unclean thing.
+ 
+Ye are a chosen generation, a royal priesthood, an holy nation, a peculiar people: that ye should shew forth the praises of him who hath called you out of darkness into his marvellous light.  
 
-**1 John 5:11; John 5:26,21; John 11:25,26; John 10:11,17,18; John 14:6; 1 John 5:12; Col 3:3,4**
+**1 Sam 29:3; 1 Pet 4:14,15; Rom 14:16; 1 Pet 2:12; 2 Cor 6:14,16,17; 1 Pet 2:9**
 
-[Monday 23-December, 2024](https://t.me/daily_light)
+[Tuesday 24-December, 2024](https://t.me/daily_light)
