@@ -1,15 +1,15 @@
 **Morning**
 
-**The kindness and love of God our Saviour toward man appeared.**
+**Be ye stedfast, unmoveable, always abounding in the work of the Lord.**
  
-I have loved thee with an everlasting love.
+Ye know that your labour is not in vain in the Lord. -- As ye have ... received Christ Jesus the Lord, so walk ye in him: rooted and built up in him, and stablished in the faith, as ye have been taught, abounding therein with thanksgiving. -- He that shall endure unto the end, the same shall be saved. -- That on the good ground are they, which in an honest and good heart, having heard the word, keep it, and bring forth fruit with patience.
  
-In this was manifested the love of God toward us, because that God sent his only begotten Son into the world, that we might live through him. Herein is love, not that we loved God, but that he loved us, and sent his Son to be the propitiation for our sins.
+By faith ye stand.
  
-When the fulness of the time was come, God sent forth his Son, made of a woman, made under the law, to redeem them that were under the law, that we might receive the adoption of sons. -- The Word was made flesh, and dwelt among us, (and we beheld his glory, the glory as of the only begotten of the Father) full of grace and truth. -- Great is the mystery of godliness: God was manifest in the flesh.
+I must work the works of him that sent me, while it is day: the night cometh, when no man can work.
  
-As the children are partakers of flesh and blood, he also himself likewise took part of the same; that through death he might destroy him that had the power of death, that is, the devil.  
+He that soweth to his flesh shall of the flesh reap corruption; but he that soweth to the Spirit shall of the Spirit reap life everlasting. And let us not be weary in well doing: for in due season we shall reap, if we faint not. As we have therefore opportunity, let us do good unto all men, especially unto them who are of the household of faith.  
 
-**Tit 3:4; Jer 31:3; 1 John 4:9,10; Gal 4:4,5; John 1:14; 1 Tim 3:16; Heb 2:14**
+**1 Cor 15:58; 1 Cor 15:58; Col 2:6,7; Matt 24:13; Luke 8:15; 2 Cor 1:24; John 9:4; Gal 6:8-10**
 
-[Wednesday 25-December, 2024](https://t.me/daily_light)
+[Thursday 26-December, 2024](https://t.me/daily_light)
