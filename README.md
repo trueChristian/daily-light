@@ -1,30 +1,36 @@
 # Morning
 
-**Blameless in the day of our Lord Jesus Christ.**
+**The Lord thy God bare thee, as a man doth bear his son, in all the way that ye went, until ye came into this place.**
  
-You, that were sometime alienated and enemies in your mind by wicked works, yet now hath he reconciled in the body of his flesh through death, to present you holy and unblameable and unreproveable in his sight: if ye continue in the faith grounded and settled, and be not moved away from the hope of the gospel. -- That ye may be blameless and harmless, the sons of God, without rebuke, in the midst of a crooked and perverse nation, among whom ye shine as lights in the world.
+I bare you on eagles' wings, and brought you unto myself. -- In his love and in his pity he redeemed them; and he bare them, and carried them all the days of old. -- As an eagle stirreth up her nest, fluttereth over her young, spreadeth abroad her wings, taketh them, beareth them on her wings: so the LORD alone did lead him.
  
-Wherefore, beloved, seeing that ye look for such things, be diligent that ye may be found of him in peace, without spot, and blameless. -- Sincere and without offence till the day of Christ.
+Even to your old age I am he; and even to hoar hairs will I carry you: I have made, and I will bear; even I will carry, and will deliver you. -- This God is our God for ever and ever: he will be our guide even unto death.
  
-Now unto him that is able to keep you from falling, and to present you faultless before the presence of his glory with exceeding joy, to the only wise God our Saviour, be glory and majesty, dominion and power, both now and ever.  
+Cast thy burden upon the LORD, and he shall sustain thee. -- Take no thought for your life, what ye shall eat, or what ye shall drink; nor yet for your body, what ye shall put on. For your heavenly Father knoweth that ye have need of all these things.
+ 
+Hitherto hath the LORD helped us.  
 
-**1 Cor 1:8; Col 1:21-23; Phl 2:15; 2 Pet 3:14; Phl 1:10; Jude 24,25**
+**Deut 1:31; Exo 19:4; Isa 63:9; Deut 32:11,12; Isa 46:4; Psa 48:14; Psa 55:22; Matt 6:25,32; 1 Sam 7:12**
 
 # Evening
 
-**He will keep the feet of his saints.**
+**There remaineth yet very much land to be possessed.**
  
-If we say that we have fellowship with him, and walk in darkness, we lie, and do not the truth: but if we walk in the light, as he is in the light, we have fellowship one with another, and the blood of Jesus Christ his Son cleanseth us from all sin. -- He that is washed needeth not save to wash his feet, but is clean every whit.
+Not as though I had already attained, either were already perfect: but I follow after, if that I may apprehend that for which also I am apprehended of Christ Jesus.
  
-I have taught thee in the way of wisdom; I have led thee in right paths. When thou goest, thy steps shall not be straitened; and when thou runnest, thou shalt not stumble. Enter not into the path of the wicked, and go not in the way of evil men. Avoid it, pass not by it, turn from it, and pass away. Let thine eyes look right on, and let thine eyelids look straight before thee. Ponder the path of thy feet, and let all thy ways be established. Turn not to the right hand nor to the left: remove thy foot from evil.
+Be ye therefore perfect. -- Giving all diligence, add to your faith virtue; and to virtue knowledge; and to knowledge temperance; and to temperance patience; and to patience godliness; and to godliness brotherly kindness; and to brotherly kindness charity.
  
-The Lord shall deliver me from every evil work, and will preserve me unto his heavenly kingdom: to whom be glory for ever and ever. Amen.  
+I pray, that your love may abound yet more and more in knowledge and in all judgment.
+ 
+Eye hath not seen, nor ear heard, neither have entered into the heart of man, the things which God hath prepared for them that love him. But God hath revealed them unto us by his Spirit.
+ 
+There remaineth ... a rest for the people of God. -- Thine eyes shall see the King in his beauty: they shall behold the land that is very far off.  
 
-**1 Sam 2:9; 1 John 1:6,7; John 13:10; Prov 4:11,12,14,15,25-27; 2 Tim 4:18**
+**Josh 13:1; Phl 3:12; Matt 5:48; 2 Pet 1:5-7; Phl 1:9; 1 Cor 2:9,10; Heb 4:9; Isa 33:17**
 
 ---
 
-[Monday 30-December, 2024](https://t.me/s/daily_light)
+[Tuesday 31-December, 2024](https://t.me/s/daily_light)
 
 > Jonathan Bagster, the son of Samuel Bagster, created the Daily Light for his own family's daily devotion in 1875
 
