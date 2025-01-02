@@ -1,11 +1,13 @@
 **Morning**
 
-**This one thing I do, forgetting those things which are behind,... I press toward the mark for the prize of the high calling of God in Christ Jesus.**
+**Sing unto the Lord a new song.**
  
-Father, I will that they ... whom thou hast given me, be with me where I am; that they may behold my glory, which thou hast given me. -- I know whom I have believed, and am persuaded that he is able to keep that which I have committed unto him against that day. -- He which hath begun a good work in you will perform it until the day of Jesus Christ.
+Sing aloud unto God our strength; make a joyful noise unto the God of Jacob. Take a psalm, and bring hither the timbrel, the pleasant harp with the psaltery. -- He hath put a new song in my mouth, even praise unto our God: many shall see it, and fear, and shall trust in the Lord.
  
-Know ye not that they which run in a race run all, but one receiveth the prize? So run, that ye may obtain. And every man that striveth for the mastery is temperate in all things. Now they do it to obtain a corruptible crown; but we an incorruptible. -- Let us lay aside every weight, and the sin which doth so easily beset us, and let us run with patience the race that is set before us, looking unto Jesus.  
+Be strong and of a good courage; be not afraid, neither be thou dismayed: for the Lord thy God is with thee whithersoever thou goest. -- The joy of the Lord is your strength. -- Paul ... thanked God, and took courage.
+ 
+Knowing the time, that now it is high time to awake out of sleep: for now is our salvation nearer than when we believed. The night is far spent, the day is at hand: let us therefore cast off the works of darkness, and let us put on the armour of light. Let us walk honestly, as in the day; not in rioting and drunkenness, not in chambering and wantonness, not in strife and envying. But put ye on the Lord Jesus Christ, and make not provision for the flesh, to fulfil the lusts thereof.  
 
-**Phl 3:13,14; John 17:24; 2 Tim 1:12; Phl 1:6; 1 Cor 9:24,25; Heb 12:1,2**
+**Isa 42:10; Psa 81:1,2; Psa 40:3; Josh 1:9; Neh 8:10; Acts 28:15; Rom 13:11**
 
-[Wednesday 01-January, 2025](https://t.me/daily_light)
+[Thursday 02-January, 2025](https://t.me/daily_light)
