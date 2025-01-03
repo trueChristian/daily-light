@@ -1,28 +1,30 @@
 # Morning
 
-**Sing unto the Lord a new song.**
+**He led them forth by the right way.**
  
-Sing aloud unto God our strength; make a joyful noise unto the God of Jacob. Take a psalm, and bring hither the timbrel, the pleasant harp with the psaltery. -- He hath put a new song in my mouth, even praise unto our God: many shall see it, and fear, and shall trust in the Lord.
+He found [Jacob] in a desert land, and in the waste howling wilderness; he led him about, he instructed him, he kept him as the apple of his eye. As an eagle stirreth up her nest, fluttereth over her young, spreadeth abroad her wings, taketh them, beareth them on her wings: so the Lord alone did lead him. -- Even to your old age I am he; and even to hoar hairs will I carry you: I have made, and I will bear; even I will carry, and will deliver you.
  
-Be strong and of a good courage; be not afraid, neither be thou dismayed: for the Lord thy God is with thee whithersoever thou goest. -- The joy of the Lord is your strength. -- Paul ... thanked God, and took courage.
+He restoreth my soul: he leadeth me in the paths of righteousness for his name's sake. Yea, though I walk through the valley of the shadow of death, I will fear no evil: for thou art with me; thy rod and thy staff they comfort me.
  
-Knowing the time, that now it is high time to awake out of sleep: for now is our salvation nearer than when we believed. The night is far spent, the day is at hand: let us therefore cast off the works of darkness, and let us put on the armour of light. Let us walk honestly, as in the day; not in rioting and drunkenness, not in chambering and wantonness, not in strife and envying. But put ye on the Lord Jesus Christ, and make not provision for the flesh, to fulfil the lusts thereof.  
+The Lord shall guide thee continually, and satisfy thy soul in drought, and make fat thy bones: and thou shalt be like a watered garden, and like a spring of water, whose waters fail not. -- For this GOD is our GOD for ever and ever: he will be our guide even unto death. Who teacheth like him?  
 
-**Isa 42:10; Psa 81:1,2; Psa 40:3; Josh 1:9; Neh 8:10; Acts 28:15; Rom 13:11**
+**Psa 107:7; Deut 32:10; Isa 46:4; Psa 23:3,4; Isa 58:11; Psa 48:14; Job 36:22**
 
 # Evening
 
-**Let my prayer be set forth before thee as incense; and the lifting up of my hands as the evening sacrifice.**
+**What wilt thou that I shall do unto thee ... Lord, that I may receive my sight.**
  
-Thou shalt make an altar to burn incense upon: ... and thou shalt put it before the veil that is by the ark of the testimony, before the mercy seat that is over the testimony, where I will meet with thee. And Aaron shall burn thereon sweet incense every morning: ... and when Aaron lighteth the lamps at even, he shall burn incense upon it, a perpetual incense before the Lord throughout your generations.
+Open thou mine eyes, that I may behold wondrous things out of thy law.
  
-[Jesus] is able to save them to the uttermost that come unto God by him, seeing he ever liveth to make intercession for them. -- The smoke of the incense, which came with the prayers of the saints, ascended up before God out of the angel's hand. Ye also, as lively stones, are built up a spiritual house, an holy priesthood, to offer up spiritual sacrifices, acceptable to God by Jesus Christ. Pray without ceasing.  
+Then opened he their understanding, that they might understand the scriptures. -- The Comforter, which is the Holy Ghost, whom the Father will send in my name, ... shall teach you all things. -- Every good gift and every perfect gift is from above, and cometh down from the Father of lights.
+ 
+The God of our Lord Jesus Christ, the Father of glory, ... give unto you the spirit of wisdom and revelation in the knowledge of him: the eyes of your understanding being enlightened; that ye may know what is the hope of his calling, and what the riches of the glory of his inheritance in the saints, and what is the exceeding greatness of his power to us ward who believe, according to the working of his mighty power.  
 
-**Psa 141:2; Exo 30:1; Heb 7:25; Rev 8:4; 1 Pet 2:5; 1 Thes 5:17**
+**Luke 18:41; Psa 119:18; Luke 24:45; Eph 1:17**
 
 ---
 
-[Thursday 02-January, 2025](https://t.me/s/daily_light)
+[Friday 03-January, 2025](https://t.me/s/daily_light)
 
 > Jonathan Bagster, the son of Samuel Bagster, created the Daily Light for his own family's daily devotion in 1875
 
