@@ -1,13 +1,15 @@
 **Morning**
 
-**He led them forth by the right way.**
+**Ye are not as yet come to the rest and to the inheritance, which the Lord your God giveth you.**
  
-He found [Jacob] in a desert land, and in the waste howling wilderness; he led him about, he instructed him, he kept him as the apple of his eye. As an eagle stirreth up her nest, fluttereth over her young, spreadeth abroad her wings, taketh them, beareth them on her wings: so the Lord alone did lead him. -- Even to your old age I am he; and even to hoar hairs will I carry you: I have made, and I will bear; even I will carry, and will deliver you.
+This is not your rest. -- There remaineth therefore a rest to the people of God. -- Within the veil; whither the forerunner is for us entered, even Jesus.
  
-He restoreth my soul: he leadeth me in the paths of righteousness for his name's sake. Yea, though I walk through the valley of the shadow of death, I will fear no evil: for thou art with me; thy rod and thy staff they comfort me.
+In my Father's house are many mansions: if it were not so, I would have told you. I go to prepare a place for you. And if I go and prepare a place for you, I will come again, and receive you unto myself; that where I am, there ye may be also. -- With Christ; which is far better.
  
-The Lord shall guide thee continually, and satisfy thy soul in drought, and make fat thy bones: and thou shalt be like a watered garden, and like a spring of water, whose waters fail not. -- For this GOD is our GOD for ever and ever: he will be our guide even unto death. Who teacheth like him?  
+God shall wipe away all tears from their eyes; and there shall be no more death, neither sorrow, nor crying, neither shall there be any more pain; for the former things are passed away. -- There the wicked cease from troubling: and there the weary be at rest.
+ 
+Lay up for yourselves treasures in heaven. For where your treasure is, there will your heart be also. -- Set your affection on things above, not on things on the earth.  
 
-**Psa 107:7; Deut 32:10; Isa 46:4; Psa 23:3,4; Isa 58:11; Psa 48:14; Job 36:22**
+**Deut 12:9; Mic 2:10; Heb 4:9; Heb 6:19,20; John 14:2,3; Phl 1:23; Rev 21:4; Job 3:17; Matt 6:20,21; Col 3:2**
 
-[Friday 03-January, 2025](https://t.me/daily_light)
+[Saturday 04-January, 2025](https://t.me/daily_light)
