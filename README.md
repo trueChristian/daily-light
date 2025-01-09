@@ -1,30 +1,30 @@
 # Morning
 
-**They that know thy name will put their trust in thee: for thou, Lord, hast not forsaken them that seek thee.**
+**Thou hast given a banner to them that fear thee, that it may be displayed because of the truth.**
  
-The name of the Lord is a strong tower: the righteous runneth into it, and is safe. -- I will trust, and not be afraid: for the Lord JEHOVAH is my strength and my song; he also is become my salvation.
+Jehovah Nissi (The Lord my banner). -- When the enemy shall come in like a flood, the Spirit of the Lord shall lift up a standard against him.
  
-I have been young, and now am old; yet have I not seen the righteous forsaken, nor his seed begging bread. -- For the Lord loveth judgment, and forsaketh not his saints, they are preserved for ever: but the seed of the wicked shall be cut off. -- The Lord will not forsake his people for his great name's sake: because it hath pleased the Lord to make you his people. -- Who delivered us from so great a death, and doth deliver: in whom we trust that he will yet deliver us.
+We will rejoice in thy salvation, and in the name of our God we will set up our banners. -- The Lord hath brought forth our righteousness: come, and let us declare in Zion the work of the Lord our God. -- We are more than conquerors through him that loved us. -- Thanks be to God, which giveth us the victory through our Lord Jesus Christ. -- The captain of our salvation.
  
-Be content with such things as ye have: for he hath said, I will never leave thee, nor forsake thee. So that we may boldly say, The Lord is my helper, I will not fear what man shall do unto me.  
+My brethren, be strong in the Lord, and in the power of his might. -- Valiant for the truth. -- Fight the Lord's battles. -- Be strong, all ye people of the land, saith the Lord, and work: fear ye not. -- Lift up your eyes, and look on the fields; for they are white already to harvest. -- Yet a little while, and he that shall come will come, and will not tarry.  
 
-**Psa 9:10; Prov 18:10; Isa 12:2; Psa 37:25; Psa 37:28; 1 Sam 12:22; 2 Cor 1:10; Heb 13:5,6**
+**Psa 60:4; Exo 17:15 ; Isa 59:19; Psa 20:5; Jer 51:10; Rom 8:37; 1 Cor 15:57; Heb 2:10; Eph 6:10; Jer 9:3; 1 Sam 18:17; Hag 2:4,5; John 4:35; Heb 10:37**
 
 # Evening
 
-**They are without fault before the throne of God.**
+**One thing is needful.**
  
-The iniquity of Israel shall be sought for, and there shall be none; and the sins of Judah, and they shall not be found: for I will pardon them whom I reserve. -- Who is a God like unto thee, that pardoneth iniquity, and passeth by the transgression of the remnant of his heritage? he retaineth not his anger forever, because he delighteth in mercy. He will turn again, he will have compassion upon us; he will subdue our iniquities; and thou wilt cast all their sins into the depths of the sea.
+There be many that say, Who will shew us any good? Lord, lift thou up the light of thy countenance upon us. Thou hast put gladness in my heart, more than in the time that their corn and their wine increased.
  
-He hath made us accepted in the beloved. -- To present you holy and unblameable and unreproveable in his sight.
+As the hart panteth after the water brooks, so panteth my soul after thee, O God. My soul thirsteth for God, for the living God. -- O God, thou art my God; early will I seek thee: my soul thirsteth for thee, my flesh longeth for thee in a dry and thirsty land, where no water is.
  
-Now unto him that is able to keep you from falling, and to present you faultless before the presence of his glory with exceeding joy, to the only wise God our Saviour, be glory and majesty, dominion and power, both now and ever. Amen.  
+I am the bread of life: he that cometh to me shall never hunger; and he that believeth on me shall never thirst. Lord, evermore give us this bread. -- Mary ... sat at Jesus' feet, and heard his word. -- One thing have I desired of the Lord, that will I seek after; that I may dwell in the house of the Lord all the days of my life, to behold the beauty of the Lord, and to enquire in his temple.  
 
-**Rev 14:5; Jer 50:20; Mic 7:18,19; Eph 1:6; Col 1:22; Jude 24,25**
+**Luke 10:42; Psa 4:6,7; Psa 42:1,2; Psa 63:1; John 6:35,34; Luke 10:39; Psa 27:4**
 
 ---
 
-[Wednesday 08-January, 2025](https://t.me/s/daily_light)
+[Thursday 09-January, 2025](https://t.me/s/daily_light)
 
 > Jonathan Bagster, the son of Samuel Bagster, created the Daily Light for his own family's daily devotion in 1875
 
