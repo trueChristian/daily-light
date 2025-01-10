@@ -1,13 +1,15 @@
 **Evening**
 
-**One thing is needful.**
+**Will God in very deed dwell with men on the earth?**
  
-There be many that say, Who will shew us any good? Lord, lift thou up the light of thy countenance upon us. Thou hast put gladness in my heart, more than in the time that their corn and their wine increased.
+Let them make me a sanctuary; that I may dwell among them. -- I will meet with the children of Israel, and the tabernacle shall be sanctified by my glory. And I will dwell among the children of Israel, and will be their God.
  
-As the hart panteth after the water brooks, so panteth my soul after thee, O God. My soul thirsteth for God, for the living God. -- O God, thou art my God; early will I seek thee: my soul thirsteth for thee, my flesh longeth for thee in a dry and thirsty land, where no water is.
+Thou hast ascended on high, thou hast led captivity captive: thou hast received gifts for men; yea, for the rebellious also, that the Lord God might dwell among them.
  
-I am the bread of life: he that cometh to me shall never hunger; and he that believeth on me shall never thirst. Lord, evermore give us this bread. -- Mary ... sat at Jesus' feet, and heard his word. -- One thing have I desired of the Lord, that will I seek after; that I may dwell in the house of the Lord all the days of my life, to behold the beauty of the Lord, and to enquire in his temple.  
+Ye are the temple of the living God; as God hath said, I will dwell in them, and walk in them; and I will be their God, and they shall be my people. -- Your body is the temple of the Holy Ghost which is in you. -- Ye ... are builded together for an habitation of God through the Spirit.
+ 
+The heathen shall know that I the Lord do sanctify Israel, when my sanctuary shall be in the midst of them for evermore.  
 
-**Luke 10:42; Psa 4:6,7; Psa 42:1,2; Psa 63:1; John 6:35,34; Luke 10:39; Psa 27:4**
+**2 Chr 6:18; Exo 25:8; Exo 29:43,45; Psa 68:18; 2 Cor 6:16; 1 Cor 6:19; Eph 2:22; Ezek 37:28**
 
-[Thursday 09-January, 2025](https://t.me/daily_light)
+[Friday 10-January, 2025](https://t.me/daily_light)
