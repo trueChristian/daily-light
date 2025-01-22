@@ -1,39 +1,43 @@
 {
-  "date_key": "january-21",
-  "date_name": "Tuesday 21-January, 2025",
+  "date_key": "january-22",
+  "date_name": "Wednesday 22-January, 2025",
   "evening": {
     "body": [
-      "Thus saith the high and lofty One that inhabiteth eternity, whose name is Holy; I dwell in the high and holy place, with him that is of a contrite and humble spirit, to revive the spirit of the humble, and to revive the heart of the contrite ones.",
-      "Better it is to be of an humble spirit with the lowly, than to divide the spoil with the proud. -- Blessed are the poor in spirit for their's is the kingdom of heaven.",
-      "These six things doth the Lord hate: yea, seven are an abomination unto him: a proud look, ... . -- Every one that is proud of heart is an abomination to the Lord.",
-      "Search me, O God, and know my heart: try me, and know my thoughts: and see if there be any wicked way in me, and lead me in the way everlasting.",
-      "Grace be unto you, and peace, from God our Father, and the Lord Jesus Christ. I thank my God upon every remembrance of you. -- Blessed are the meek: for they shall inherit the earth."
+      "O Lord, I am oppressed; undertake for me. -- Cast thy burden upon the Lord, and he shall sustain thee. it:",
+      "I am but a litile child: I know not how to go out or come in. -- If any of you lack wisdom, let him ask of God, ... and it shall be given him.",
+      "Who is sufficient for these things? -- I know that in me (that is, in my flesh,) dwelleth no good thing. -- My grace is sufficient for thee: for my strength is made perfect in weakness. Son, be of good cheer; thy sins be forgiven thee ... Daughter, be of good comfort; thy faith hath made thee whole.",
+      "My soul shall be satisfied as with marrow and fatness; ... when I remember thee upon my bed, and meditate on thee in the night watches."
     ],
-    "header": "Now we call the proud happy.",
+    "header": "In the multitude of my thoughts within me thy comforts delight my soul. When my heart is overwhelmed: lead me to the rock that is higher than I.",
     "name": "Evening",
     "references": [
-      "Isa 57:15",
-      "Prov 16:19",
-      "Matt 5:3",
-      "Prov 6:16,17",
-      "Prov 16:5",
-      "Psa 139:23,24",
-      "Phl 1:2,3",
-      "Matt 5:5"
+      "Psa 61:2",
+      "Isa 38:14",
+      "Psa 55:22",
+      "1 Kgs 3:7",
+      "Jas 1:5",
+      "2 Cor 2:16",
+      "Rom 7:18",
+      "2 Cor 12:9",
+      "Matt 9:2,22",
+      "Psa 63:5,6"
     ]
   },
   "joomla": "https://git.vdm.dev/christian/mod_dailylight",
   "morning": {
     "body": [
-      "He is like a refiner's fire, and like fullers' soap: and he shall sit as a refiner and purifier of silver: and he shall purify the sons of Levi, and purge them as gold and silver, that they may offer unto the Lord an offering in righteousness.",
-      "We glory in tribulations: knowing that tribulation worketh patience; and patience, experience; and experience, hope: and hope maketh not ashamed; because the love of God is shed abroad in our hearts by the Holy Ghost which is given unto us. -- If ye endure chastening, God dealeth with you as with sons, for what son is he whom the Father chasteneth not? But if ye be without chastisement, whereof all are partakers, then are ye bastards, and not sons. Now no chastening for the present seemeth to be joyous, but grievous: nevertheless afterward it yieldeth the peaceable fruit of righteousness unto them which are exercised thereby. Wherefore lift up the hands which hang down, and the feeble knees."
+      "O Lord, thou art my God; I will exalt thee, I will praise thy name; for thou hast done wonderful things; thy counsels of old are faithfulness and truth. -- The Lord is the portion of mine inheritance, and of my cup.",
+      "He leadeth me in the paths of righteousness, for his name's sake. Yea, though I walk through the valley of the shadow of death, I will fear no evil: for thou art with me; thy rod and thy staff they comfort me. -- Thou hast holden me by my right hand. Thou shalt guide me with thy counsel, and afterward receive me to glory. Whom have I in heaven but thee? and there is none upon earth that I desire beside thee. My flesh and my heart faileth: but God is the strength of my heart, and my portion for ever. -- Our heart shall rejoice in him, because we have trusted in his holy name. -- The Lord will perfect that which concerneth me: thy mercy, O Lord, endureth for ever: forsake not the works of thine own hands."
     ],
-    "header": "Every branch that beareth fruit, he purgeth it.",
+    "header": "This God is our God for ever and ever: he will be our guide even unto death.",
     "name": "Morning",
     "references": [
-      "Mal 3:2,3",
-      "Rom 5:3",
-      "Heb 12:7,8,11,12"
+      "Isa 25:1",
+      "Psa 16:5",
+      "Psa 23:3,4",
+      "Psa 73:23",
+      "Psa 33:21",
+      "Psa 138:8"
     ]
   },
   "source": "https://github.com/trueChristian/daily-light",

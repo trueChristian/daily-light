@@ -1,11 +1,11 @@
 **Morning**
 
-**Every branch that beareth fruit, he purgeth it.**
+**This God is our God for ever and ever: he will be our guide even unto death.**
  
-He is like a refiner's fire, and like fullers' soap: and he shall sit as a refiner and purifier of silver: and he shall purify the sons of Levi, and purge them as gold and silver, that they may offer unto the Lord an offering in righteousness.
+O Lord, thou art my God; I will exalt thee, I will praise thy name; for thou hast done wonderful things; thy counsels of old are faithfulness and truth. -- The Lord is the portion of mine inheritance, and of my cup.
  
-We glory in tribulations: knowing that tribulation worketh patience; and patience, experience; and experience, hope: and hope maketh not ashamed; because the love of God is shed abroad in our hearts by the Holy Ghost which is given unto us. -- If ye endure chastening, God dealeth with you as with sons, for what son is he whom the Father chasteneth not? But if ye be without chastisement, whereof all are partakers, then are ye bastards, and not sons. Now no chastening for the present seemeth to be joyous, but grievous: nevertheless afterward it yieldeth the peaceable fruit of righteousness unto them which are exercised thereby. Wherefore lift up the hands which hang down, and the feeble knees.  
+He leadeth me in the paths of righteousness, for his name's sake. Yea, though I walk through the valley of the shadow of death, I will fear no evil: for thou art with me; thy rod and thy staff they comfort me. -- Thou hast holden me by my right hand. Thou shalt guide me with thy counsel, and afterward receive me to glory. Whom have I in heaven but thee? and there is none upon earth that I desire beside thee. My flesh and my heart faileth: but God is the strength of my heart, and my portion for ever. -- Our heart shall rejoice in him, because we have trusted in his holy name. -- The Lord will perfect that which concerneth me: thy mercy, O Lord, endureth for ever: forsake not the works of thine own hands.  
 
-**John 15:2; Mal 3:2,3; Rom 5:3; Heb 12:7,8,11,12**
+**Psa 48:14; Isa 25:1; Psa 16:5; Psa 23:3,4; Psa 73:23; Psa 33:21; Psa 138:8**
 
-[Tuesday 21-January, 2025](https://t.me/daily_light)
+[Wednesday 22-January, 2025](https://t.me/daily_light)
