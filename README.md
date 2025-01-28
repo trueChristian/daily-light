@@ -1,30 +1,30 @@
 # Morning
 
-**Ye know that he was manifested to take away our sins: and in him is no sin.**
+**As thy days, so shall thy strength be.**
  
-God, ... hath in these last days spoken unto us by his Son, who being the brightness of his glory, and the express image of his person, and upholding all things by the word of his power, when he had by himself purged our sins, sat down on the right hand of the Majesty on high. -- He hath made him to be sin for us, who knew no sin; that we might be made the righteousness of God in him.
+When they shall lead you, and deliver you up, take no thought beforehand what ye shall speak, neither do ye premeditate: but whatsoever shall be given you in that hour, that speak ye: for it is not ye that speak, but the Holy Ghost. -- Take no thought for the morrow: for the morrow shall take thought for the things of itself. Sufficient unto the day is the evil thereof. The God of Israel is he that giveth strength and power unto his people. Blessed be God. -- He giveth power to the faint; and to them that have no might he increaseth strength.
  
-Pass the time of your sojourning here in fear: forasmuch as ye know that ye were not redeemed with corruptible things, as silver and gold; ... but with the precious blood of Christ, as of a lamb without blemish and without spot: who verily was foreordained before the foundation of the world, but was manifest in these last times for you. -- The love of Christ constraineth us; because we thus judge, that if one died for all, then were all dead: and that he died for all, that they which live should not henceforth live unto themselves, but unto him which died for them, and rose again.  
+My grace is sufficient for thee: for my strength is made perfect in weakness. Most gladly therefore will I rather glory in my infirmities, that the power of Christ may rest upon me. Therefore I take pleasure in infirmities, in reproaches, in necessities, in persecutions, in distresses for Christ's sake: for when I am weak, then am I strong. -- I can do all things through Christ which strengtheneth me. -- O my soul, thou hast trodden down strength.  
 
-**1 John 3:5; Heb 1:13; 2 Cor 5:21; 1 Pet 1:17; 2 Cor 5:14,15**
+**Deut 33:25; Matt 13:11; Matt 6:34; Psa 68:35; Isa 40:29; 2 Cor 12:9,10; Phl 4:13; Judg 5:21**
 
 # Evening
 
-**I have set before you life and death, blessing and cursing: therefore choose life.**
+**Awake, O north wind, and ... blow upon my garden, that the the spices thereof may flow out.**
  
-For I have no pleasure in the death of him that dieth, saith the Lord GOD: wherefore turn yourselves, and live ye.
+No chastening for the present seemeth to be joyous, but grievous: nevertheless afterward it yieldeth the peaceable fruit of righteousness unto them which are exercised thereby. -- The fruit of the Spirit.
  
-If I had not come and spoken unto them, they had not had sin but now they have no cloke for their sin. That servant, which knew his lord's will, and prepared not himself, neither did according to his will, shall be beaten with many stripes.
+He stayeth his rough wind in the day of the east wind. Like as a father pitieth his children, so the Lord pitieth them that fear him.
  
-The wages of sin is death; but the gift of God is eternal life through Jesus Christ our Lord. -- He that believeth on the Son hath everlasting life: and he that believeth not the Son shall not see life but the wrath of God abideth on him. -- Know ye not, that to whom ye yield yourselves servants to obey, his servants ye are to whom ye obey; whether of sin unto death, or of obedience unto righteousness?
+Though our outward man perish, yet the inward man is renewed day by day. For our light affliction, which is but for a moment, worketh for us a far more exceeding and eternal weight of glory; while we look not at the things which are seen, but at the things which are not seen.
  
-If any man serve me, let him follow me; and where I am, there shall also my servant be: if any man serve me, him will my Father honour.  
+Though [Jesus] were a Son, yet learned he obedience by the the things which he suffered. -- In all points tempted like as we are, yet without sin.  
 
-**Deut 30:19; Ezek 18:32; John 15:22; Luke 12:47; Rom 6:23; John 3:36; Rom 6:16; John 12:26**
+**Song 4:16; Heb 12:11; Gal 5:22; Isa 27:8; Psa 103:13; 2 Cor 4:16; Heb 5:8; Heb 4:15**
 
 ---
 
-[Monday 27-January, 2025](https://t.me/s/daily_light)
+[Tuesday 28-January, 2025](https://t.me/s/daily_light)
 
 > Jonathan Bagster, the son of Samuel Bagster, created the Daily Light for his own family's daily devotion in 1875
 
