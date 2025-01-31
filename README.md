@@ -1,30 +1,32 @@
 # Morning
 
-**Let us run with patience the race that is set before us, looking unto Jesus the author and finisher of our faith.**
+**If ye will not drive out the inhabitants of the land from before you;**
  
-If any man will come after me, let him deny himself, and take up his cross daily, and follow me. -- Whosoever he be of you that forsaketh not all that he hath, he cannot be my disciple. -- Let us therefore cast off the works of darkness.
+those which ye let remain of them shall be pricks in your eyes, and thorns in your sides, and shall vex you in the land wherein ye dwell.
  
-Every man that striveth for the mastery is temperate in all things. Now they do it to obtain a corruptible crown; but we an incorruptible. I therefore so run, not as uncertainly; so fight I, not as one that beateth the air: but I keep under my body, and bring it into subjection: lest that by any means, when I have preached to others, I myself should be a castaway. -- Brethren, I count not myself to have apprehended: but this one thing I do, forgetting those things which are behind, and reaching forth unto those things which are before, I press toward the mark for the prize of the high calling of God in Christ Jesus. -- Then shall we know, if we follow on to know the Lord.  
+Fight the good fight of faith. -- The weapons of our warfare are not carnal, but mighty through God to the pulling down of strongholds; casting down imaginations, ... and bringing into captivity every thought to the obedience of Christ.
+ 
+Brethren, we are debtors, not to the flesh, to live after the flesh. For if ye live after the flesh, ye shall die; but if ye through the Spirit do mortify the deeds of the body, ye shall live.
+ 
+The flesh lusteth against the Spirit, and the Spirit against the flesh; and these are contrary the one to the other: so that ye cannot do the things that ye would. -- I see another law in my members, warring against the law of my mind, and bringing me into captivity to the law of sin which is in my members. -- We are more than conquerors through him that loved us.  
 
-**Heb 12:1,2; Luke 9:23; Luke 14:33; Rom 13:12; 1 Cor 9:25,27; Phl 3:13,14; Hos 6:3**
+**Num 33:55; 1 Tim 6:12; 2 Cor 10:4,5; Rom 8:12,13; Gal 5:17; Rom 7:23; Rom 8:37**
 
 # Evening
 
-**It is good for a man that he bear the yoke in his youth.**
+**If a man sin against the Lord, who shall intreat for him?**
  
-Train up a child in the way he should go: and when he is old, he will not depart from it.
+If any man sin, we have an advocate with the Father, Jesus Christ the righteous: and he is the propitiation for our sins: and not for our's only, but also for the sins of the whole world. -- Whom God hath set forth to be a propitiation through faith in his blood, to declare his righteousness for the remission of sins that are past, through the forbearance of God; to declare, I say, at this time his righteousness: that he might be just, and the justifier of him which believeth in Jesus.
  
-We have had fathers of our flesh, which corrected us; and we gave them reverence: shall we not much rather be in subjection unto the Father of spirits, and live? For they verily for a few days chastened us after their own pleasure; but he for our profit, that we might be partakers of his holiness.
+He is gracious unto him, and saith, Deliver him from going down to the pit: I have found a ransom.
  
-Before I was afflicted I went astray: but now have I kept thy word. It is good for me that I have been afflicted; that I might learn thy statutes.
- 
-I know the thoughts that I think toward you, saith the Lord, thoughts of peace, and not of evil, to give you an expected end. -- Humble yourselves, therefore under the mighty hand of God, that he may exalt you in due time.  
+What shall we then say to these things? If God be for us, who can be against us? It is God that justifieth. Who is he that condemneth? It is Christ that died, yea, rather, that is risen again, who is even at the right hand of God, who also maketh intercession for us.  
 
-**Lam 3:27; Prov 22:6; Heb 12:9,10; Psa 119:67,71; Jer 29:11; 1 Pet 5:6**
+**1 Sam 2:25; 1 John 2:1,2; Rom 3:25,26; Job 33:24; Rom 8:31,33,34**
 
 ---
 
-[Thursday 30-January, 2025](https://t.me/s/daily_light)
+[Friday 31-January, 2025](https://t.me/s/daily_light)
 
 > Jonathan Bagster, the son of Samuel Bagster, created the Daily Light for his own family's daily devotion in 1875
 
