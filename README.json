@@ -1,38 +1,40 @@
 {
-  "date_key": "january-31",
-  "date_name": "Friday 31-January, 2025",
+  "date_key": "february-01",
+  "date_name": "Saturday 01-February, 2025",
   "evening": {
     "body": [
-      "If any man sin, we have an advocate with the Father, Jesus Christ the righteous: and he is the propitiation for our sins: and not for our's only, but also for the sins of the whole world. -- Whom God hath set forth to be a propitiation through faith in his blood, to declare his righteousness for the remission of sins that are past, through the forbearance of God; to declare, I say, at this time his righteousness: that he might be just, and the justifier of him which believeth in Jesus.",
-      "He is gracious unto him, and saith, Deliver him from going down to the pit: I have found a ransom.",
-      "What shall we then say to these things? If God be for us, who can be against us? It is God that justifieth. Who is he that condemneth? It is Christ that died, yea, rather, that is risen again, who is even at the right hand of God, who also maketh intercession for us."
+      "We are all as an unclean thing, and all our righteousnesses are as filthy rags.",
+      "I will go in the strength of the Lord God: I will make mention of thy righteousness, even of thine only. -- I will greatly rejoice in the Lord, my soul shall be joyful in my God; for he hath clothed me with the garments of salvation, he hath covered me with the robe of righteousness, as a bridegroom decketh himself with ornaments, and as a bride adorneth herself with her jewels.",
+      "Bring forth the best robe, and put it on him. -- To her was granted that she should be arrayed in fine linen, clean and white: for the fine linen is the righteousness of saints.",
+      "I count all things but loss for the excellency of the knowledge of Christ Jesus my Lord ... that I may win Christ, and be found in him, not having mine own righteousness, which is of the law, but that which is through the faith of Christ, the righteousness which is of God by faith."
     ],
-    "header": "If a man sin against the Lord, who shall intreat for him?",
+    "header": "The Lord Our Righteousness.",
     "name": "Evening",
     "references": [
-      "1 John 2:1,2",
-      "Rom 3:25,26",
-      "Job 33:24",
-      "Rom 8:31,33,34"
+      "Isa 64:6",
+      "Psa 71:16",
+      "Isa 61:10",
+      "Luke 15:22",
+      "Rev 19:8",
+      "Phl 3:8,9"
     ]
   },
   "joomla": "https://git.vdm.dev/christian/mod_dailylight",
   "morning": {
     "body": [
-      "those which ye let remain of them shall be pricks in your eyes, and thorns in your sides, and shall vex you in the land wherein ye dwell.",
-      "Fight the good fight of faith. -- The weapons of our warfare are not carnal, but mighty through God to the pulling down of strongholds; casting down imaginations, ... and bringing into captivity every thought to the obedience of Christ.",
-      "Brethren, we are debtors, not to the flesh, to live after the flesh. For if ye live after the flesh, ye shall die; but if ye through the Spirit do mortify the deeds of the body, ye shall live.",
-      "The flesh lusteth against the Spirit, and the Spirit against the flesh; and these are contrary the one to the other: so that ye cannot do the things that ye would. -- I see another law in my members, warring against the law of my mind, and bringing me into captivity to the law of sin which is in my members. -- We are more than conquerors through him that loved us."
+      "We walk by faith, not by sight. -- We love him, because he first loved us. -- And we have known and believed the love that God hath to us. God is love; and he that dwelleth in love dwelleth in God, and God in him. -- In whom ye trusted, after that ye heard the word of truth, the gospel of your salvation: in whom also after that ye believed, ye were sealed with that holy Spirit of promise. -- God would make known what is the riches of the glory of this mystery among the Gentiles; which is Christ in you, the hope of glory.",
+      "If a man say, I love God, and hateth his brother, he is a liar: for he that loveth not his brother whom he hath seen, how can he love God whom he hath not seen?",
+      "Jesus saith unto him, Thomas, because thou hast seen me, thou hast believed: blessed are they that have not seen, and yet have believed. -- Blessed are all they that put their trust in him."
     ],
-    "header": "If ye will not drive out the inhabitants of the land from before you;",
+    "header": "Whom having not seen, ye love.",
     "name": "Morning",
     "references": [
-      "1 Tim 6:12",
-      "2 Cor 10:4,5",
-      "Rom 8:12,13",
-      "Gal 5:17",
-      "Rom 7:23",
-      "Rom 8:37"
+      "2 Cor 5:7,1 John 4:19,1 John 4:16",
+      "Eph L:13",
+      "Col 1:27",
+      "1 John 4:20",
+      "John 20:29",
+      "Psa 2:12"
     ]
   },
   "source": "https://github.com/trueChristian/daily-light",
