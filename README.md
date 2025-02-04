@@ -1,30 +1,32 @@
 # Morning
 
-**Be strong, and work; for I am with you, saith the Lord of hosts.**
+**The Lord hath said unto you, Ye shall henceforth return no more that way.**
  
-I am the vine, ye are the branches: he that abideth in me, and I in him, the same bringeth forth much fruit: for without me ye can do nothing. -- I can do all things through Christ which strengtheneth me. -- Strong in the Lord, and in the power of his might. -- The joy of the Lord is your strength.
+Truly if they had been mindful of that country from whence they came out, they might have had opportunity to have returned. But now they desire a better country, that is a heavenly. Choosing rather to suffer affliction with the people of God, than to enjoy the pleasures of sin for a season; esteeming the reproach of Christ greater riches than the treasures in Egypt. -- The just shall live by faith: but if any man draw back, my soul shall have no pleasure in him. But we are not of them who draw back unto perdition, but of them that believe to the saving of the soul. -- No man, having put his hand to the plough, and looking back, is fit for the kingdom of God.
  
-Thus said the Lord of hosts; Let your hands be strong, ye that hear in these days these words by the mouth of the prophets. -- Strengthen ye the weak hands, and confirm the feeble knees. Say to them that are of a fearful heart, Be strong, fear not. -- The Lord looked upon him, and said, Go in this thy might.
+God forbid that I should glory, save in the cross of our Lord Jesus Christ, by whom the world is crucified unto me, and I unto the world. -- Come out from among them, and be ye separate, saith the Lord, and touch not the unclean thing; and I will receive you.
  
-If God be for us, who can be against us? -- Therefore seeing we have this ministry, as we have received mercy, we faint not.
- 
-Let us not be weary in well doing: for in due season we shall reap, if we faint not. -- Thanks be to God, which giveth us the victory through our Lord Jesus Christ.  
+He which hath begun a good work in you, will perform it until the day of Jesus Christ.  
 
-**Hag 2:4; John 15:5; Phl 4:13; Eph 6:10; Neh 8:10; Zech 8:9; Isa 35:3,4; Judg 6:14; Rom 8:31 ; 2 Cor 4:1; Gal 6:9; 1 Cor 15:57**
+**Deut 17:16; Heb 11:15,16,25,26; Heb 10:38,39; Luke 9:62; Gal 6:14; 2 Cor 6:17; Phl 1:6**
 
 # Evening
 
-**The darkness hideth not from thee.**
+**They talk to the grief of those whom thou hast wounded.**
  
-His eyes are upon the ways of man, and he seeth all his goings. There is no darkness, nor shadow of death, where the workers of iniquity may hide themselves. -- Can any hide himself in secret places that I shall not see him? ... Do not I fill heaven and earth? saith the Lord.
+I was but a little displeased, and they helped forward the affliction. Brethren, if a man be overtaken in a fault, ye which are spiritual, restore such an one in the spirit of meekness; considering thyself, lest thou also be tempted.
  
-Thou shalt not be afraid for the terror by night; ... nor for the pestilence that walketh in darkness ... Because thou hast made the Lord, which is my refuge, even the Most High, thy habitation; there shall no evil befall thee, neither shall any plague come nigh thy dwelling. -- He that keepeth thee will not slumber. The Lord is thy keeper: the Lord is thy shade upon thy right hand. The sun shall not smite thee by day, nor the moon by night. The Lord shall preserve thee from all evil. Yea, though I walk through the valley of the shadow of death, I will fear no evil, for thou art with me.  
+He which converteth the sinner from the error of his way shall save a soul from death, and shall hide a multitude of sins. -- Comfort the feebleminded, support the weak, be patient toward all men.
+ 
+Let us not ... judge one another any more: but judge this rather, that no man put a stumblingblock or an occasion to fall in his brother's way. -- We ... that are strong ought to bear the infirmities of the weak and not to please ourselves.
+ 
+Charity ... rejoiceth not in iniquity. -- Let him that thinketh he standeth take heed lest he fall.  
 
-**Psa 139:12; Job 34:21,2; Jer 23:24; Psa 91:5,6,9,10; Psa 121:3,5; Psa 23:4**
+**Psa 69:26; Zech 1:15; Gal 6:1; Jas 5:20; 1 Thes 5:14; Rom 14:30; Rom 15:1; 1 Cor 13:4,6; 1 Cor 10:12**
 
 ---
 
-[Monday 03-February, 2025](https://t.me/s/daily_light)
+[Tuesday 04-February, 2025](https://t.me/s/daily_light)
 
 > Jonathan Bagster, the son of Samuel Bagster, created the Daily Light for his own family's daily devotion in 1875
 
