@@ -1,15 +1,13 @@
 **Evening**
 
-**The night cometh when no man can work.**
+**He smote the rock, that the waters gushed out, and the streams overflowed.**
  
-Blessed are the dead which die in the Lord, ... they ... rest from their labours; and their works do follow them. -- There the wicked cease from troubling; and there the weary be at rest. -- Samuel said to Saul, Why hast thou disquieted me, to bring me up?
+All our fathers were under the cloud, and all passed through the sea; and were all baptized unto Moses in the cloud and in the sea; and did all eat the same spiritual meat; and did all drink the same spiritual drink: for they drank of that spiritual Rock that followed them: and that rock was Christ. -- One of the soldiers with a spear pierced his side, and forthwith came there out blood and water. -- He was wounded for our transgressions, he was bruised for our iniquities: the chastisement of our peace was upon him; and with his stripes we are healed.
  
-Whatsoever thy hand findeth to do, do it with thy might; for there is no work, nor device, nor knowledge, nor wisdom, in the grave, whither thou goest. -- The dead praise not the Lord, neither any that go down into silence.
+Ye will not come to me, that ye might have life. -- My people have committed two evils; they have forsaken me the fountain of living waters, and hewed them out cisterns, broken cisterns, that can hold no water.
  
-I am now ready to be offered, and the time of my departure is at hand. I have fought a good fight, I have finished my course, I have kept the faith: henceforth there is laid up for me a crown of righteousness, which the Lord, the righteous judge, shall give me at that day.
- 
-There remaineth therefore a rest to the people of God. For he that is entered into his rest, he also hath ceased from his own works, as God did from his.  
+If any man thirst, let him come unto me, and drink. -- Whosoever will, let him take the water of life freely.  
 
-**John 9:4; Rev 14:13; Job 3:17; 1 Sam 28:15; Eccl 9:10; Psa 115:17; 2 Tim 4:6-8; Heb 4:9,10**
+**Psa 78:20; 1 Cor 10:1; John 19:34; Isa 53:5; John 5:40; Jer 2:13; John 7:37; Rev 22:17**
 
-[Sunday 09-February, 2025](https://t.me/daily_light)
+[Monday 10-February, 2025](https://t.me/daily_light)
