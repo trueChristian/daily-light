@@ -1,30 +1,28 @@
 # Morning
 
-**The light of the body is the eye: therefore when thine eye is single thy whole body also is full of light.**
+**They that feared the Lord spake often one to another: and the Lord harkened, and heard it, and a book of remembrance was written before him for them that feared the Lord, and that thought upon his name.**
  
-The natural man receiveth not the things of the Spint of God: for they are foolishness unto him: neither can he know them, because they are spiritually discerned. -- Open thou mine eyes, that I may behold wondrous things out of thy law.
+It came to pass that, while they communed together and reasoned, Jesus himself drew near, and went with them. -- Where two or three are gathered together in my name, there am I in the midst ot them. -- My fellowlabourers, whose names are in the book of life.
  
-I am the light of the world: he that followeth me shall not walk in darkness, but shall have the light of life. -- We all, with open face beholding as in a glass the glory of the Lord, are changed into the same image ... even as by the Spirit of the Lord. -- God, who commanded the light to shine out of darkness, hath shined in our hearts, to give the light of the knowledge of the glory of God in the face of Jesus Christ.
+Let the word of Christ dwell in you richly in all wisdom; teaching and admonishing one another in psalms and hymns and spiritual songs, singing with grace in your hearts to the Lord. -- Exhort one another daily, while it is called to day; lest any of you be hardened through the deceitfulness of sin.
  
-The God of our Lord Jesus Christ, the Father of glory, give unto you the spirit of wisdom and revelation in the knowledge of him: ... that ye may know what is the hope of his calling, and what the riches of the glory of his inheritance in the saints.  
+Every idle word that men shall speak, they shall give account thereof in the day of judgment. For by thy words thou shalt be justified, and by thy words thou shalt be condemned. -- Behold, it is written before me.  
 
-**Luke 11:34; 1 Cor 2:14; Psa 119:18; John 8:12; 2 Cor 3:18; 2 Cor 4:6; Eph 1:17,18**
+**Mal 3:16; Luke 24:15; Matt 18:20; Phl 4:3; Col 3:16; Heb 3:13; Matt 12:36,37; Isa 65:6**
 
 # Evening
 
-**He smote the rock, that the waters gushed out, and the streams overflowed.**
+**The trees of the Lord are full of sap.**
  
-All our fathers were under the cloud, and all passed through the sea; and were all baptized unto Moses in the cloud and in the sea; and did all eat the same spiritual meat; and did all drink the same spiritual drink: for they drank of that spiritual Rock that followed them: and that rock was Christ. -- One of the soldiers with a spear pierced his side, and forthwith came there out blood and water. -- He was wounded for our transgressions, he was bruised for our iniquities: the chastisement of our peace was upon him; and with his stripes we are healed.
+I will be as the dew unto Israel: he shall grow as the lily, and cast forth his roots as Lebanon. His branches shall spread, and his beauty shalt be as the olive tree, and his smell as Lebanon. -- Blessed is the man that trusteth in the Lord, and whose hope the Lord is. For he shall be as a tree planted by the waters, and that spreadeth out her roots by the river, and shall not see when heat cometh, but her leaf shall be green; and shall not be careful in the year of drought, neither shall cease from yielding fruit.
  
-Ye will not come to me, that ye might have life. -- My people have committed two evils; they have forsaken me the fountain of living waters, and hewed them out cisterns, broken cisterns, that can hold no water.
- 
-If any man thirst, let him come unto me, and drink. -- Whosoever will, let him take the water of life freely.  
+I the Lord have brought down the high tree, have exalted the low tree, have dried up the green tree, and have made the dry tree to flourish. The righteous shall flourish like the palm tree: he shall grow like a cedar in Lebanon. Those that be planted in the house of the Lord shall flourish in the courts of our God. They shall still bring forth fruit in old age; they shall be fat and flourishing.  
 
-**Psa 78:20; 1 Cor 10:1; John 19:34; Isa 53:5; John 5:40; Jer 2:13; John 7:37; Rev 22:17**
+**Psa 104:16; Hos 14:5,6; Jer 17:7,8; Eze 17:24; Psa 92:12**
 
 ---
 
-[Monday 10-February, 2025](https://t.me/s/daily_light)
+[Tuesday 11-February, 2025](https://t.me/s/daily_light)
 
 > Jonathan Bagster, the son of Samuel Bagster, created the Daily Light for his own family's daily devotion in 1875
 
