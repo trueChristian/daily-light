@@ -1,28 +1,32 @@
 # Morning
 
-**They shall be mine, saith the Lord of hosts, in that day when I make up my jewels.**
+**Upon the likeness of the throne was the likeness as the appearance of a man above upon it.**
  
-I have manifested thy name unto the men which thou gavest me out of the world: thine they were, and thou gavest them me; and they have kept thy word. I pray for them: I pray not for the world, but for them which thou hast given me; for they are thine. And all mine are thine, and thine are mine; and I am glorified in them. Father, I will that they also, whom thou hast given me, be with me where I am: that they may behold my glory, which thou hast given me: for thou lovedst me before the foundation of the world.
+The man Christ Jesus. -- Made in the likeness of men ... found in fashion as a man. -- Forasmuch ... as the children are partakers of flesh and blood, he also himself likewise took part of the same; that through death he might destroy him that had the power of death.
  
-I will come again, and receive you unto myself. -- He shall come to be glorified in his saints, and to be admired in all them that believe ... in that day. -- We which are alive and remain shall be caught up together with them in the clouds, to meet the Lord in the air: and so shall we ever be with the Lord. -- Thou shalt also be a crown of glory in the hand of the Lord, and a royal diadem in the hand of thy God.  
+I am he that liveth, and was dead; and, behold, I am alive for evermore. -- Christ being raised from the dead dieth no more; death hath no more dominion over him. For in that he died, he died unto sin once: but in that he liveth, he liveth unto God. -- What and if ye shall see the Son of Man ascend up where he was before? -- He raised him from the dead, and set him at his own right hand in the heavenly places. -- In him dwelleth all the fulness of the Godhead bodily.
+ 
+Though he was crucified through weakness, yet he liveth by the power of God. For we also are weak in him, but we shall live with him by the power of God.  
 
-**Mal 3:17; John 17:6,9,10,24; John 14:3; 2 Thes 1:10; 1 Thes 4:17; Isa 62:3**
+**Ezek 1:26; 1 Tim 2:5; Phl 2:7,8; Heb 2:14; Rev 1:18; Rom 6:9; John 6:62; Eph 1:20; Col 2:9; 2 Cor 13:4**
 
 # Evening
 
-**I beseech thee, shew me thy glory.**
+**Thy word hath quickened me.**
  
-God, who commanded the light to shine out of darkness, hath shined in our hearts, to give the light of the knowledge of the glory of God in the face of Jesus Christ. -- The Word was made flesh and dwelt among us, (and we beheld his glory, the glory as of the only begotten of the Father,) full of grace and truth ... No man hath seen God at any time; the only begotten Son, which is in the bosom of the Father, he hath declared him.
+The first man Adam was made a living soul; the last Adam was made a quickening spirit.
  
-My soul thirsteth for God, for the living God: when shall I come and appear before God ? -- When thou saidst, Seek ye my face; my heart said unto thee, Thy face, Lord, will I seek.
+As the Father hath life in himself; so hath he given to the Son to have life in himself. -- I am the resurrection, and the life: he that believeth in me though he were dead, yet shall he live: and whosoever liveth and believeth in me shall never die.
  
-We all, with open face beholding as in a glass the glory of the Lord, are changed into the same image from glory to glory, even as by the Spirit of the Lord. -- Father, I will that they also, whom thou hast given me, be with me where I am; that they may behold my glory, which thou hast given me: for thou lovedst me before the foundation of the world.  
+In him was life; and the life was the light of men ... As many as received him, to them gave he power to become the sons of God, even to them that believe on his name: which were born, not of blood, nor of the will of the flesh, nor of the will of man, but of God.
+ 
+It is the spirit that quickeneth; the flesh profiteth nothing: the words that I speak unto you, they are spirit, and they are life. -- The word of God is quick and powerful, and sharper than any twoedged sword, piercing even to the dividing asunder of soul and spirit and of the joints and marrow, and is a discerner of the thoughts and intents of the heart.  
 
-**Exo 33:18; 2 Cor 4:6; John 1:14,18; Psa 42:2; Psa 27:8; 2 Cor 3:18; John 17:24**
+**Psa 119:50; 1 Cor 15:45; John 5:26; John 11:25,26; John 1:4,12,13; John 6:63; Heb 4:12**
 
 ---
 
-[Wednesday 12-February, 2025](https://t.me/s/daily_light)
+[Thursday 13-February, 2025](https://t.me/s/daily_light)
 
 > Jonathan Bagster, the son of Samuel Bagster, created the Daily Light for his own family's daily devotion in 1875
 
