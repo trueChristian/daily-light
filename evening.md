@@ -1,15 +1,13 @@
 **Evening**
 
-**I am thy part and thine inheritance.**
+**The floods lift up their waves.**
  
-Whom have I in heaven but thee! and there is none upon earth that I desire beside thee. My flesh and my heart faileth: but God is the strength of my heart, and my portion for ever. -- The LORD is the portion of mine inheritance and of my cup: thou maintainest my lot. The lines are fallen unto me in pleasant places ; yea, I have a goodly heritage.
+The Lord on high is mightier than the noise of many waters, yea, than the mighty waves of the sea. -- O Lord God of hosts, who is a strong Lord like unto thee? or to thy faithfulness round about thee? thou rulest the raging of the sea: when the waves thereof arise, thou stillest them.
  
-The Lord is my portion, saith my soul; therefore will I hope in him. Thy testimonies have I taken as an heritage for ever: for they are the rejoicing of my heart.
+Fear ye not me? saith the Lord: will ye not tremble at my presence, which have placed the sand for the bound of the sea by a perpetual decree, that it cannot pass it? When thou passest through the waters, I will be with thee; and through the rivers, they shall not overflow thee.
  
-O God, thou art my God; early will I seek thee: my soul thirsteth for thee, my flesh longeth for thee in a dry and thirsty land, where no water is ... Because thou hast been my help, therefore in the shadow of thy wings will I rejoice.
- 
-My beloved is mine, and I am his.  
+Peter ... walked on the water, to go to Jesus. But when he saw the wind boisterous, he was afraid; and beginning to sink, he cried, saying, Lord, save me. And immediately Jesus stretched forth his hand, and caught him, and said unto him, O thou of little faith, wherefore didst thou doubt?What time I am afraid, I will trust in thee.  
 
-**Num 18:20; Psa 73:25,26; Psa 16:5,6; Lam 3:24; Psa 119:111; Psa 63:1,7; Song 2:16**
+**Psa 93:3; Psa 93:4; Psa 89:8,9; Jer 5:22; Isa 43:2; Matt 14:29; Psa 56:3**
 
-[Friday 14-February, 2025](https://t.me/daily_light)
+[Saturday 15-February, 2025](https://t.me/daily_light)
