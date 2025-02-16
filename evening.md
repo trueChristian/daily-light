@@ -1,13 +1,13 @@
 **Evening**
 
-**The floods lift up their waves.**
+**We that are in this tabernacle do groan, being burdened.**
  
-The Lord on high is mightier than the noise of many waters, yea, than the mighty waves of the sea. -- O Lord God of hosts, who is a strong Lord like unto thee? or to thy faithfulness round about thee? thou rulest the raging of the sea: when the waves thereof arise, thou stillest them.
+Lord, all my desire is before thee; and my groaning is not hid from thee ... Mine iniquities are gone over mine head: as an heavy burden they are too heavy for me. -- O wretched man that I am! who shall deliver me from the body of this death?
  
-Fear ye not me? saith the Lord: will ye not tremble at my presence, which have placed the sand for the bound of the sea by a perpetual decree, that it cannot pass it? When thou passest through the waters, I will be with thee; and through the rivers, they shall not overflow thee.
+The whole creation groaneth and travaileth in pain together until now. And not only they, but ourselves ... which have the first‑fruits of the Spirit ... groan within ourselves waiting for the adoption, to wit, the redemption of our body. -- Now for a season, if need be, ye are in heaviness through manifold temptations.
  
-Peter ... walked on the water, to go to Jesus. But when he saw the wind boisterous, he was afraid; and beginning to sink, he cried, saying, Lord, save me. And immediately Jesus stretched forth his hand, and caught him, and said unto him, O thou of little faith, wherefore didst thou doubt?What time I am afraid, I will trust in thee.  
+Shortly I must put off this my tabernacle. -- For this corruptible must put on incorruption and this mortal must put on immortality. So when this corruptible shall have put on incorruption, and this mortal shall have put on immortality, then shall be brought to pass the saying that is written, Death is swallowed up in victory.  
 
-**Psa 93:3; Psa 93:4; Psa 89:8,9; Jer 5:22; Isa 43:2; Matt 14:29; Psa 56:3**
+**2 Cor 5:4; Psa 38:9,4; Rom 7:24; Rom 8:22,23; 1 Pet 1:6; 2 Pet 1:14; 1 Cor 15:53,54**
 
-[Saturday 15-February, 2025](https://t.me/daily_light)
+[Sunday 16-February, 2025](https://t.me/daily_light)

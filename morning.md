@@ -1,13 +1,13 @@
 **Morning**
 
-**Who can say, I have made my heart clean?**
+**Thy name is as ointment poured forth.**
  
-The Lord looked down from heaven upon the children of men, to see if there were any that did understand, and seek God. They are all gone aside, they are all together become filthy: there is none that doeth good, no, not one. -- They that are in the flesh cannot please God.
+Christ ... hath loved us, and hath given himself for us, an offering and a sacrifice to God for a sweetsmelling savour. -- Unto you therefore which believe he is precious. -- God also hath highly exalted him, and given him a name which is above every name: that at the name of Jesus every knee should bow. -- In him dwelleth all the fulness of the Godhead bodily.
  
-To will is present with me; but how to perform that which is good I find not. For the good that I would I do not: but the evil which I would not, that I do. -- We are all as an unclean thing, and all our righteousnesses are as filthy rags: and we all do fade as a leaf: and our iniquities, like the wind, have taken us away.
+If ye love me, keep my commandments. -- The love of God is shed abroad in our hearts by the Holy Ghost which is given unto us. -- The house was filled with the odour of the ointment. -- They took knowledge of them, that they had been with Jesus.
  
-The scripture hath concluded all under sin, that the promise by faith of Jesus Christ might be given to them that believe. -- God was in Christ, reconciling the world unto himself, not imputing their trespasses unto them. If we say that we have no sin, we deceive ourselves, and the truth is not in us. If we confess our sins, he is faithful and just to forgive us our sins, and to cleanse us from all unrighteousness.  
+O Lord our Lord, how excellent is thy name in all the earth! who hast set thy glory above the heavens. -- Emmanuel ... God with us. -- His name shall be called Wonderful, Counsellor, The Mighty God, The Everlasting Father, The Prince of Peace. -- The name of the Lord is a strong tower: the righteous runneth into it, and is safe.  
 
-**Prov 20:9; Psa 14:2,3; Rom 8:8; Rom 7:18,19; Isa 64:6; Gal 3:22; 2 Cor 5:19; 1 John 1:8,9**
+**Song 1:3; Eph 5:2; 1 Pet 2:7; Phl 2:9; Col 29; John 14:15; Rom 5:5; John 12:3; Acts 4:13; Psa 8:1; Matt 1:23; Isa 9:6; Prov 18:10**
 
-[Saturday 15-February, 2025](https://t.me/daily_light)
+[Sunday 16-February, 2025](https://t.me/daily_light)
