@@ -1,30 +1,28 @@
 # Morning
 
-**O Lord, I am oppressed; undertake for me.**
+**He preserveth the way of his saints.**
  
-Unto thee lift I up mine eyes, O thou that dwellest in the heavens. Behold, as the eyes of servants look unto the hand of their masters, and as the eyes of a maiden unto the hand of her mistress; so our eyes wait upon the Lord our God. -- Hear my cry, O God; attend unto my prayer. From the end of the earth will I cry unto thee, when my heart is overwhelmed: lead me to the rock that is higher than I. For thou hast been a shelter for me, and a strong tower from the enemy. I will abide in thy tabernacle for ever: I will trust in the covert of thy wings. -- Thou hast been a strength to the poor, a strength to the needy in his distress, a refuge from the storms.
+The Lord your God ... went in the way before you, to search you out a place to pitch your tents in, in fire by night, to shew you by what way ye should go, and in a cloud by day. -- As an eagle stirreth up her nest, fluttereth over her young, spreadeth abroad her wings, taketh them, beareth them on her wings: so the Lord alone did lead him. -- The steps of a good man are ordered by the Lord: and he delighteth in his way. Though he fall, he shall not be utterly cast down: for the Lord upholdeth him with his hand. -- Many are the afflictions of the righteous: but the Lord delivereth him out of them all. -- For the Lord knoweth the way of the righteous; but the way of the ungodly shall perish. -- We know that all things work together for good to them that love God, to them who are the called according to his purpose. -- With us is the Lord our God to help us, and to fight our battles.
  
-Christ ... suffered for us, leaving us an example, that ye should follow his steps: who did no sin, neither was guile found in his mouth: who, when he was reviled, reviled not again; when he suffered, he threatened not; but committed himself to him that judgeth righteously.  
+The Lord thy God in the midst of thee is mighty; he will save, he will rejoice over thee with joy.  
 
-**Psa 38:14; Psa 123:1,2; Psa 61:1‑4; Isa 25:4; 1 Pet 2:21‑23**
+**Prov 2:8; Deut 1:32,33; Deut 32:11,12; Psa 37:23,24; Psa 34:19; Psa 1:6; Rom 8:28; 2 Chr 32:8; Zeph 3:17**
 
 # Evening
 
-**Fight the good fight of faith.**
+**My God, my God, why hast thou forsaken me?**
  
-We were troubled on every side; without were fightings, within were fears. -- Fear not: for they that be with us are more than they that be with them. -- Strong in the Lord, and in the power of his might.
+He was wounded for our transgressions, he was bruised for our iniquities: the chastisement of our peace was upon him; ... the Lord hath laid on him the iniquity of us all ... For the transgression of my people was he stricken ... It pleased the Lord to bruise him; he hath put him to grief.
  
-Thou comest to me with a sword, and with a spear, and with a shield: but I come to thee in the name of the Lord of hosts, the God of the armies of Israel, whom thou hast defied. -- God is my strength and power: ... he teacheth my hands to war; so that a bow of steel is broken by mine arms. -- Our sufficiency is of God.
+Jesus our Lord ... was delivered for our offences. -- Christ hath once suffered for sins, the just for the unjust, that he might bring us to God. -- Who his own self bare our sins in his own body on the tree, that we, being dead to sins, should live unto righteousness: by whose stripes ye were healed.
  
-The angel of the Lord encampeth round about them that fear him, and delivereth them. -- Behold, the mountain was full of horses and chariots of fire round about Elisha.
- 
-The time would fail me to tell of [those] who through faith subdued kingdoms, ... out of weakness were made strong, waxed valiant in fight, turned to flight the armies of the aliens.  
+He hath made him to be sin for us, who knew no sin; that we might be made the righteousness of God in him. Christ hath redeemed us from the curse of the law, being made a curse for us.  
 
-**1 Tim 6:12; 2 Cor 7:5; 2 Kgs 6:16; Eph 6:10; 1 Sam 17:45; 2 Sam 22:33,35; 2 Cor 3:5; Psa 34:7; 2 Kgs 6:17; Heb 11:32‑34**
+**Matt 27:46; Isa 53:5,6,8,10; Rom 4:24,25; 1 Pet 3:18; 1 Pet 2:24; 2 Cor 5:21; Gal 3:13**
 
 ---
 
-[Wednesday 05-March, 2025](https://t.me/s/daily_light)
+[Thursday 06-March, 2025](https://t.me/s/daily_light)
 
 > Jonathan Bagster, the son of Samuel Bagster, created the Daily Light for his own family's daily devotion in 1875
 
