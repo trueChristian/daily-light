@@ -1,34 +1,30 @@
 # Morning
 
-**Thy Maker is thine husband; the Lord of hosts is his name.**
+**Thou hast cast all my sins behind thy back.**
  
-This is a great mystery: but I speak concerning Christ and the church.
+Who is a God like unto thee, that pardoneth iniquity, and passeth by the transgression of the remnant of his heritage? he retaineth not his anger forever, because he delighteth in mercy. He will turn again, he will have compassion upon us; he will subdue our iniquities; and thou wilt cast all their sins into the depths of the sea.
  
-Thou shalt no more be termed Forsaken ... but thou shalt be called Hephzibah, ... for the Lord delighteth in thee. And as the bridegroom rejoiceth over the bride, so shall thy God rejoice over thee. -- He hath sent me ... to comfort all that mourn; to appoint unto them that mourn in Zion, to give unto them beauty for ashes, the oil of joy for mourning, the garment of praise for the spirit of heaviness.
+For a small moment have I forsaken thee; but with great mercies will I gather thee. In a little wrath I hid my face from thee for a moment; but with everlasting kindness will I have mercy on thee, saith the Lord thy Redeemer. -- I will forgive their iniquity, and I will remember their sin no more.
  
-I will greatly rejoice in the Lord, my soul shall be joyful in my God; for he hath clothed me with the garments of salvation, as a bridegroom decketh himself with ornaments, and as a bride adorneth herself with her jewels.
- 
-I will betroth thee unto me for ever; yea, I will betroth thee unto me in righteousness, and in judgment, and in lovingkindness and in mercies.
- 
-Who shall separate us from the love of Christ?  
+Blessed is he whose transgression is forgiven, whose sin is covered. Blessed is the man unto whom the Lord imputeth not iniquity, and in whose spirit there is no guile. -- The blood of Jesus Christ his Son cleanseth us from all sin.  
 
-**Isa 54:5; Eph 5:32; Isa 62:4,5; Isa 61:1‑3; Isa 61:10; Hos 2:19; Rom 8:35**
+**Isa 38:17; Mic 7:18,19; Isa 54:7,8; Jer 31:34; Psa 32:1,2; 1 John 1:7**
 
 # Evening
 
-**My times are in thy hand.**
+**I know whom I have believed, and am persuaded that he is able.**
  
-All his saints are in thy hand. -- The word of the Lord came unto Elijah, saying, Get thee hence, and turn thee eastward, and hide thyself by the brook Cherith, that is before Jordan. And it shall be, that thou shalt drink of the brook; and I have commanded the ravens to feed thee there. And the word of the Lord can unto him, saying, Arise, get thee to Zarephath, which belongeth to Zidon, and dwell there: behold, I have commanded a widow woman there to sustain thee.
+Able to do exceeding abundantly above all that we ask or think. Able to make all grace abound toward you; that ye, always having all sufficiency in all things, may abound to every good work. Able to succour them that are tempted.
  
-Take no thought for your life, what ye shall eat, or what shall drink; nor yet for your body, what ye shall put on. Your heavenly Father knoweth that ye have need of all these things.
+Able ... to save them to the uttermost that come unto God by him, seeing he ever liveth to make intercession for them. Able to keep you from falling, and to present you faultless before the presence of his glory with exceeding joy.
  
-Trust in the Lord with all thine heart; and lean not unto thine own understanding. In all thy ways acknowledge him, and he shall direct thy paths. -- Casting all your care upon him; for he cares for you.  
+Able to keep that which I have committed unto him against that day. Who shall change our vile body, that it may be fashioned like unto his glorious body, according to the working whereby he is able even to subdue all things unto himself. Believe ye that I am able to do this? ... Yea, Lord. According to your faith be it unto you.  
 
-**Psa 31:15; Deut 33:3; 1 Kgs 17:2‑4,8,9; Matt 6:25,32; Prov 3:5,6; 1 Pet 5:7**
+**2 Tim 1:12; Eph 3:20; 2 Cor 9:8; Heb 2:18; Heb 7:25; Jude 24; 2 Tim 1:12; Phl 3:21; Matt 9:28,29**
 
 ---
 
-[Friday 07-March, 2025](https://t.me/s/daily_light)
+[Saturday 08-March, 2025](https://t.me/s/daily_light)
 
 > Jonathan Bagster, the son of Samuel Bagster, created the Daily Light for his own family's daily devotion in 1875
 
