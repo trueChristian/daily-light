@@ -1,13 +1,15 @@
 **Evening**
 
-**Jesus wept.**
+**Things that are pleasing in his sight.**
  
-A man of sorrows, and acquainted with grief. -- We have not an high priest which cannot be touched with the feeling of our infirmities. -- It became him, for whom are all things, and by whom are all things, in bringing many sons unto glory, to make the captain of their salvation perfect through sufferings. -- Though he were a Son, yet learned he obedience by the things which he suffered.
+Without faith it is impossible to please him. -- So then they that are in the flesh cannot please God. -- The Lord taketh pleasure in his people.
  
-I was not rebellious, neither turned away back. I gave my back to the smiters, and my cheeks to them that plucked off the hair: I hid not my face from shame and spitting.
+This is thankworthy, if a man for conscience toward God endure grief, suffering wrongfully. If, when ye do well, and suffer for it, ye take it patiently, this is acceptable with God. -- The ornament of a meek and quiet spirit, ... is in the sight of God of great price.
  
-Behold how he loved. -- He took not on him the nature of angels; but he took on him the seed of Abraham. In all things it behooved him to be made like unto his brethren, that he might be a merciful and faithful high priest in things pertaining to God, to make reconciliation for the sins of the people.  
+Whoso offereth praise glorifieth me: and to him that ordereth his conversation aright will I shew the salvation of God. -- I will praise the name of God with a song, and will magnify him with thanksgiving. This also shall please the Lord better than an ox or bullock that hath horns and hoofs.
+ 
+I beseech you, ... brethren, by the mercies of God, that ye present your bodies a living sacrifice, holy, acceptable unto God, which is your reasonable service.  
 
-**John 11:35; Isa 53:3; Heb 4:15; Heb 2:10; Heb 5:8; Isa 50:5,6; John 11:36; Heb 2:16,17**
+**1 John 3:22; Heb 11:6; Rom 8:8; Psa 149:4; 1 Pet 2:19,20; 1 Pet 3:4; Psa 50:23; Psa 69:30,31; Rom 12:1**
 
-[Tuesday 11-March, 2025](https://t.me/daily_light)
+[Wednesday 12-March, 2025](https://t.me/daily_light)
