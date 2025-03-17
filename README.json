@@ -1,37 +1,40 @@
 {
-  "date_key": "march-16",
-  "date_name": "Sunday 16-March, 2025",
+  "date_key": "march-17",
+  "date_name": "Monday 17-March, 2025",
   "evening": {
     "body": [
-      "Be filled with the Spirit, speaking to yourselves in psalms and hymns and spiritual songs, singing and making melody in your heart to the Lord. -- Let the word of Christ dwell in you richly in all wisdom; teaching and admonishing one another in psalms and hymns and spiritual songs, singing with grace in your hearts to the Lord.",
-      "My mouth shall speak the praise of the Lord: and let all flesh bless his holy name for ever and ever. Praise ye the Lord: for it is good to sing praises unto our God; for it is pleasant; and praise is comely. Sing unto the Lord with thanksgiving; sing praise upon the harp unto our God.",
-      "I heard a voice from heaven, as the voice of many waters, and as the voice of a great thunder; and I heard the voice of harpers harping with their harps."
+      "When the woman saw that the tree was good for food (the lust of the flesh), and that it was pleasant to the eyes (the lust of the eyes), and a tree to be desired to make one wise (the pride of life), she took of the fruit thereof, and did eat, and gave also unto her husband with her; and he did eat.",
+      "When the tempter came to [Jesus], he said, if thou be the Son of God, command that these stones be made bread (the lust of the flesh). But he answered, ... Man shall not live by bread alone, but by every word that proceedeth out of the mouth of God. The devil ... sheweth him all the kingdoms of the world, and the glory of them (the lust of the eyes, and the pride of life). Then saith Jesus unto him, Get thee hence, Satan.",
+      "In that he himself hath suffered being tempted, he is able to succour them that are tempted.",
+      "Blessed is the man that endureth temptation."
     ],
-    "header": "I will sing with the spirit, and I will sing with the understanding also.",
+    "header": "In all points tempted like as we are, yet without sin.",
     "name": "Evening",
     "references": [
-      "Eph 5:18,19",
-      "Col 3:16",
-      "Psa 145:21",
-      "Psa 147:1,7",
-      "Rev 14:2"
+      "Gen 3:6",
+      "1 John 2:16",
+      "Matt 4:3,4,8‑10",
+      "1 John 2:16",
+      "Heb 2:18",
+      "Jas 1:12"
     ]
   },
   "joomla": "https://git.vdm.dev/christian/mod_dailylight",
   "morning": {
     "body": [
-      "My days are swifter than a post: they flee away, they see no good. They are passed away as the swift ships: as the eagle that hasteth to the prey. -- Thou carriest them away as with a flood; they are as a sleep ... in the morning they are like grass which groweth up. In the morning it flourisheth, and groweth up: in the evening it is cut down, and withereth. -- Man that is born of a woman is of few days, and full of trouble. He cometh forth like a flower, and is cut down.",
-      "The world passeth away, and the lust thereof: but he that doeth the will of God abideth for ever. -- They shall perish, but thou shalt endure: yea, all of them shall wax old like a garment; as a vesture shalt thou change them, and they shall be changed: but thou art the same, and thy years shall have no end. -- Jesus Christ, the same yesterday, and today, and forever."
+      "Ye know that ye were not redeemed with corruptible things, as silver and gold, from your vain conversation received by tradition from your fathers; but with the precious blood of Christ, as of a lamb without blemish and without spot. -- Who his own self bare our sins in his own body on the tree.",
+      "He hath made us accepted in the Beloved. As lively stones, ... built up a spiritual house, a holy priesthood, to offer up spiritual sacrifices, acceptable to God by Jesus Christ. -- I beseech you therefore, brethren, by the mercies of God, that ye present your bodies a living sacrifice, holy, acceptable unto God, which is your reasonable service.",
+      "Now unto him that is able to keep you from falling, and to present you faultless before the presence of his glory with exceeding joy, to the only wise God our Saviour, be glory and majesty, dominion and power, both now and ever."
     ],
-    "header": "What is your life? It is even a vapour, that appeareth for a little time, and then vanisheth away.",
+    "header": "He shall put his hand upon the head of the burnt offering; and it shall be accepted for him to make atonement for him.",
     "name": "Morning",
     "references": [
-      "Job 9:25,26",
-      "Psa 90:5,6",
-      "Job 14:2",
-      "1 John 2:17",
-      "Psa 102:26,27",
-      "Heb 13:8"
+      "1 Pet 1:18,19",
+      "1 Pet 2:24",
+      "Eph 1:6",
+      "1 Pet 2:5",
+      "Rom 12:1",
+      "Jude 24,25"
     ]
   },
   "source": "https://github.com/trueChristian/daily-light",
