@@ -1,28 +1,28 @@
 # Morning
 
-**Be watchful, and strengthen the things which remain, that are ready to die.**
+**Lot lifted up his eyes, and beheld all the plain of Jordan, that it was well watered every where, before the Lord destroyed Sodom and Gomorrah, even as the garden of the Lord. Then Lot chose him all the plain of Jordan.**
  
-The end of all things is at hand: be ye therefore sober, and watch unto prayer. -- Be sober, be vigilant; because your adversary the devil, as a roaring lion, walketh about, seeking whom he may devour. -- Take heed to thyself, and keep thy soul diligently, lest thou forget the things which thine eyes have seen, and lest they depart from thy heart all the days of thy life. -- The just shall live by faith: but if any man draw back, my soul shall have no pleasure in him. But we are not of them who draw back unto perdition; but of them that believe to the saving of the soul.
+Just Lot ... that righteous man. Be not deceived; God is not mocked: for whatsoever a man soweth, that shall he also reap. -- Remember Lot's wife.
  
-What I say unto you I say unto all, Watch. Fear thou not; for I am with thee: be not dismayed; for I am thy God: I will strengthen thee; yea, I will help thee; yea, I will uphold thee with the right hand of my righteousness. I the Lord thy God will hold thy right hand.  
+Be ye not unequally yoked together with unbelievers: for what fellowship hath righteousness with unrighteousness? and what communion hath light with darkness? Wherefore come out from among them, and be ye separate, saith the Lord, and touch not the unclean thing. -- Be not ye ... partakers with them. For ye were sometime darkness, but now are ye light in the Lord: walk as children of light: proving what is acceptable unto the Lord. And have no fellowship with the unfruitful works of darkness, but rather reprove them.  
 
-**Rev 3:2; 1 Pet 4:7; 1 Pet 5:8; Deut 4:9; Heb 10:38,39; Mark 13:37; Isa 41:10,13**
+**Gen 13:10,11; 2 Pet 2:7,8; Gal 6:7; Luke 17:32; 2 Cor 6:14,17; Eph 5:7,8,10,11**
 
 # Evening
 
-**Is his mercy clean gone for ever?**
+**If so be the Lord will be with me, then I shall be able to drive them out, as the Lord said.**
  
-His mercy endureth for ever. -- The Lord is longsuffering, and of great mercy. -- Who is a God like unto thee, that pardoneth iniquity? ... he retaineth not his anger for ever, because he delighteth in mercy. He will turn again, he will have compassion upon us; he will subdue our iniquities; and thou wilt cast all their sin into the depths of the sea. -- Not by works of righteousness which we have done, but according to his mercy he saved us.
+He hath said, I will never leave thee, nor forsake thee. So that we may boldly say, The Lord is my helper, and I will not fear what man shall do unto me. -- I will go in the strength of the Lord GOD: I will make mention of thy righteousness, even of thine only.
  
-Blessed be God, even the Father of our Lord Jesus Christ, the Father of mercies, and the God of all comfort; who comforteth us in all our tribulation, that we may be able to comfort them which are in any trouble, by the comfort wherewith we ourselves are comforted of God.
+The work of righteousness shall be peace; and the effect of righteousness quietness and assurance for ever.
  
-A merciful and faithful high priest in things pertaining to God to make reconciliation for the sins of the people. For in that himself hath suffered being tempted, he is able to succour them that are tempted.  
+Stand ... having your loins girt about with truth, and having on the breastplate of righteousness. For we wrestle not against flesh and blood, but against principalities, against powers, against the rulers of the darkness of this world, against spiritual wickedness in high places. Wherefore take unto you the whole armour of God, that ye may be able to withstand in the evil day, and having done all, to stand. -- The Lord is with thee, ... Go in this thy might.  
 
-**Psa 77:8; Psa 136:23; Num 14:18; Mic 7:18,19; Tit 3:5; 2 Cor 1:3,4; Heb 2:17,15**
+**Josh 14:12; Heb 13:5,6; Psa 71:16; Isa 32:17; Eph 6:14,12,13; Judg 6:12,14**
 
 ---
 
-[Friday 21-March, 2025](https://t.me/s/daily_light)
+[Saturday 22-March, 2025](https://t.me/s/daily_light)
 
 > Jonathan Bagster, the son of Samuel Bagster, created the Daily Light for his own family's daily devotion in 1875
 
