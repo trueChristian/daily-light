@@ -1,28 +1,28 @@
 # Morning
 
-**Lot lifted up his eyes, and beheld all the plain of Jordan, that it was well watered every where, before the Lord destroyed Sodom and Gomorrah, even as the garden of the Lord. Then Lot chose him all the plain of Jordan.**
+**Holy, holy, holy, Lord God Almighty.**
  
-Just Lot ... that righteous man. Be not deceived; God is not mocked: for whatsoever a man soweth, that shall he also reap. -- Remember Lot's wife.
+Thou art holy, O thou that inhabitest the praises of Israel. -- Draw not nigh hither; put off thy shoes from off thy feet, for the place whereon thou standest is holy ground ... I am the God of thy father, the God of Abraham, the God ot Isaac, and the God of Jacob. And Moses hid his face; for he was afraid to look upon God. -- To whom then will ye liken me, or shall I be equal? saith the Holy One. -- I am the Lord thy God, the Holy One of Israel, thy Saviour. I, even I, am the Lord; and beside me there is no saviour.
  
-Be ye not unequally yoked together with unbelievers: for what fellowship hath righteousness with unrighteousness? and what communion hath light with darkness? Wherefore come out from among them, and be ye separate, saith the Lord, and touch not the unclean thing. -- Be not ye ... partakers with them. For ye were sometime darkness, but now are ye light in the Lord: walk as children of light: proving what is acceptable unto the Lord. And have no fellowship with the unfruitful works of darkness, but rather reprove them.  
+As he which hath called you is holy, so be ye holy in all manner of conversation; because it is written, Be ye holy; for I am holy. -- Know ye not that your body is the temple of the Holy Ghost which is in you, which ye have of God, and ye are not your own. -- Ye are the temple of the living God; as God hath said, I will dwell in them, and walk in them; and I will be their God, and they shall be my people. -- Can two walk together, except they be agreed?  
 
-**Gen 13:10,11; 2 Pet 2:7,8; Gal 6:7; Luke 17:32; 2 Cor 6:14,17; Eph 5:7,8,10,11**
+**Rev 4:8; Psa 22:3; Exo 3:5,6; Isa 40:25; Isa 43:3,11; 1 Pet 1:15,16; 1 Cor 6:19; 2 Cor 6:16; Amos 3:3**
 
 # Evening
 
-**If so be the Lord will be with me, then I shall be able to drive them out, as the Lord said.**
+**They constrained him, saying, Abide with us.**
  
-He hath said, I will never leave thee, nor forsake thee. So that we may boldly say, The Lord is my helper, and I will not fear what man shall do unto me. -- I will go in the strength of the Lord GOD: I will make mention of thy righteousness, even of thine only.
+Behold, I stand at the door, and knock: if any man hear my voice, and open the door, I will come in to him, and will sup with him, and he with me. -- Tell me, O thou whom my soul loveth, where thou feedest, where thou makest thy flock to rest at noon: for why should I be as one that turneth aside by the flocks of thy companions? -- I found him whom my soul loveth: I held him, and would not let him go.
  
-The work of righteousness shall be peace; and the effect of righteousness quietness and assurance for ever.
+Let my beloved come into his garden. and eat his pleasant fruits. -- I am come into my garden. -- I said not unto the seed of Jacob, Seek ye me in vain.
  
-Stand ... having your loins girt about with truth, and having on the breastplate of righteousness. For we wrestle not against flesh and blood, but against principalities, against powers, against the rulers of the darkness of this world, against spiritual wickedness in high places. Wherefore take unto you the whole armour of God, that ye may be able to withstand in the evil day, and having done all, to stand. -- The Lord is with thee, ... Go in this thy might.  
+Lo, I am with you alway, even unto the end of the world. -- I will never leave thee, nor forsake thee. -- Where two or three are gathered together in my name, there am I in the midst of them. -- The world seeth me no more; but, ye see me.  
 
-**Josh 14:12; Heb 13:5,6; Psa 71:16; Isa 32:17; Eph 6:14,12,13; Judg 6:12,14**
+**Luke 24:29; Rev 3:20; Song 1:7; Song 1:4; Song 4:16; Song 5:1; Isa 45:19; Matt 28:20; Heb 13:5; Matt 18:20; John 14:19**
 
 ---
 
-[Saturday 22-March, 2025](https://t.me/s/daily_light)
+[Sunday 23-March, 2025](https://t.me/s/daily_light)
 
 > Jonathan Bagster, the son of Samuel Bagster, created the Daily Light for his own family's daily devotion in 1875
 
