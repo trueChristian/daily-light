@@ -1,32 +1,34 @@
 # Morning
 
-**Abraham believed in the Lord; and he counted it to him for righteousness.**
+**I will never leave thee, nor forsake thee.**
  
-He staggered not at the promise of God through unbelief; but was strong in faith, giving glory to God; and being fully persuaded that, what he had promised, he was able also to perform. And therefore it was imputed to him for righteousness. Now it was not written for his sake alone, that it was imputed to him: but for us also, to whom it shall be imputed, if we believe on him that raised up Jesus our Lord from the dead.
+So that we may boldly say, The Lord is my helper, and I will not fear what man shall do unto me.
  
-The promise, that he should be the heir of the world, was not to Abraham, or to his seed, through the law, but through the righteousness of faith.
+Behold, I am with thee, and will keep thee in all places whither thou goest, and will bring thee again into this land; for I will not leave thee, until I have done that which I have spoken to thee of. -- Be strong and of a good courage, fear not, nor be afraid of them: for the Lord thy God, he it is that doth go with thee; he will not fail thee, nor forsake thee.
  
-The just shall live by faith. -- Let us hold fast the profession of our faith without wavering; (for he is faithful that promised). -- Our God is in the heavens; he hath done whatsoever he hath pleased. -- With God nothing shall be impossible. And blessed is she that believed: for there shall be a performance of those things which were told her from the Lord.  
+Demas hath forsaken me, having loved this present world. At my first answer no man stood with me, but all men forsook me: I pray God that it may not be laid to their charge. Notwithstanding the Lord stood with me, and strengthened me. -- When my father and my mother forsake me, then the Lord will take me up.
+ 
+Look, I am with you always, even unto the end of the world. -- I am he that liveth, and was dead; and, behold, I am alive for evermore. -- I will not leave you comfortless; I will come to you. -- My peace I give unto you.  
 
-**Gen 15:6; Rom 4:20‑24; Rom 4:13; Rom 1:17; Heb 10:23; Psa 115:3; Luke 1:37,45**
+**Heb 13:5; Heb 13:6; Gen 28:15; Deut 31:6; 2 Tim 4:10,16,17; Psa 27:10; Matt 28:20; Rev 1:18; John 14:18; John 14:27**
 
 # Evening
 
-**God hath called you unto his kingdom and glory.**
+**Master, we have toiled all the night, and have taken nothing; nevertheless at thy word I will let down the net.**
  
-My kingdom is not of this world: if my kingdom were of this world, then would my servants fight, ... but now is my kingdom not from hence. -- Expecting till his enemies be made his footstool.
+All power is give unto me in heaven and in earth. Go ye therefore and teach all nations, baptizing them in the name of the Father, and of the Son, and of the Holy Ghost: ... and, lo, I am with you alway, even unto the end of the world.
  
-The kingdoms of this world are become the kingdoms of our Lord, and of his Christ; and he shall reign for ever and ever. -- Thou hast made us unto our God kings and priests: and we shall reign on the earth. -- I saw thrones, and they sat upon them, and judgment was given unto them; ... and they lived and reigned with Christ a thousand years. -- Then shall the righteous shine forth as the sun in the kingdom of their Father. -- Fear not, little flock; for it is your Father's good pleasure to give you the kingdom.
+The kingdom of heaven is like unto a net, that was cast into the sea.
  
-I appoint unto you a kingdom, as my Father hath appointed unto me; that ye may eat and drink at my table in my kingdom, and sit on thrones judging the twelve tribes of Israel.
+Though I preach the gospel, I have nothing to glory of: necessity is laid upon me; yea, woe is unto me, if I preach not gospel! I am made all things to all men, that I might by all means save some.
  
-Thy kingdom come.  
+Let us not be weary in well doing: for in due season we shall reap, if we faint not. -- My word ... shall not return unto me void, but it shall accomplish that which I please. -- So then neither is he that planteth any thing, neither he that watereth; but God that giveth the increase.  
 
-**1 Thes 2:12; John 18:36; Heb 10:13; Rev 11:15; Rev 5:10; Rev 20:4; Matt 13:43; Luke 12:32; Luke 22:29,30; Matt 6:10**
+**Luke 5:5; Matt 28:18‑20; Matt 13:47; 1 Cor 9:16,22; Gal 6:9; Isa 55:11; 1 Cor 3:7**
 
 ---
 
-[Monday 24-March, 2025](https://t.me/s/daily_light)
+[Tuesday 25-March, 2025](https://t.me/s/daily_light)
 
 > Jonathan Bagster, the son of Samuel Bagster, created the Daily Light for his own family's daily devotion in 1875
 
