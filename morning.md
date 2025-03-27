@@ -1,13 +1,15 @@
 **Morning**
 
-**The kingdom of heaven is as a man travelling into a far country, who called his own servants, and delivered unto them his goods ... to every man according to his several ability.**
+**To him that soweth righteousness shall be a sure reward.**
  
-Know ye not, that to whom ye yield yourselves servants to obey, his servants ye are to whom ye obey?
+After a long time the lord of those servants cometh, and reckoneth with them. And so he that had received five talents came and brought other five talents, saying, Lord, thou deliveredst unto me five talents: behold, I have gained beside them five talents more. His lord said unto him, Well done, thou good and faithful servant: thou hast been faithful over a few things, I will make thee ruler over many things; enter thou into the joy of thy lord.
  
-All these worketh that one and the selfsame Spirit, dividing to every man severally as he will. The manifestation of the Spirit is given to every man to profit withal. -- As every man hath received the gift, even so minister the same one to another, as good stewards of the manifold grace of God. -- It is required in stewards, that a man be found faithful. --Unto whomsoever much is given, of him shall be much required: and to whom men have commited much, of him they will ask the more.
+We must all appear before the judgment seat of Christ; that every one may receive the things done in his body, according to that he hath done, whether it be good or bad.
  
-Who is sufficient for these things? -- I can do all things through Christ which strengtheneth me.  
+I have fought a good fight, I have finished my course, I have kept the faith: henceforth there is laid up for me a crown of righteousness, which the Lord, the righteous judge, shall give me at that day: and not to me only, but unto all them also that love his appearing.
+ 
+Behold, I come quickly: hold that fast which thou hast, that no man take thy crown.  
 
-**Matt 23:14,13; Rom 6:16; 1 Cor 12:11,7; 1 Pet 4:10; 1 Cor 4:2; Luke 12:48; 2 Cor 2:16; Phl 4:13**
+**Prov 11:18; Matt 25:19‑21; 2 Cor 5:10; 2 Tim 4:7,8; Rev 3:11**
 
-[Wednesday 26-March, 2025](https://t.me/daily_light)
+[Thursday 27-March, 2025](https://t.me/daily_light)
