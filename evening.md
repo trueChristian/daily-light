@@ -1,13 +1,13 @@
 **Evening**
 
-**God is faithful.**
+**Our friend sleepeth.**
  
-God is not a man that he should lie; neither the Son of man that he should repent: hath he said, and shall he not do it? or hath he spoken, and shall he not make it good? -- The Lord sware and will not repent.
+I would not have you to be ignorant, brethren, concerning them which are asleep, that ye sorrow not, even as others which have no hope. For if we believe that Jesus died and rose again, even so them also which sleep in Jesus will God bring with him.
  
-God, willing more abundantly to shew unto the heirs of promise the immutability of his counsel, confirmed it by an oath: that by two immutable things, in which it was impossible for God to lie, we might have a strong consolation, who have fled for refuge to lay hold upon the hope set before us. -- Wherefore let them that suffer according to the will of God commit the keeping of their souls to him in well doing, as unto a faithful Creator.
+If the dead rise not, then is not Christ raised: and if Christ be not raised, your faith is vain; ye are yet in your sins. Then they also which are fallen asleep in Christ are perished. But now is Christ risen from the dead, and become the firstfruits of them that slept.
  
-I know whom I have believed, and am persuaded that he is able to keep that which I have committed unto him against that day -- Faithful is he that calleth you, who also will do it. -- All the promises of God in him are yea, and in him Amen, unto the glory of God by us.  
+It came to pass, when all the people were clean passed over Jordan, that the Lord spake unto Joshua, saying, Take you hence out of the midst of Jordan, out of the place where the priests' feet stood firm, twelve stones ... and these stones shall be for a memorial unto the children of Israel for ever. -- This Jesus hath God raised up, whereof we all are witnesses. -- Witnesses chosen before of God, ... who did eat and drink with him after he rose from the dead.  
 
-**1 Cor 10:13; Num 23:19; Heb 7:21; Heb 6:17,18; 1 Pet 4:19; 2 Tim 1:12; 1 Thes 5:24; 2 Cor 1:20**
+**John 11:11; 1 Thes 4:13,14; 1 Cor 15:16‑18,20; Josh 4:1,3,7; Acts 2:32; Acts 10:41**
 
-[Thursday 27-March, 2025](https://t.me/daily_light)
+[Friday 28-March, 2025](https://t.me/daily_light)
