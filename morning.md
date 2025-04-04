@@ -1,11 +1,13 @@
 **Morning**
 
-**Beloved, be not ignorant of this one thing, that one day is with the Lord as a thousand years, and a thousand years as one day. The Lord is not slack concerning his promise, as some men count slackness.**
+**Fear not; I am the first and the last.**
  
-My thoughts are not your thoughts, neither are your ways my ways, saith the Lord. For as the heavens are higher than the earth, so are my ways higher than your ways, and my thoughts than your thoughts. For as the rain cometh down, and the snow from heaven, and returneth not thither, but watereth the earth, ... so shall my word be that goeth forth out of my mouth: it shall not return unto me void, but it shall acomplish that which I please, and it shall prosper in the thing whereto I sent it.
+Ye are not come unto the mount that might be touched, and that burned with fire, nor unto blackness, and darkness, and tempest, but ye are come unto mount Sion, ... to God the Judge of all, and to the spirits of just men made perfect, and to Jesus the mediator of the new covenant. -- Jesus the author and finisher of our faith. -- We have not a high priest which cannot be touched with the feeling of our infirmities; but was in all points tempted like as we are, yet without sin. Let us therefore come boldly unto the throne of grace, that we may obtain mercy, and find grace to help in time of need.
  
-God hath concluded them all in unbelief, that he might have mercy upon all. O the depth of the riches both of the wisdom and knowledge of God! how unsearchable are his judgments, and his ways past finding out!  
+Thus saith the Lord the King of Israel, aud his redeemer the Lord of hosts; I am the first, and I am the last; and beside me there is no God. -- The mighty God, The everlasting Father, The Prince of Peace.
+ 
+Art thou not from everlasting, O Lord my God, mine Holy One? -- Who is God, save the Lord? and who is a rock, save our God?  
 
-**2 Pet 3:8,9; Isa 55:8‑11; Rom 11:32,33**
+**Rev 1:17; Heb 12:18,22‑24; Heb 12:2; Heb 4:15,16; Isa 44:6; Isa 9:6; Hab 1:12; 2 Sam 22:32**
 
-[Thursday 03-April, 2025](https://t.me/daily_light)
+[Friday 04-April, 2025](https://t.me/daily_light)
