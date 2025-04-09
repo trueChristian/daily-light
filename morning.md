@@ -1,15 +1,13 @@
 **Morning**
 
-**In everything ye are enriched by him.**
+**Fear not; for I have redeemed thee.**
  
-When we were yet without strength, in due time Christ died for the ungodly. -- He that spared not his own Son, but delivered him up for us all, how shall be not with him also freely give us all things?
+Fear not; for thou shalt not be ashamed: neither be thou confounded; for thou shalt not be put to shame: for thou shalt forget the shame of thy youth, and shalt not remember the reproach of thy widowhood any more. -- For thy Maker is thine husband; the Lord of hosts is his name; and thy Redeemer the Holy One of Israel. -- I have blotted out, as a thick cloud, thy transgressions, and, as a cloud, thy sins: return unto me; for I have redeemed thee. -- With the precious blood of Christ, as of a lamb without blemish and without spot.
  
-In him dwelleth all the fulness of the Godhead bodily. And ye are complete in him, which is the head of all principality and power.
+Their Redeemer is strong; the Lord of hosts is his name: he shall throughly plead their cause. -- My Father, which gave them me, is greater than all; and no man is able to pluck them out of my Father's hand.
  
-Abide in me, and I in you. As the branch cannot bear fruit of itself, except it abide in the vine; no more can ye, except ye abide in me. I am the vine ye are the branches: he that abideth in me and I in him, the same bringeth forth much fruit: for without me ye can do nothing. -- To will is present with me; but how to perform that which is good I find not. -- Unto every one of us is given grace according to the measure of the gift of Christ.
- 
-If ye abide in me, and my words abide in you, ye shall ask what ye will, and it shall be done unto you. -- Let the word of Christ dwell in you richly in all wisdom.  
+Grace be to you and peace from God the Father, and from our Lord Jesus Christ, who gave himself for our sins, that he might deliver us from this present evil world, according to the will of God and our Father: to whom be glory for ever and ever. Amen.  
 
-**1 Cor 1:5; Rom 5:6; Rom 8:32; Col 2:9,10; John 15:4,5; Rom 7:18; Eph 4:7; John 15:7; Col 3:16**
+**Isa 43:1; Isa 54:4,5; Isa 44:22; 1 Pet 1:19; Jer 50:34; John 10:29; Gal 1:3‑5**
 
-[Tuesday 08-April, 2025](https://t.me/daily_light)
+[Wednesday 09-April, 2025](https://t.me/daily_light)
