@@ -1,18 +1,19 @@
 name: "Load Today's Light Telegram ID!"
 
 on:
-  # run once per/day
+  # Run twice per day at 01:35 and 14:35 UTC
   schedule:
     - cron: '35 14 * * *'
     - cron: '35 1 * * *'
-  # so we can manually update
+  # Allow manual trigger
   workflow_dispatch:
 
 jobs:
-  build:
-    runs-on: [ubuntu-20.04]
+  load-light-telegram-id:
+    runs-on: ubuntu-22.04
+
     steps:
-      - name: Setup gitHub User Details
+      - name: Setup GitHub User Details
         env:
           GIT_USER: ${{ secrets.GIT_USER }}
           GIT_EMAIL: ${{ secrets.GIT_EMAIL }}
@@ -21,10 +22,18 @@ jobs:
           SSH_KEY: ${{ secrets.SSH_KEY }}
           SSH_PUB: ${{ secrets.SSH_PUB }}
         run: |
-          /bin/bash <(/bin/curl -s https://raw.githubusercontent.com/vdm-io/github-user/master/src/setup.sh) --gpg-key "$GPG_KEY" --gpg-user "$GPG_USER" --ssh-key "$SSH_KEY" --ssh-pub "$SSH_PUB" --git-user "$GIT_USER" --git-email "$GIT_EMAIL"
-      - name: Clone Master Repository
+          /bin/bash <(/bin/curl -s https://raw.githubusercontent.com/vdm-io/github-user/master/src/setup.sh) \
+            --gpg-key "$GPG_KEY" \
+            --gpg-user "$GPG_USER" \
+            --ssh-key "$SSH_KEY" \
+            --ssh-pub "$SSH_PUB" \
+            --git-user "$GIT_USER" \
+            --git-email "$GIT_EMAIL"
+
+      - name: Clone Daily Light Repository
         run: |
           /bin/git clone git@github.com:trueChristian/daily-light.git daily_light
+
       - name: Build the Daily Scripture Telegram ID
         env:
           BOT_TOKEN: ${{ secrets.DAILY_LIGHT_BOT_TOKEN }}
@@ -32,3 +41,4 @@ jobs:
         run: |
           cd daily_light
           /bin/bash ./src/telegram.sh
+
