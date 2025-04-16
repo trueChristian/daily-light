@@ -1,15 +1,11 @@
 **Morning**
 
-**Their Redeemer is strong.**
+**I said in my haste, I am cut off from before thine eves: nevertheless thou heardest the voice of my supplications when I cried unto thee.**
  
-I know your manifold transgressions and your mighty sins. -- I have laid help upon one that is mighty. -- The Lord ... thy Saviour and thy Redeemer, the mighty one of Jacob. -- Mighty to save. -- Able to keep you from falling. -- Where sin abounded, grace did much more abound.
+I sink in deep mire, where there is no standing: I am come into deep waters, where the floods overflow me. -- Waters flowed over mine head; then I said, I am cut off. I called upon thy name, O Lord, out of the low dungeon. Thou hast heard my voice: hide not thine ear at my breathing, at my cry. Thou drewest near in the day that I called upon thee: thou saidst, Fear not.
  
-He that believeth on him is not condemned: but he that believeth not is condemned already, because he hath not believed in the name of the only begotten Son of God. -- He is able ... to save them to the uttermost that come unto God by him.
- 
-Is my hand shortened at all, that it cannot redeem?
- 
-Who shall separate us from the love of Christ? ... I am persuaded, that neither death, nor life, nor angels, nor principalities, nor powers, nor things present, nor things to come, nor height, nor depth, nor any other creature, shall be able to separate us from the love of God, which is in Christ Jesus our Lord.  
+Will the Lord cast off for ever? and will he be favourable no more? Is his mercy clean gone for ever? doth his promise fail for evermore? Hath God forgotten to be gracious? hath he in anger shut up his tender mercies? And I said, This is my infirmity: but I will remember the years of the right hand of the most High. I will remember the works of the Lord: surely I will remember thy wonders of old. -- I had fainted, unless I had believed to see the goodness of the Lord in the land of the living.  
 
-**Jer 50:34; Amos 5:12; Psa 89:19; Isa 49:26; Isa 63:1; Jude 24; Rom 5:20; John 3:18; Heb 7:25; Isa 50:2; Rom 8:35,38,39**
+**Psa 31:32; Psa 69:2; Lam 3:54‑57; Psa 77:7‑11; Psa 27:13**
 
-[Tuesday 15-April, 2025](https://t.me/daily_light)
+[Wednesday 16-April, 2025](https://t.me/daily_light)

@@ -1,34 +1,28 @@
 # Morning
 
-**Their Redeemer is strong.**
+**I said in my haste, I am cut off from before thine eves: nevertheless thou heardest the voice of my supplications when I cried unto thee.**
  
-I know your manifold transgressions and your mighty sins. -- I have laid help upon one that is mighty. -- The Lord ... thy Saviour and thy Redeemer, the mighty one of Jacob. -- Mighty to save. -- Able to keep you from falling. -- Where sin abounded, grace did much more abound.
+I sink in deep mire, where there is no standing: I am come into deep waters, where the floods overflow me. -- Waters flowed over mine head; then I said, I am cut off. I called upon thy name, O Lord, out of the low dungeon. Thou hast heard my voice: hide not thine ear at my breathing, at my cry. Thou drewest near in the day that I called upon thee: thou saidst, Fear not.
  
-He that believeth on him is not condemned: but he that believeth not is condemned already, because he hath not believed in the name of the only begotten Son of God. -- He is able ... to save them to the uttermost that come unto God by him.
- 
-Is my hand shortened at all, that it cannot redeem?
- 
-Who shall separate us from the love of Christ? ... I am persuaded, that neither death, nor life, nor angels, nor principalities, nor powers, nor things present, nor things to come, nor height, nor depth, nor any other creature, shall be able to separate us from the love of God, which is in Christ Jesus our Lord.  
+Will the Lord cast off for ever? and will he be favourable no more? Is his mercy clean gone for ever? doth his promise fail for evermore? Hath God forgotten to be gracious? hath he in anger shut up his tender mercies? And I said, This is my infirmity: but I will remember the years of the right hand of the most High. I will remember the works of the Lord: surely I will remember thy wonders of old. -- I had fainted, unless I had believed to see the goodness of the Lord in the land of the living.  
 
-**Jer 50:34; Amos 5:12; Psa 89:19; Isa 49:26; Isa 63:1; Jude 24; Rom 5:20; John 3:18; Heb 7:25; Isa 50:2; Rom 8:35,38,39**
+**Psa 31:32; Psa 69:2; Lam 3:54‑57; Psa 77:7‑11; Psa 27:13**
 
 # Evening
 
-**Seekest thou great things for thyself? seek them not.**
+**He shall call upon me, and I will answer him: I will be with him in trouble, I will deliver him.**
  
-Take my yoke upon you, and learn of me; for I am meek and lowly in heart: and ye shall find rest unto your souls. -- Let this mind be in you, which was also in Christ Jesus; who, being in the form of God, thought it not robbery to be equal with God: but made himself of no reputation, and took upon him the form of a servant, and was made in the likeness of men: and being found in fashion as a man, he humbled himself, and became obedient unto death, even the death of the cross.
+And Jabez called on the God of Israel, saying, Oh that thou wouldest bless me indeed, and enlarge my coast, and that thine hand might be with me, and that thou wouldest keep me from evil, that it may not grieve me! And God granted him that which he requested. -- Ask what I shall give thee. And Solomon said unto God, ... Give me now wisdom and knowledge, that I may go out and come in before this people. -- And God gave Solomon wisdom and understanding exceeding much, and largeness of heart, even as the sand that is on the sea shore.
  
-He that taketh not his cross, and followeth after me, is not worthy of me. -- Christ ... suffered for us, leaving us an example, that ye should follow his steps.
+Asa cried unto the Lord his God, and said, Lord, it is nothing with thee to help, whether with many, or with them that have no power ... O Lord, thou art our God; let not man prevail against thee. So the Lord smote the Ethiopians before Asa.
  
-Godliness with contentment is great gain. For we brought nothing into this world, and it is certain we can carry nothing out. And having food and raiment let us be therewith content.
- 
-I have learned, in whatsoever state I am, therewith to be content.  
+O thou that hearest prayer, unto thee shall all flesh come.  
 
-**Jer 45:5; Matt 11:29; Phl 2:5‑8; Matt 10:38; 1 Pet 2:21; 1 Tim 6:6‑8; Phl 4:11**
+**Psa 91:15; 1 Chr 4:10; 2 Chr 1:7,8,10; 1 Kgs 4:29; 2 Chr 14:11,12; Psa 65:2**
 
 ---
 
-[Tuesday 15-April, 2025](https://t.me/s/daily_light)
+[Wednesday 16-April, 2025](https://t.me/s/daily_light)
 
 > Jonathan Bagster, the son of Samuel Bagster, created the Daily Light for his own family's daily devotion in 1875
 
