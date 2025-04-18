@@ -1,41 +1,44 @@
 {
-  "date_key": "april-17",
-  "date_name": "Thursday 17-April, 2025",
+  "date_key": "april-18",
+  "date_name": "Friday 18-April, 2025",
   "evening": {
     "body": [
-      "I have loved thee with an everlasting love: therefore with lovingkindness have I drawn thee. -- I drew them with cords of a man, with bands of love. -- I, if I be lifted up from the eaith, will draw all men unto me. -- Behold the Lamb of God. -- As Moses lifted up the serpent in the wilderness, even so must the Son of man be lifted up: that whosoever believeth in him should not perish, but have eternal life.",
-      "Whom have I in heaven but thee? and there is none upon earth that I desire beside thee. -- We love him, because he first loved us.",
-      "My beloved spake, and said unto me, Rise up, my love, my fair one, and come away. For, lo, the winter is past, the rain is over and gone; the flowers appear on the earth; the time of the singing of birds is come, and the voice of the turtle is heard in our land; the fig tree putteth forth her green figs, and the vines with the tender grape give a good smell. Arise, my love, my fair one, and come away."
+      "I will remember my covenant with thee in the days of thy youth, and I will establish unto thee an everlasting covenant.",
+      "By one offering he hath perfected for ever them that are sanctified. -- He is able to save them to the uttermost that come unto God by him, seeing he ever liveth to make intercession for them. -- I know whom I have believed, and am persuaded that he is able to keep that which I have committed unto him against that day.",
+      "The gifts and calling of God are without repentance. -- Who shall separate us from the love of Christ? -- The Lamb which is in the midst of the throne shall feed them, and shall lead them unto living fountains of waters: and God shall wipe away all tears from their eyes. -- So shall we ever be with the Lord. Wherefore cormfort one another with these words.",
+      "This is not your rest. -- Here have we no continuing city, but we seek one to come."
     ],
-    "header": "Draw me, we will run after thee.",
+    "header": "Everlasting consolation.",
     "name": "Evening",
     "references": [
-      "Jer 31:3",
-      "Hos 11:4",
-      "John 12:32",
-      "John 1:36",
-      "John 3:14,15",
-      "Psa 73:25",
-      "1 John 4:19",
-      "Song 2:10‑13"
+      "Ezek 16:60",
+      "Heb 10:14",
+      "Heb 7:25",
+      "2 Tim 1:12",
+      "Rom 11:29",
+      "Rom 8:35",
+      "Rev 7:17",
+      "1 Thes 4:17,18",
+      "Mic 2:10",
+      "Heb 13:14"
     ]
   },
   "joomla": "https://git.vdm.dev/christian/mod_dailylight",
   "morning": {
     "body": [
-      "Let the word of Christ dwell in you richly in all wisdom; teaching and admonishing one another in psalms and hymns and spiritual songs, singing with grace in your hearts to the Lord. And whatsoever ye do in word or deed, do all in the name of the Lord Jesus, giving thanks to God and the Father by him. -- Glorify God in your body, and in your spirit, which are God's.",
-      "Ye are a royal priesthood ... that ye should shew forth the praises of him who hath called you out of darkness into his marvelous light. -- Ye ... as lively stones, are built up a spiritual house, a holy priesthood, to offer up spiritual sacrifices, acceptable to God by Jesus Christ. -- By him ... let us offer the sacrifice of praise to God continually, that is, the fruit of our lips, giving thanks to his name.",
-      "My soul shall make her boast in the Lord: the humble shall hear thereof, and be glad. O magnify the Lord with me, and let us exalt his name together."
+      "[Moses] stood between the Lord and you at that time, to shew you the word of the Lord: for ye were afraid. -- There is one God, and one mediator between God and men, the man Christ Jesus.",
+      "Now the man Moses was very meek, above all the men which were upon the face of the earth. -- Take my yoke upon you, and learn of me; for I am meek and lowly in heart: and ye shall find rest unto your souls. -- Let this mind be in you, which was also in Christ Jesus: who, being in the form of God, thought it not robbery to be equal with God: but made himself of no reputation, and took upon him the form of a servant, and was made in the likeness of men.",
+      "Moses verily was faithful in all his house, as a servant, for a testimony of those things which were to be spoken after; but Christ as a son over his own house; whose house are we, if we hold fast the confidence and the rejoicing of the hope firm unto the end."
     ],
-    "header": "Whoso offereth praise glorifieth me.",
+    "header": "I will raise them up a Prophet from among their brethren, like unto thee.",
     "name": "Morning",
     "references": [
-      "Col 3:16,17",
-      "1 Cor 6:20",
-      "1 Pet 2:9",
-      "1 Pet 2:5",
-      "Heb 13:15",
-      "Psa 34:2,3"
+      "Deut 5:5",
+      "1 Tim 2:5",
+      "Num 12:3",
+      "Matt 11:29",
+      "Phl 2:57",
+      "Heb 3:5,6"
     ]
   },
   "source": "https://github.com/trueChristian/daily-light",
