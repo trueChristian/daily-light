@@ -1,17 +1,13 @@
 **Evening**
 
-**Enoch walked with God.**
+**Great is thy mercy toward me: and thou hast delivered my soul from the lowest hell.**
  
-Can two walk together, except they be agreed?
+Fear him which is able to destroy both soul and body in hell.
  
-Having made peace through the blood of his cross ... You, that were sometime alienated and enemies in your mind by wicked works, yet now hath he reconciled in the body of his flesh through death, to present you holy and unblameable and unreproveable in his sight. -- In Christ Jesus ye who sometimes were far off are made nigh by the blood of Christ.
+Fear not: for I have redeemed thee, I have called thee by thy name; thou art mine. I, even I, am the Lord; and beside me there is no saviour. I, even I, am he that blotteth out thy transgressions for mine own sake, and will not remember thy sins, -- They that trust in their wealth, and boast themselves in the multitude of their riches; none of them can by any means redeem his brother, nor give to God a ransom for him: for the redemption of their soul is precious. -- I have found a ransom. -- God, who is rich in mercy, for his great love wherewith he loved us, even when we were dead in sins, hath quickened us together with Christ.
  
-If, when we were enemies, we were reconciled to God by the death of his Son, much more, being reconciled, we shall be saved by his life. And not only so, but we also joy in God through our Lord Jesus Christ.
- 
-Our fellowship is with the Father, and with his Son Jesus Christ.
- 
-The grace of the Lord Jesus Christ, and the love of God, and the communion of the Holy Ghost, be with you all. Amen.  
+Neither is there salvation in any other: for there is none other name under heaven given among men, whereby we must be saved.  
 
-**Gen 5:22; Amos 3:3; Col 1:20‑22; Eph 2:13; Rom 5:10,11; 1 John 1:3; 2 Cor 13:14**
+**Psa 86:13; Matt 10:28; Isa 43:1,11,25; Psa 49:6‑8; Job 33:24; Eph 2:4,5; Acts 4:12**
 
-[Monday 21-April, 2025](https://t.me/daily_light)
+[Tuesday 22-April, 2025](https://t.me/daily_light)

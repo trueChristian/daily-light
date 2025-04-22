@@ -1,36 +1,30 @@
 # Morning
 
-**Stand fast in the Lord.**
+**If his offering be a burnt sacrifice of the herd, let him offer a male without blemish: he shall offer it of his own voluntary will. And he shall put his hand upon the head of the burnt offering; and it shall be accepted for him to make atonement for him.**
  
-My foot hath held his steps, his way have I kept, and not declined.
+God will provide himself a lamb for a burnt offering. -- Behold the Lamb of God, which taketh away the sin of the world. -- We are sanctified through the offering of the body of Jesus Christ once for all. -- A ransom for many.
  
-The Lord loveth judgment, and forsaketh not his saints; they are preserved for ever. -- The Lord shall preserve thee from all evil: he shall preserve thy soul.
+No man taketh it from me, but I lay it down of myself. I have power to lay it down, and I have power to take it again. -- I will love them freely. -- The Son of God ... loved me and gave himself for me.
  
-The just shall live by faith: but if any man draw back, my soul shall have no pleasure in him. But we are not of them who draw back into perdition; but of them that believe to the saving of the soul. -- If they had been of us, they would no doubt have continued with us: but they went out, that they might be made manifest that they were not all of us.
- 
-If ye continue in my word then are ye my disciples indeed. -- He that shall endure unto the end, the same shall be saved. -- Watch ye, stand fast in the faith, quit you like men, be strong. -- Hold that fast which thou hast, that no man take thy crown. -- He that overcometh, the same shall be clothed in white raiment; and I will not blot out his name out of the book of life.  
+He hath made him to be sin for us, who knew no sin; that we might be made the righteousness of God in him. -- He hath made us accepted in the beloved.  
 
-**Phl 4:1; Job 23:11; Psa 37:28; Psa 121:7; Heb 10:38; John 2:19; John 8:31; Matt 24:13; 1 Cor 16:13; Rev 3:11; Rev 3:5**
+**Lev 1:3,4; Gen 22:8; John 1:29; Heb 10:10; Matt 20:28; John 10:18; Hos 14:4; Gal 2:20; 2 Cor 5:21; Eph 1:6**
 
 # Evening
 
-**Enoch walked with God.**
+**Great is thy mercy toward me: and thou hast delivered my soul from the lowest hell.**
  
-Can two walk together, except they be agreed?
+Fear him which is able to destroy both soul and body in hell.
  
-Having made peace through the blood of his cross ... You, that were sometime alienated and enemies in your mind by wicked works, yet now hath he reconciled in the body of his flesh through death, to present you holy and unblameable and unreproveable in his sight. -- In Christ Jesus ye who sometimes were far off are made nigh by the blood of Christ.
+Fear not: for I have redeemed thee, I have called thee by thy name; thou art mine. I, even I, am the Lord; and beside me there is no saviour. I, even I, am he that blotteth out thy transgressions for mine own sake, and will not remember thy sins, -- They that trust in their wealth, and boast themselves in the multitude of their riches; none of them can by any means redeem his brother, nor give to God a ransom for him: for the redemption of their soul is precious. -- I have found a ransom. -- God, who is rich in mercy, for his great love wherewith he loved us, even when we were dead in sins, hath quickened us together with Christ.
  
-If, when we were enemies, we were reconciled to God by the death of his Son, much more, being reconciled, we shall be saved by his life. And not only so, but we also joy in God through our Lord Jesus Christ.
- 
-Our fellowship is with the Father, and with his Son Jesus Christ.
- 
-The grace of the Lord Jesus Christ, and the love of God, and the communion of the Holy Ghost, be with you all. Amen.  
+Neither is there salvation in any other: for there is none other name under heaven given among men, whereby we must be saved.  
 
-**Gen 5:22; Amos 3:3; Col 1:20‑22; Eph 2:13; Rom 5:10,11; 1 John 1:3; 2 Cor 13:14**
+**Psa 86:13; Matt 10:28; Isa 43:1,11,25; Psa 49:6‑8; Job 33:24; Eph 2:4,5; Acts 4:12**
 
 ---
 
-[Monday 21-April, 2025](https://t.me/s/daily_light)
+[Tuesday 22-April, 2025](https://t.me/s/daily_light)
 
 > Jonathan Bagster, the son of Samuel Bagster, created the Daily Light for his own family's daily devotion in 1875
 
