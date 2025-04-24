@@ -1,17 +1,13 @@
 **Evening**
 
-**All we like sheep have gone astray.**
+**The eyes of all wait upon thee.**
  
-If we say that we have no sin, we deceive ourselves, and the truth is not in us. -- There is none righteous, no, not one: there is none that understandeth. They are all gone out of the way, they are together become unprofitable.
+He giveth to all life, and breath, and all things. -- The Lord is good to all: and his tender mercies are over all his works. -- Behold the fowls of the air: for they sow not, neither do they reap, nor gather into barns; yet your heavenly Father feedeth them.
  
-Ye were as sheep going astray; but are now returned unto the Shepherd and Bishop of your souls. -- I have gone astray like a lost sheep; seek thy servant; for I do not forget thy commandments.
+The same Lord over all is rich unto all that call upon him. I will lift up mine eyes unto the hills, from whence cometh my help. -- Behold, as the eyes of servants look unto the hand of their masters, and as the eyes of a maiden unto the hand of her mistress; so our eyes wait upon the Lord our God.
  
-He restoreth my soul: he leadeth me in the paths of righteous for his name's sake.
- 
-My sheep hear my voice, and I know them, and they follow me: and I give unto them eternal life; and they shall never perish, either shall any man pluck them out of my hand.
- 
-What man of you, having an hundred sheep, if he lose one of them, doth not leave the ninety and nine in the wilderness, and go after that which is lost, until he find it?  
+The Lord is a God of judgment: blessed are all they that wait for him. -- And it shall be said in that day, Lo, this is our God; we have waited for him, and he will save us: this is the Lord; we have waited for him, we will be glad and rejoice in his salvation. -- If we hope for that we see not, then do we with patience wait for it.  
 
-**Isa 53:6; 1 John 1:8; Rom 3:10‑12; 1 Pet 2:25; Psa 119:176; Psa 23:3; John 10:27,28; Luke 15:4**
+**Psa 145:15; Acts 17:25; Psa 145:9; Matt 6:26; Rom 10:12; Psa 121:1; Psa 123:2; Isa 30:18; Isa 25:9; Rom 8:25**
 
-[Wednesday 23-April, 2025](https://t.me/daily_light)
+[Thursday 24-April, 2025](https://t.me/daily_light)

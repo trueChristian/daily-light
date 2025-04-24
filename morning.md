@@ -1,13 +1,11 @@
 **Morning**
 
-**The Lord was my stay.**
+**The Lord visited Sarah as he had said, and the Lord did unto Sarah as he had spoken.**
  
-Truly in vain is salvation hoped for from the hills, and from the multitude of mountains: truly in the Lord our God is the salvation of Israel. -- The Lord is my rock, and my fortress, and my deliverer; my God, my strength, in whom I will trust; my buckler, and the horn of my salvation, and my high tower. -- Cry out and shout, thou inhabitant of Zion; for great is the Holy One of Israel in the midst of thee.
+Trust in him at all times; ye people, pour out your heart before him: God is a refuge for us. -- David encouraged himself in the Lord his God. -- God will surelv visit you, and bring you out of this land unto the land which he sware to Abraham, to Isaac, and to Jacob. -- I have seen, I have seen the affliction of my people which is in Egypt. and I have heard their groaning, and am come down to deliver them. He brought them out, after that he had shewed wonders and signs in the land of Egypt, and in the Red sea, and in the wilderness forty years. -- There failed not ought of any good thing which the Lord had spoken unto the house of Israel: all came to pass.
  
-The angel of the Lord encampeth round about them that fear him, and delivereth them. The righteous cry, and the Lord heareth, and delivereth them out of all their troubles. -- The eternal God is thy refuge, and underneath are the everlasting arms. -- So that we may boldly say, The Lord is my helper, and I will not fear what man shall do unto me. -- For who is God save the Lord? or who is a rock save our God? It is God that girdeth me with strength, and maketh my way perfect.
- 
-By the grace of God I am what I am.  
+He is faithful that promised. -- Hath he said, and shall he not do it? or hath he spoken, and shall he not make it good? -- Heaven and earth shall pass away, but my words shall not pass away -- The grass withereth, the flower fadeth: but the word of our God shall stand for ever.  
 
-**Psa 18:8; Jer 3:23; Psa 18:2; Isa 12:6; Psa 34:7,17; Deut 33:27; Heb 13:6; Psa 18:31,32; 1 Cor 15:10**
+**Gen 21:1; Psa 62:8; 1 Sam 30: 6; Gen 50:24; Acts 7:34,36; Josh 21:45; Heb 10:23; Num 23:19; Matt 24:35; Isa 40:8**
 
-[Wednesday 23-April, 2025](https://t.me/daily_light)
+[Thursday 24-April, 2025](https://t.me/daily_light)
