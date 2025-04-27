@@ -1,15 +1,13 @@
 **Evening**
 
-**Who is she that looketh forth as the morning, fair as the moon, clear as the sun, and terrible as an army with banners?**
+**A new name.**
  
-The church of God, which he hath purchased with his own blood.
+The disciples were called Christians first in Antioch. -- Let every one that nameth the name of Christ depart from iniquity. -- They that are Christ's have crucified the flesh with the affections and lusts. -- Ye are bought with a price: therefore glorify God in your body, and in your spirit, which are God's.
  
-Christ loved the church, and gave himself for it; that he might sanctify and cleanse it with the washing of water by the word, that he might present it to himself a glorious church, not having spot, or wrinkle, or any such thing; but that it should be holy and without blemish.
+God forbid that I should glory, save in the cross of our Lord Jesus Christ, by whom the world is crucified unto me, and I unto the world. For in Christ Jesus neither circumcision availeth any thing, nor uncircumcision, but a new creature.
  
-There appeared a great wonder in heaven; a woman clothed with the sun. -- The marriage of the Lamb is come, and his wife hath made herself ready. And to her was granted that she should be arrayed in fine linen, clean and white: for the fine linen is the righteousness of saints. -- The righteousness of God which is by faith of Jesus Christ unto all and upon all them that believe.
- 
-The glory which thou gavest me I have given them.  
+Be ye ... followers of God, as dear children; and walk in love, as Christ also hath loved us, and hath given himself for us an offering and a sacrifice to God for a sweetsmelling savour. But fornication, and all uncleanness, or covetousness, let it not be once named among you, as becometh saints. Now are ye light in the Lord: walk as children of light.  
 
-**Song 6:10; Acts 20:28; Eph 5:25‑27; Rev 12:1; Rev 19:7,8; Rom 3:22; John 17:22**
+**Rev 2:17; Acts 11:26; 2 Tim 2:19; Gal 5:24; 1 Cor 6:20; Gal 6:14,15; Eph 5:1‑3,8**
 
-[Saturday 26-April, 2025](https://t.me/daily_light)
+[Sunday 27-April, 2025](https://t.me/daily_light)
