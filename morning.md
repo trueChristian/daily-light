@@ -1,13 +1,11 @@
 **Morning**
 
-**Behold the Lamb of God.**
+**Consider how great things He hath done for you.**
  
-It is not possible that the blood of bulls and of goats should take away sins. Wherefore when he cometh into the world, he saith, Sacrifice and offering thou wouldest not, but a body hast thou prepared me: in burnt offerings and sacrifices for sin thou hast had no pleasure. Then said I, Lo, I come (in the volume of the book it is written of me) to do thy will, O God. -- He was oppressed, and he was afflicted, yet he opened not his mouth; he is brought as a lamb to the slaughter, and as a sheep before her shearers is dumb, so he openeth not his mouth.
+Thou shalt remember all the way which the Lord thy God led thee these forty years in the wilderness, to humble thee, and to prove thee, to know what was in thine heart, whether thou wouldest keep his commandments, or no. Thou shalt also consider in thine heart, that, as a man chasteneth his son, so the Lord thy God chasteneth thee.
  
-Ye were not redeemed with corruptible things, as silver and gold, ... but with the precious blood of Christ, as of a lamb without blemish and without spot: ... manifest in these last times for you who by him do believe in God ... that your faith and hope might be in God.
- 
-Worthy is the Lamb that was slain to receive power, and riches and wisdom, and strength, and honour, and glory, and blessing.  
+I know, O Lord, that thy judgments are right, and that thou in faithfulness hast afflicted me. It is good for me that I have been afflicted; that I might learn thy statutes. Before I was afflicted I went astray: but now have I kept thy word. -- The Lord hath chastened me sore: but he hath not given me over unto death. -- He hath not dealt with us after our sins, nor rewarded us according to our iniquities. For as the heaven is high above the earth, so great is his mercy toward them that fear him. He knoweth our frame; he remembereth that we are dust.  
 
-**John 1:29; Heb 10:4‑7; Isa 53:7; 1 Pet 1:18‑21; Rev 5:12**
+**1 Sam 12:24; Deut 8:2,5; Psa 119:75,71,67; Psa 118:18; Psa 103:10,11,14**
 
-[Monday 28-April, 2025](https://t.me/daily_light)
+[Tuesday 29-April, 2025](https://t.me/daily_light)
