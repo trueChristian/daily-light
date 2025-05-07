@@ -1,40 +1,38 @@
 {
-  "date_key": "may-06",
-  "date_name": "Tuesday 06-May, 2025",
+  "date_key": "may-07",
+  "date_name": "Wednesday 07-May, 2025",
   "evening": {
     "body": [
-      "Beloved, now are we the Sons of God; ... it doth not appear what we shall be: but we know that, when he shall appear we shall be like him; for we shall see him as he is. -- As we have borne the image of the earthy, we shall also bear the image of heavenly.",
-      "The Saviour, the Lord Jesus Christ; ... shall change our vile body, that it may be fashioned like unto his glorious body, according to the working whereby he is able even to subdue all things unto himself.",
-      "Jesus himself stood in the midst of them, and saith unto them, Peace be unto you. But they were terrified and affrighted, and supposed that they had seen a spirit. -- He was seen of Cephas, then of the twelve: after that he was seen of above five hundred brethren at once.",
-      "If the Spirit of him that raised up Jesus from the dead dwell in you, he that raised up Christ from the dead shall also quicken your mortal bodies by his Spirit that dwelleth in you."
+      "It is impossible but that offences will come: but woe unto him, through whom they come! -- Him, being delivered by the determinate counsel and foreknowledge of God, ye have taken, and by wicked hands have crucified and slain. -- They did spit in his face, and buffeted him; and others smote him with the palms of their hands, saying, Prophesy unto us, thou Christ, Who is he that smote thee? -- Likewise also the chief priests mocking him, with the scribes and elders, said, He saved others; himself he cannot save. If he be the King of Israel, let him now come down from the cross. -- Of a truth against thy holy child Jesus, whom thou hast anointed, both Herod, and Pontius Pilate, with the Gentiles, and the people of Israel, were gathered together, to do whatsoever thy hand and thy counsel determined before to be done.",
+      "Surely he hath borne our grief, and carried our sorrows: yet we did esteem him stricken, smitten of God, and afflicted."
     ],
-    "header": "How are the dead raised up? and with what body do they come?",
+    "header": "They persecute him whom thou hast smitten.",
     "name": "Evening",
     "references": [
-      "1 John 3:2",
-      "1 Cor 15:49",
-      "Phl 3:20,21",
-      "Luke 24:36,37",
-      "1 Cor 15:5,6",
-      "Rom 8:11"
+      "Luke 17:1",
+      "Acts 2:23",
+      "Matt 26:67,68",
+      "Matt 27:41,42",
+      "Acts 4:27,28",
+      "Isa 53:4"
     ]
   },
   "joomla": "https://git.vdm.dev/christian/mod_dailylight",
   "morning": {
     "body": [
-      "A just God and a Saviour. The Lord is well pleased for his righteousness' sake; he will magnify the law, and make it honourable.",
-      "God was in Christ reconciling the world unto himself, not imputing their trespasses unto them. -- Whom God hath set forth to be a propitiation through faith in his blood to declare his righteousness for the remission of sins that are past, through the forebearance of God; to declare I say at this time his righteousness: that he might be just and the justifier of him which believeth in Jesus. -- He was wounded for our transgressions, he was bruised for our iniquities: the chastisement of our peace was upon him; and with his stripes, we are healed. -- Who shall lay any thing to the charge of God’s elect? It is God that justifieth. -- To him that worketh not, but believeth on him that justifieth the ungodly; his faith is counted for righteousness."
+      "God is our refuge and strength, a very present help in trouble. Therefore will not we fear, though the earth be removed, and though the mountains be carried into the midst of the sea; though the waters thereof roar and be troubled, though the mountains shake with the swelling thereof. -- Come, my people, enter thou into thy chambers, and shut thy doors about thee: hide thyself as it were for a little moment, until the indignation be overpast. For, behold, the Lord cometh out of his place to punish the inhabitants of the earth for their iniquity. -- In the shadow of thy wings will I make my refuge, until these calamities be overpast. -- Your life is hid with Christ in God.",
+      "He shall not be afraid of evil tidings: his heart is fixed, trusting the Lord.",
+      "These things I have spoken unto you, that in me ye might have peace. In the world ye shall have tribulation: but be of good cheer; I have overcome the world."
     ],
-    "header": "Mercy and truth are met together; righteousness and peace have kissed each other.",
+    "header": "Ye shall hear of wars and rumours of wars: see that ye be not troubled.",
     "name": "Morning",
     "references": [
-      "Isa 45:21",
-      "Isa 42:21",
-      "2 Cor 5:19",
-      "Rom 3:25,26",
-      "Isa 53:5",
-      "Rom 8:33",
-      "Rom 4:5"
+      "Psa 46:1-3",
+      "Isa 26:20,21",
+      "Psa 57:1",
+      "Col 3:3",
+      "Psa 112:7",
+      "John 16:33"
     ]
   },
   "source": "https://github.com/trueChristian/daily-light",
