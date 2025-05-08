@@ -1,13 +1,13 @@
 **Morning**
 
-**Ye shall hear of wars and rumours of wars: see that ye be not troubled.**
+**It pleased the Lord to bruise him; he hath put him to grief.**
  
-God is our refuge and strength, a very present help in trouble. Therefore will not we fear, though the earth be removed, and though the mountains be carried into the midst of the sea; though the waters thereof roar and be troubled, though the mountains shake with the swelling thereof. -- Come, my people, enter thou into thy chambers, and shut thy doors about thee: hide thyself as it were for a little moment, until the indignation be overpast. For, behold, the Lord cometh out of his place to punish the inhabitants of the earth for their iniquity. -- In the shadow of thy wings will I make my refuge, until these calamities be overpast. -- Your life is hid with Christ in God.
+Now is my soul troubled; and what shall I say? Father, save me from this hour: but for this cause came I unto this hour. Father, glorify thy name. Then came there a voice from heaven, saying, I have both glorified it, and will glorify it again. -- Father, if thou be willing, remove this cup from me: nevertheless not my will, but thine, be done. And there appeared an angel unto him from heaven, strengthening him.
  
-He shall not be afraid of evil tidings: his heart is fixed, trusting the Lord.
+Being found in fashion as a man, he humbled himself, and became obedient unto death, even the death of the cross. -- Therefore doth my Father love me, because I lay down my life, that I might take it again. -- For I came down from heaven, not to do mine will, but the will of him that sent me. -- The cup which my father hath given me, shall I not drink it?
  
-These things I have spoken unto you, that in me ye might have peace. In the world ye shall have tribulation: but be of good cheer; I have overcome the world.  
+The Father hath not left me alone; for I do always those things that please him. -- My beloved Son, in whom I am well pleased, -- Mine elect, in whom my soul delighteth.  
 
-**Matt 24:6; Psa 46:1-3; Isa 26:20,21; Psa 57:1; Col 3:3; Psa 112:7; John 16:33**
+**Isa 53:10; John 12:27,28; Luke 22:42,43; Phl 2:8; John 10:17; John 6:38; John 18:11; John 8:29; Matt 3:17; Isa 42:1**
 
-[Wednesday 07-May, 2025](https://t.me/daily_light)
+[Thursday 08-May, 2025](https://t.me/daily_light)
