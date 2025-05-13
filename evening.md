@@ -1,11 +1,13 @@
 **Evening**
 
-**Reproach hath broken my heart.**
+**My heart panteth, my strength faileth me.**
  
-Is not this the carpenter's son? -- Can there any good thing come out of Nazareth? -- Say we not well that thou are a Samaritan, and hast a devil? -- He casteth out devils through the prince of the devils. -- We know that this man is a sinner. -- He deceiveth the people. -- This man blasphemeth. -- Behold a man gluttonous and a winebibber, a friend of publicans and sinners.
+Hear my cry, O God; attend unto my prayer. From the end of the earth will I cry unto thee, when my heart is overwhelmed: lead me to the rock that is higher than I.
  
-It is enough for the disciple that he be as his master, and the servant as his lord. -- This is thankworthy, if a man for conscience toward God endure grief, suffering wrongfully. For even hereunto were ye called: because Christ also suffered for us, leaving us an example, that we should follow his steps. Who did no sin, neither was guile found in his mouth: who when he was reviled, reviled not again; when he suffered, he threatened not; but committed himself to him that judgeth righteously. -- If ye be reproached for the name of Christ, happy are ye.  
+He said unto me, My grace is sufficient for thee: for my strength is made perfect in weakness. Most gladly therefore will I rather glory in my infirmities, that the power of Christ may rest upon me. For when I am weak, then am I strong.
+ 
+When (Peter) saw the wind boisterous, he was afraid; and beginning to sink, he cried, saying, Lord, save me. And immediately Jesus stretched forth his hand, and caught him, and said unto him, O thou of little faith, wherefore didst thou doubt? -- If thou faint in the day of adversity, thy strength is small. -- He giveth power to the faint; and to them that have no might he increaseth strength. -- The eternal God is thy refuge, and underneath are the everlasting arms. -- Strengthened with all might, according to his glorious power.  
 
-**Psa 69:20; Matt 13:55; John 1:46; John 8:48; Matt 9:34; John 9:24; John 7:12; Matt 9:3; Matt 11:19; Matt 10:25; 1 Pet 2:19-23; 1 Pet 4:14**
+**Psa 38:10; Psa 61:1,2; 2 Cor 12:9,10; Matt 14:30,31; Prov 24:10; Isa 40:29; Deut 33:27; Col 1:11**
 
-[Monday 12-May, 2025](https://t.me/daily_light)
+[Tuesday 13-May, 2025](https://t.me/daily_light)
