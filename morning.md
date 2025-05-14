@@ -1,13 +1,17 @@
 **Morning**
 
-**Pray everywhere, lifting up holy hands, without wrath and doubting.**
+**The fellowship of His sufferings.**
  
-The true worshippers shall worship the Father in spirit and in truth: for the Father seeketh such to worship him. God is a Spirit: and they that worship him must worship him in spirit and in truth. -- Then shalt thou call, and the Lord shall answer; thou shalt cry, and he shall say, Here I am. -- When ye stand praying, forgive, if ye have ought against any.
+It is enough for the disciple that he be as his master, and the servant as his lord.
  
-Without faith it is impossible to please him: for he that cometh to God must believe that he is, and that he is a rewarder of them that diligently seek him. -- Let him ask in faith, nothing wavering. For he that wavereth is like a wave of the sea, driven with the wind and tossed. For let not that man think that he shall receive anything of the Lord.
+He is despised and rejected of men; a man of sorrows, and acquainted with grief; and we hid as it were our faces from him; he was despised, and we esteemed him not. -- In the world ye shall have tribulation. -- Because ye are not of the world, but I have chosen you out of the world, therefore the world hateth you.
  
-If I regard iniquity in my heart, the Lord will not hear me. -- My little children, these things write I unto you, that ye sin not. And if any man sin, we have an advocate with the Father, Jesus Christ the righteous: and he is the propitiation for our sins.  
+I looked for some to take pity, but there was none. -- At my first answer no man stood with me, but all men forsook me.
+ 
+The foxes have holes, and the birds of the air have nests; but the Son of man hath not where to lay his head. -- Here have we no continuing city, but we seek one to come.
+ 
+Let us run with patience the race that is set before us, looking unto Jesus the author and finisher of our faith; who for the joy that was set before him endured the cross, despising the shame, and is set down at the right hand of the throne of God.  
 
-**1 Tim 2:8; John 4:23,24; Isa 58:9; Mark 11:25; Heb 11:6; Jas 1:6,7; Psa 66:18; 1 John 2:1,2**
+**Phl 3:10; Matt 10:25; Isa 53:3; John 16:33; John 15:19; Psa 69:20; 2 Tim 4:16; Matt 8:20; Heb 13:14; Heb 12:1,2**
 
-[Tuesday 13-May, 2025](https://t.me/daily_light)
+[Wednesday 14-May, 2025](https://t.me/daily_light)
