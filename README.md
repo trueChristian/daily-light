@@ -1,32 +1,28 @@
 # Morning
 
-**A servant of Jesus Christ.**
+**I am the Lord your God; walk in my statutes, and keep my judgments, and do them.**
  
-Ye call me Master and Lord: and ye say well; for so I am. -- If any man serve me, let him follow me; and where I am, there shall also my servant be: if any man serve me, him will my Father honour. -- Take my yoke upon you, and learn of me; for I am meek and lowly in heart: and ye shall find rest unto your souls. For my yoke is easy, and my burden is light.
+As he which hath called you is holy, so be ye holy in all manner of conversation. -- He that saith he abideth in him ought himself also so to walk, even as he walked. If ye know that he is righteous, ye know that every one that doeth righteousness is born of him. -- Circumcision is nothing, and uncircumcision is nothing, but the keeping of the commandments of God. -- Whosoever shall keep the whole law, and yet offend in one point, he is guilty of all.
  
-What things were gain to me, those I counted loss for Christ. -- Being made free from sin, and become servants to God, ye have your fruit unto holiness, and the end everlasting life.
+Not that we are sufficient of ourselves to think anything, as of ourselves; but our sufficiency is of God. -- Teach me, O Lord, the way of thy statutes.
  
-Henceforth I call you not servants; for the servant knoweth not what his lord doeth: but I have called you friends; for all things that I have heard of my Father I have made known unto you. -- Thou art no more a servant, but a son.
- 
-Stand fast therefore in the liberty wherewith Christ hath made us free, and be not entangled again with the yoke of bondage. For, brethren, ye have been called unto liberty; only use not liberty for an occasion to the flesh.  
+Work out your own salvation with fear and trembling. For it is God which worketh in you both to will and to do of his good pleasure. -- The God of peace, ... make you perfect in every good work to do his will, working in you that which is well pleasing in his sight, through Jesus Christ.  
 
-**Rom 1:1; John 13:13; John 12:26; Matt 11:29,30; Phl 3:7; Rom 6:22; John 15:15; Gal 4:7; Gal 5:1,13**
+**Ezek 20:19; 1 Pet 1:15; 1 John 2:6,29; 1 Cor 7:19; Jas 2:10; 2 Cor 3:5; Psa 119:33; Phl 2:12,13; Heb 13:20,21**
 
 # Evening
 
-**I will bless the Lord, who hath given me counsel.**
+**I have exalted one chosen out of the people.**
  
-His name shall be called Wonderful, Counsellor. -- Counsel is mine, and sound wisdom: I am understanding, I have strength. -- Thy word is a lamp unto my feet, and a light unto my path. -- Trust in the Lord with all thine heart; and lean not unto thine own understanding. In all thy ways acknowledge him, and he shall direct thy paths.
+Verily he took not on him the nature of angels; but he took on him the seed of Abraham. In all things it behoved him to be made like unto his brethren. -- Upon the likeness of the throne was the likeness as the appearance of a man above upon it. -- The Son of man ... which is in heaven. -- Behold my hands and my feet, that it is I myself: handle me, and see; for a spirit hath not flesh and bones, as ye see me have.
  
-O Lord, I know that the way of man is not in himself: it is not in man that walketh to direct his steps. -- Thine ears shall hear a word behind thee, saying, This is the way, walk ye in it, when ye turn to the right hand, and when ye turn to the left. -- Commit thy works unto the Lord, and thy thoughts shall be established. -- He knoweth the way that I take. -- Man's goings are of the Lord: how can a man then understand his own way?
- 
-Thou shalt guide me with thy counsel, and afterward receive me to glory. -- This God is our God for ever and ever: he will be our guide even unto death.  
+He made himself of no reputation, and took upon him the form of a servant, and was made in the likeness of men: and being found in fashion as a man, he humbled himself, and became obedient unto death, even the death of the cross. Wherefore God also hath highly exalted him, and given him a name which is above every name: that at the name of Jesus every knee should bow. -- Be watchful, and strengthen the things which remain, that are ready to die: for I have not found thy works perfect before God.  
 
-**Psa 16:7; Isa 9:6; Prov 8:14; Psa 119:105; Prov 3:5,6; Jer 10:23; Isa 30:21; Prov 16:3; Job 23:10; Prov 20:24; Psa 73:24; Psa 48:14**
+**Psa 89:19; Heb 2:16,17; Ezek 1:26; John 3:13; Luke 24:39; Phl 2:7‑10; Rev 3:2**
 
 ---
 
-[Friday 16-May, 2025](https://t.me/s/daily_light)
+[Saturday 17-May, 2025](https://t.me/s/daily_light)
 
 > Jonathan Bagster, the son of Samuel Bagster, created the Daily Light for his own family's daily devotion in 1875
 
