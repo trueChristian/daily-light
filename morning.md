@@ -1,13 +1,13 @@
 **Morning**
 
-**Thy name shall be called Israel: for as a prince hast thou power with God and with men, and hast prevailed.**
+**The fruit of the Spirit is longsuffering, gentleness**.
  
-By his strength he had power with God: yea, he had power over the angel, and prevailed: he wept, and made supplication unto him. -- Abraham staggered not at the promise of God through unbelief; but was strong in faith, giving glory to God.
+The Lord, the Lord God, merciful and gracious, longsuffering, and abundant in goodness and truth.
  
-Have faith in God. For verily I say unto you, That whosoever shall say unto this mountain, Be thou removed, and be thou cast into the sea; and shall not doubt in his heart, but shall believe that those things which he saith shall come to pass; he shall have whatsoever he saith. Therefore I say unto you, What things soever ye desire, when ye pray, believe that ye receive them, and ye shall have them. -- If thou canst believe, all things are possible to him that believeth. -- Blessed is she that believed: for there shall be a performance of those things which were told her from the Lord.
+Walk worthy of the vocation wherewith ye are called, with all lowliness and meekness, with longsuffering, forbearing one another in love. -- Be ye kind one to another, tenderhearted, forgiving one another, even as God for Christ's sake hath forgiven you. -- The wisdom that is from above is first pure, then peaceable, gentle, and easy to be intreated, full of mercy and good fruits, without partiality, and without hypocrisy. -- Charity suffereth long, and is kind.
  
-Lord, increase our faith.  
+In due season we shall reap, if we faint not. -- Be patient therefore, brethren, unto the coming of the Lord. Behold, the husbandman waiteth for the precious fruit of the earth, and hath long patience for it, until he receive the early and latter rain. Be ye also patient; stablish your hearts: for the coming of the Lord draweth nigh.  
 
-**Gen 32:28; Hos 12:3,4; Rom 4:20; Mark 11:22‑24; Mark 9:23; Luke 1:45; Luke 17:5**
+**Gal 5:22; Exo 34:6; Eph 4:1,2; Eph 4:32; Jas 3:17; 1 Cor 13:4; Gal 6:9; Jas 5:7,8**
 
-[Saturday 31-May, 2025](https://t.me/daily_light)
+[Sunday 01-June, 2025](https://t.me/daily_light)

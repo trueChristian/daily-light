@@ -1,32 +1,30 @@
 # Morning
 
-**Thy name shall be called Israel: for as a prince hast thou power with God and with men, and hast prevailed.**
+**The fruit of the Spirit is longsuffering, gentleness**.
  
-By his strength he had power with God: yea, he had power over the angel, and prevailed: he wept, and made supplication unto him. -- Abraham staggered not at the promise of God through unbelief; but was strong in faith, giving glory to God.
+The Lord, the Lord God, merciful and gracious, longsuffering, and abundant in goodness and truth.
  
-Have faith in God. For verily I say unto you, That whosoever shall say unto this mountain, Be thou removed, and be thou cast into the sea; and shall not doubt in his heart, but shall believe that those things which he saith shall come to pass; he shall have whatsoever he saith. Therefore I say unto you, What things soever ye desire, when ye pray, believe that ye receive them, and ye shall have them. -- If thou canst believe, all things are possible to him that believeth. -- Blessed is she that believed: for there shall be a performance of those things which were told her from the Lord.
+Walk worthy of the vocation wherewith ye are called, with all lowliness and meekness, with longsuffering, forbearing one another in love. -- Be ye kind one to another, tenderhearted, forgiving one another, even as God for Christ's sake hath forgiven you. -- The wisdom that is from above is first pure, then peaceable, gentle, and easy to be intreated, full of mercy and good fruits, without partiality, and without hypocrisy. -- Charity suffereth long, and is kind.
  
-Lord, increase our faith.  
+In due season we shall reap, if we faint not. -- Be patient therefore, brethren, unto the coming of the Lord. Behold, the husbandman waiteth for the precious fruit of the earth, and hath long patience for it, until he receive the early and latter rain. Be ye also patient; stablish your hearts: for the coming of the Lord draweth nigh.  
 
-**Gen 32:28; Hos 12:3,4; Rom 4:20; Mark 11:22‑24; Mark 9:23; Luke 1:45; Luke 17:5**
+**Gal 5:22; Exo 34:6; Eph 4:1,2; Eph 4:32; Jas 3:17; 1 Cor 13:4; Gal 6:9; Jas 5:7,8**
 
 # Evening
 
-**Little children, abide in him.**
+**Emmanuel, ... God with us.**
  
-He that wavereth is like a wave of the sea driven with the wind and tossed. Let not that man think that he shall receive anything of the Lord. A double minded man is unstable in all his ways.
+Will God in very deed dwell with men on the earth? behold, heaven and the heaven of heavens cannot contain thee. -- The Word was made flesh, and dwelt among us, (and we beheld his glory, the glory as of the only begotten of the Father,) full of grace and truth. -- Great is the mystery of godliness: God was manifest in the flesh.
  
-I marvel that ye are so soon removed from him that called you into the grace of Christ unto another gospel: which is not another. Though we, or an angel from heaven, preach any other gospel unto you than that which we have preached unto you, let him be accursed.
+God hath in these last days spoken unto us by his Son, whom he hath appointed heir of all things, by whom also he made the worlds.
  
-Christ is become of no effect unto you, whosoever of you are justified by the law; ye are fallen from grace. Ye did run well; who did hinder you?
- 
-As the branch cannot bear fruit of itself, except it abide in the vine; no more can ye, except ye abide in me. If ye abide in me, and my words abide in you, ye shall ask what ye will, and it shall be done unto you. -- For all the promises of God in him are yea, and in him, Amen, unto the glory of God by us.  
+The first day of the week, when the doors were shut where the disciples were assembled, ... came Jesus and stood in the midst. Then were the disciples glad, when they saw the Lord. After eight days again his disciples were within, and Thomas with them. Then saith [Jesus] to Thomas, Reach hither thy finger, and behold my hands; and reach hither thy hand, and thrust it into my side: and be not faithless, but believing. Thomas ... said, My Lord and my God. -- Unto us a Son is given: the mighty God.  
 
-**1 John 2:28; Jas 1:6‑8; Gal 1:6‑8; Gal 5:4,7; John 15:4,7; 2 Cor 1:20**
+**Matt 1:23; 2 Chr 6:18; John 1:14; 1 Tim 3:16; Heb 1:2; John 20:19,20,26‑28; Isa 9:6**
 
 ---
 
-[Saturday 31-May, 2025](https://t.me/s/daily_light)
+[Sunday 01-June, 2025](https://t.me/s/daily_light)
 
 > Jonathan Bagster, the son of Samuel Bagster, created the Daily Light for his own family's daily devotion in 1875
 

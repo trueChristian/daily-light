@@ -1,15 +1,13 @@
 **Evening**
 
-**Little children, abide in him.**
+**Emmanuel, ... God with us.**
  
-He that wavereth is like a wave of the sea driven with the wind and tossed. Let not that man think that he shall receive anything of the Lord. A double minded man is unstable in all his ways.
+Will God in very deed dwell with men on the earth? behold, heaven and the heaven of heavens cannot contain thee. -- The Word was made flesh, and dwelt among us, (and we beheld his glory, the glory as of the only begotten of the Father,) full of grace and truth. -- Great is the mystery of godliness: God was manifest in the flesh.
  
-I marvel that ye are so soon removed from him that called you into the grace of Christ unto another gospel: which is not another. Though we, or an angel from heaven, preach any other gospel unto you than that which we have preached unto you, let him be accursed.
+God hath in these last days spoken unto us by his Son, whom he hath appointed heir of all things, by whom also he made the worlds.
  
-Christ is become of no effect unto you, whosoever of you are justified by the law; ye are fallen from grace. Ye did run well; who did hinder you?
- 
-As the branch cannot bear fruit of itself, except it abide in the vine; no more can ye, except ye abide in me. If ye abide in me, and my words abide in you, ye shall ask what ye will, and it shall be done unto you. -- For all the promises of God in him are yea, and in him, Amen, unto the glory of God by us.  
+The first day of the week, when the doors were shut where the disciples were assembled, ... came Jesus and stood in the midst. Then were the disciples glad, when they saw the Lord. After eight days again his disciples were within, and Thomas with them. Then saith [Jesus] to Thomas, Reach hither thy finger, and behold my hands; and reach hither thy hand, and thrust it into my side: and be not faithless, but believing. Thomas ... said, My Lord and my God. -- Unto us a Son is given: the mighty God.  
 
-**1 John 2:28; Jas 1:6‑8; Gal 1:6‑8; Gal 5:4,7; John 15:4,7; 2 Cor 1:20**
+**Matt 1:23; 2 Chr 6:18; John 1:14; 1 Tim 3:16; Heb 1:2; John 20:19,20,26‑28; Isa 9:6**
 
-[Saturday 31-May, 2025](https://t.me/daily_light)
+[Sunday 01-June, 2025](https://t.me/daily_light)
