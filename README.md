@@ -1,30 +1,28 @@
 # Morning
 
-**Thus shall ye eat it; with your loins girded, and ye shall eat it in haste: it is the Lord's passover.**
+**Watch, for ye know neither the day nor the hour wherein the Son of man cometh.**
  
-Arise ye, and depart; for this is not your rest. -- Here have we no continuing city, but we seek one to come. -- There remaineth therefore a rest for the people of God.
+Take heed to yourselves, lest at any time your hearts be overcharged with surfeiting, and drunkenness, and cares of this life, and so that day come upon you unawares. For as a snare shall it come on all them that dwell on the face of the whole earth. Watch ye therefore, and pray always, that ye may be accounted worthy to escape all these things that shall come to pass, and to stand before the Son of man.
  
-Let your loins be girded about, and your lights burning; and ye yourselves like unto men that wait for their lord, when he will return from the wedding; that when he cometh and knocketh, they may open unto him immediatety. Blessed are those servants, whom the lord when he cometh shall find watching. -- Gird up the loins of your mind, be sober, and hope to the end for the grace that is to be brought unto you at the revelation of Jesus Christ. -- This one thing I do, forgetting those things which are behind, ... I press toward the mark for the prize of the high calling of God in Christ Jesus. Let us therefore, as many as be perfect, be thus minded,  
+The day of the Lord so cometh as a thief in the night. For when they shall say, Peace and safety; then sudden destruction cometh upon them, as travail upon a woman with child; and they shall not escape. But ye, brethren, are not in darkness, that that day should overtake you as a thief. Ye are all the children of light, and the children of the day; we are not of the night, nor of darkness. Therefore let us not sleep, as do others; but let us watch and be sober.  
 
-**Exo 12:11; Mic 2:10; Heb 13:14; Heb 4:9; Luke 12:35‑37; 1 Pet 1:13; Phl 3:13‑15**
+**Matt 25:13; Luke 21:34‑36; 1 Thes 5:2‑6**
 
 # Evening
 
-**The Lord is the portion of mine inheritance and of my cup.**
+**I am the Almighty God; walk before me, and be thou perfect.**
  
-Heirs of God, and joint‑heirs with Christ. -- All things are your’s. -- My beloved is mine. -- The Son of God ... loved me, and gave himself for me.
+Not as though I had already attained, either were already perfect. I count not myself to have apprehended: but this one thing I do, forgetting those things which are behind, and reaching forth unto those things which are before, I press toward the mark for the prize of the high calling of God in Christ Jesus.
  
-The Lord spake unto Aaron, Thou shalt have no inheritance in their land, neither shalt thou have any part among them: I am thy part and thy inheritance among the children of Israel. Whom have I in heaven but thee? and there is none upon earth that I desire beside thee. My flesh and my heart faileth: but God is the strength of my heart, and my portion forever.
+Enoch walked with God and he was not; for God took him.
  
-Though I walk through the valley of the shadow of death, I will fear no evil: for thou art with me; thy rod and thy staff they comfort me. -- I know whom I have believed, and am persuaded that he is able to keep that which I have committed unto him against that day.
- 
-O God, thou art my God; early will I seek thee: my soul thirsteth for thee, my flesh longeth for thee in a dry and thirsty land.  
+Grow in grace, and in the knowledge of our Lord and Saviour Jesus Christ. -- We all, with open face beholding as in a glass the glory of the Lord, are changed into the same image from glory to glory, even as by the Spirit of the Lord. These words spake Jesus, I pray not that thou shouldest take them out of the world, but that thou shouldest keep them from the evil. I in them, and thou in me, that they may be made perfect in one.  
 
-**Psa 16:5; Rom 8:17; 1 Cor 3:21; Song 2:16; Gal 2:20; Num 8:20; Psa 73:25,26; Psa 23:4; 2 Tim 1:12; Psa 63:1**
+**Gen 17:1; Phl 3:12‑14; Gen 5:24; 2 Pet 3:18; 2 Cor 3:18; John 17:1,15,23**
 
 ---
 
-[Monday 02-June, 2025](https://t.me/s/daily_light)
+[Tuesday 03-June, 2025](https://t.me/s/daily_light)
 
 > Jonathan Bagster, the son of Samuel Bagster, created the Daily Light for his own family's daily devotion in 1875
 
