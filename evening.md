@@ -1,15 +1,15 @@
 **Evening**
 
-**He knoweth our frame; he remembereth that we are dust.**
+**A new and living way.**
  
-The Lord God formed man of the dust of the ground, and breathed into his nostrils the breath of life; and man became a living soul.
+Cain went out from the presence of the Lord. -- Your iniquities have separated between you and your God, and your sins have hid his face from you. -- Without holiness, no man shall see the Lord.
  
-I will praise thee; for I am fearfully and wonderfully made: marvellous are thy works; and that my soul knoweth right well. My substance was not hid from thee, when I was made in secret. Thine eyes did see my substance, yet being unperfect; and in thy book all my members were written, which in continuance were fashioned, when as yet there was none of them.
+I am the way, and the truth, and the life: no man cometh unto the Father, but by me. -- Our Saviour Jesus Christ ... hath abolished death, and hath brought life and immortality to light through the gospel.
  
-Have we not all one father? Hath not one God created us? -- In him we live, and move, and have our being. -- Like as a father pitieth his children, so the Lord pitieth them that fear him.
+The way into the holiest of all was not yet made manifest, while as the first tabernacle was yet standing. -- He is our peace, who hath made both one, and hath broken down the middle wall of partition between us. -- The veil of the temple was rent in twain from the top to the bottom.
  
-He, being full of compassion, forgave their iniquity, and destroyed them not: yea, many a time turned he his anger away, and did not stir up all his wrath. For he remembered that they were but flesh; a wind that passeth away, and cometh not again.  
+Strait is the gate, and narrow is the way, which leadeth unto life, and few there be that find it. -- Thou wilt shew me the path of life: in thy presence is fulness of joy; at thy right hand there are pleasures for evermore.  
 
-**Psa 103:14; Gen 2:7; Psa 139:14-16; Mal 2:10; Acts 17:28; Psa 103:13; Psa 78:38,39**
+**Heb 10:20; Gen 4:16; Isa 59:2; Heb 12:14; John 14:6; 2 Tim 1:10; Heb 9:8; Eph 2:14; Matt 27:51; Matt 7:14; Psa 16:11**
 
-[Thursday 05-June, 2025](https://t.me/daily_light)
+[Friday 06-June, 2025](https://t.me/daily_light)
