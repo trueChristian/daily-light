@@ -1,13 +1,15 @@
 **Morning**
 
-**Men ought always to pray, and not to faint.**
+**The Lord made all that he did to prosper in his hand.**
  
-Which of you shall have a friend, and shall go unto him at midnight, and say unto him, Friend, lend me three loaves; for a friend of mine in his journey is come to me and I have nothing to set before him? And he from within shall answer and say, Trouble me not: the door is now shut, and my children are with me in bed; I cannot rise and give thee. I say unto you, Though he will not rise and give him, because he is his friend, yet because of his importunity he will rise and give him as many as he needeth. -- Praying always with all prayer and supplication in the Spirit and watching thereunto with all perseverance and supplication for all saints.
+Blessed is every one that feareth the Lord; that walketh in his ways. For thou shalt eat the labour of thine hands: happy shalt thou be, and it shall be well with thee. -- Trust in the Lord, and do good; so shalt thou dwell in the land, and verily thou shalt be fed. Delight thyself also in the Lord; and he shall give thee the desires of thine heart. -- Be not afraid, neither be thou dismayed: for the Lord thy God is with thee whithersoever thou goest.
  
-I will not let thee go, except thou bless me. -- As a prince hast thou power with God and with men. -- Continue in prayer, and watch in the same with thanksgiving.
+Seek ye first the kingdom of God, and his righteousness; and all these things shall he added unto you.
  
-[Jesus] went out into a mountain to pray, and continued all night in prayer to God.  
+As long as he sought the Lord, God made him to prosper. -- Beware that thou forget not the Lord thy God, in not keeping his commandments, and his judgments, and his statutes, which I command thee this day: and thou say in thine heart, My power and the might of mine hand hath gotten me this wealth.
+ 
+Is not the Lord your God with you? and hath he not given you rest on every side?  
 
-**Luke 18:1; Luke 11:5‑8; Eph 6:18; Gen 32:26,28; Col 4:2; Luke 6:12**
+**Gen 39:3; Psa 128:1,2; Psa 37:3,4; Josh 1:9; Matt 6:33; 2 Chr 26:5; Deut 8:11,17; 1 Chr 22:18**
 
-[Saturday 07-June, 2025](https://t.me/daily_light)
+[Sunday 08-June, 2025](https://t.me/daily_light)
