@@ -1,13 +1,13 @@
 **Morning**
 
-**Never man spake like this man.**
+**The younger son took his journey into a far country, and there wasted his substance with riotous living.**
  
-Thou art fairer than the children of men: grace is poured into thy lips: therefore God hath blessed thee for ever. -- The Lord GOD hath given me the tongue of the learned, that I should know how to speak a word in season to him that is weary. -- His mouth is most sweet: yea, he is altogether lovely. This is my beloved, and this is my friend.
+Such were some of you: but ye are washed, but ye are sanctified, but ye are justified in the name of the Lord Jesus, and by the Spirit of our God. -- We ... were by nature the children of wrath, even as others. But God, who is rich in mercy, for his great love wherewith he loved us, even when we were dead in sins, hath quickened us together with Christ, (by grace ye are saved;) and hath raised us up together, and made us sit together in heavenly places in Christ Jesus.
  
-All bare him witness, and wondered at the gracious words which proceeded out of his mouth. -- He taught them as one having authority, and not as the scribes.
+Herein is love, not that we loved God, but that he loved us, and sent his Son to be the propitiation for our sins.
  
-Let the word of Christ dwell in you richly in all wisdom. -- The sword of the Spirit ... is the word of God. -- The word of God is quick, and powerful, and sharper than any two‑edged sword. -- The weapons of our warfare are not carnal, but mighty through God to the pulling down of strongholds; casting down imaginations, and every high thing that exalteth itself against the knowledge of God, and bringing into captivity every thought to the obedience of Christ.  
+God commendeth his love toward us, in that, while we were yet sinners, Christ died for us. If, when we were enemies, we were reconciled to God by the death of his Son, much more, being reconciled, we shall be saved by his life.  
 
-**John 7:46; Psa 45:2; Isa 50:4; Song 5:16; Luke 4:22; Matt 7:29; Col 3:16; Eph 6:17; Heb 4:12; 2 Cor 10:4,5**
+**Luke 15:13; 1 Cor 6:11; Eph 2:3‑6; 1 John 4:10; Rom 5:8,10**
 
-[Monday 09-June, 2025](https://t.me/daily_light)
+[Tuesday 10-June, 2025](https://t.me/daily_light)
