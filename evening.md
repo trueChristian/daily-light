@@ -1,15 +1,13 @@
 **Evening**
 
-**All thy works shall praise thee, O Lord; and thy saints shall bless thee.**
+**Faith as a grain of mustard seed.**
  
-Bless the Lord, O my soul: and all that is within me, bless his holy name. Bless the Lord, O my soul, and forget not all his benefits. -- I will bless the Lord at all times: his praise shall continually be in my mouth. -- Every day will I bless thee; and I will praise thy name for ever and ever.
+Barak said unto [Deborah], if thou wilt go with me, then I will go: but if thou wilt not go with me, then I will not go. God subdued on that day Jabin the king of Canaan. -- Gideon ... feared his father's household, and the men of the city, that he could not do it by day, ... did it by night. And Gideon said unto God, If thou wilt save Israel by mine hand as thou hast said, ... let me prove, I pray thee. And God did so.
  
-Because thy lovingkindness is better than life, my lips shall praise thee. Thus will I bless thee while I live: I will lift up my hands in thy name. My soul shall be satisfied as with marrow and fatness; and my mouth shall praise thee with joyful lips.
+Thou hast a little strength, and hast kept my word, and hast not denied my name. -- Who hath despised the day of small things?
  
-My soul doth magnify the Lord, and my spirit hath rejoiced in God my Saviour.
- 
-Thou art worthy, O Lord, to receive glory and honour and power: for thou hast created all things and for thy pleasure they are and were created.  
+We are bound to thank God always for you, brethren, as it is meet, because that your faith groweth exceedingly. -- Lord, increase our faith. -- I will be as the dew unto Israel: he shall grow as the lily, cast forth his roots as Lebanon. His branches shall spread, and his beauty shall be as the olive tree, and his smell as Lebanon.  
 
-**Psa 145:10; Psa 103:1,2; Psa 34:1; Psa 145:2; Psa 63:3-5; Luke 1:46,47; Rev 4:11**
+**Matt 17:20; Judg 4:8,23; Judg 6:27,36,39,40; Rev 3:8; Zech 4:10; 2 Thes 1:3; Luke 17:5; Hos 14:5,6**
 
-[Tuesday 17-June, 2025](https://t.me/daily_light)
+[Wednesday 18-June, 2025](https://t.me/daily_light)
