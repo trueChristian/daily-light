@@ -1,38 +1,40 @@
 {
-  "date_key": "june-19",
-  "date_name": "Thursday 19-June, 2025",
+  "date_key": "june-20",
+  "date_name": "Friday 20-June, 2025",
   "evening": {
     "body": [
-      "There is no man that hath left house, or brethren, or sisters, or father, or mother, or wife, or children, or lands, for my sake, and the gospel's, but he shall receive an hundredfold now in this time, houses, and brethren, and sisters, and mothers, and children, and lands, with persecutions; and in the world to come eternal life.",
-      "Beloved, think it not strange concerning the fiery trial which is to try you, as though some strange thing happened unto you. -- Now for a season, if need be, ye are in heaviness through manifold temptations: that the trial of your faith, being much more precious than of gold that perisheth, though it be tried with fire, might be found unto praise and honour and glory at the appearing of Jesus Christ.",
-      "The God of all grace, who hath called us unto his eternal glory by Christ Jesus, after that ye have suffered a while, make you perfect, stablish, strengthen, settle you. -- In the world ye shall have tribulation: but be of good cheer; I have overcome the world"
+      "Jacob awaked out of his sleep, and he said, Surely the Lord is in this place; and I knew it not. And he was afraid and said, How dreadful is this place! this is none other but the house of God, and this is the gate of heaven.",
+      "The eyes of the Lord run to and fro throughout the whole earth, to shew himself strong in the behalf of them whose heart is perfect toward him.",
+      "I will both lay me down in peace, and sleep: for thou, Lord, only, makest me dwell in safety.",
+      "Because thou hast made the Lord, which is my refuge, even the most High, thy habitation; there shall no evil befall thee, neither shall any plague come nigh thy dwelling. For He shall give his angels charge over thee, to keep thee in all thy ways. -- When thou liest down, thou shalt not be afraid: yea, thou shalt lie down, and thy sleep shall be sweet. -- So he giveth his beloved sleep."
     ],
-    "header": "Gold tried in the fire.",
+    "header": "Thou compassest my path and my lying down.",
     "name": "Evening",
     "references": [
-      "Mark 10:29,30",
-      "1 Pet 4:12",
-      "1 Pet 1:6,7",
-      "1 Pet 5:10",
-      "John 16:33"
+      "Gen 28:16,17",
+      "2 Chr 16:9",
+      "Psa 4:8",
+      "Psa 91:9-11",
+      "Prov 3:24",
+      "Psa 127:2"
     ]
   },
   "joomla": "https://git.vdm.dev/christian/mod_dailylight",
   "morning": {
     "body": [
-      "Except a man be born again, he cannot see the kingdom of God. -- There shall in no wise enter into it any thing that defileth. -- There is no spot in thee.",
-      "Ye shall be holy: for I the Lord your God am holy. -- As obedient children, not fashioning yourselves according to the former lusts in your ignorance: but as he which hath called you is holy, so be ye holy in all manner of conversation; because it is written, Be ye holy; for I am holy. And if ye call on the Father, who without respect of persons judgeth according to every man's work, pass the time of your sojourning here in fear. -- Put off concerning the former conversation the old man, which is corrupt according to the deceitful lusts; and be renewed in the spirit of your mind, and ... put on the new man, which after God is created in righteousness and true holiness. -- He hath chosen us in him before the foundation of the world, that we should he holy and without blame before him in love."
+      "Go ye ... into the vineyard, and whatsoever is right I will give you. -- Whosoever shall give you a cup of water to drink in my name, because ye belong to Christ, verily I say unto you, he shall not lose his reward. -- The liberal soul shall be made fat: and he that watereth shall be watered also himself. -- God is not unrighteous to forget your work and labour of love, ... in that ye have ministered to the saints, and do minister.",
+      "Every man shall receive his own reward according to his own labour.",
+      "Lord, when saw we thee an hungered, and fed thee? or thirsty, and gave thee drink? When saw we thee a stranger, and took thee in? or naked, and clothed thee? And the King shall answer and say unto them, ... Inasmuch as ye have done it unto one of the least of these my brethren, ye have done it unto me. Come, ye blessed of my Father, inherit the kingdom prepared for you from the foundation of the world."
     ],
-    "header": "Holiness, without which no man shall see the Lord.",
+    "header": "Take this child away, and nurse it for me, and I will give thee thy wages.",
     "name": "Morning",
     "references": [
-      "John 3:3",
-      "Rev 21:27",
-      "Song 4:7",
-      "Lev 19:2",
-      "1 Pet 1:14-17",
-      "Eph 4:22-24",
-      "Eph 1:4"
+      "Matt 20:4",
+      "Mark 9:41",
+      "Prov 11:25",
+      "Heb 6:10",
+      "1 Cor 3:8",
+      "Matt 25:37,38,40,34"
     ]
   },
   "source": "https://github.com/trueChristian/daily-light",
