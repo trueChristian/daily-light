@@ -1,32 +1,32 @@
 # Morning
 
-**Take this child away, and nurse it for me, and I will give thee thy wages.**
+**Christ suffered for us, leaving us an example that ye should follow his steps.**
  
-Go ye ... into the vineyard, and whatsoever is right I will give you. -- Whosoever shall give you a cup of water to drink in my name, because ye belong to Christ, verily I say unto you, he shall not lose his reward. -- The liberal soul shall be made fat: and he that watereth shall be watered also himself. -- God is not unrighteous to forget your work and labour of love, ... in that ye have ministered to the saints, and do minister.
+Even the Son of man came not to be ministered unto, but to minister. -- Whosoever of you will be the chiefest, shall be servant of all. Jesus of Nazareth ... went about doing good. -- Bear ye one another's burdens, and so fulfill the law of Christ. The meekness and gentleness of Christ. -- In lowliness of mind let each esteem other better than themselves.
  
-Every man shall receive his own reward according to his own labour.
+Father, forgive them: for they know not what they do. -- Be ye kind one to another, tenderhearted, forgiving one another, even as God for Christ's sake hath forgiven you.
  
-Lord, when saw we thee an hungered, and fed thee? or thirsty, and gave thee drink? When saw we thee a stranger, and took thee in? or naked, and clothed thee? And the King shall answer and say unto them, ... Inasmuch as ye have done it unto one of the least of these my brethren, ye have done it unto me. Come, ye blessed of my Father, inherit the kingdom prepared for you from the foundation of the world.  
+He that saith he abideth in him, ought himself also so to walk, even as he walked. -- Looking unto Jesus, the author and finisher of our faith; who for the joy that was set before him endured the cross, despising the shame, and is set down at the right hand of the throne of God.  
 
-**Exo 2:9; Matt 20:4; Mark 9:41; Prov 11:25; Heb 6:10; 1 Cor 3:8; Matt 25:37,38,40,34**
+**1 Pet 2:21; Mark 10:45; Mark 10:44; Acts 10:38; Gal 6:2; 2 Cor 10:1; Phl 2:3; Luke 23:34; Eph 4:32; 1 John 2:6; Heb 12:2**
 
 # Evening
 
-**Thou compassest my path and my lying down.**
+**I sought him, but I could not find him: I called him, but he gave me no answer.**
  
-Jacob awaked out of his sleep, and he said, Surely the Lord is in this place; and I knew it not. And he was afraid and said, How dreadful is this place! this is none other but the house of God, and this is the gate of heaven.
+O Lord, what shall I say, when Israel turneth their backs before their enemies! and the Lord said unto Joshua, Get thee up; wherefore liest thou thus upon thy face? Israel hath sinned, for they have even taken of the accursed thing ... and they have put it even among their own stuff.
  
-The eyes of the Lord run to and fro throughout the whole earth, to shew himself strong in the behalf of them whose heart is perfect toward him.
+Behold, the Lord’s hand is not shortened, that it cannot save; neither his ear heavy, that it cannot hear: but your iniquities have separated between you and your God, and your sins have hid his face from you, that he will not hear.
  
-I will both lay me down in peace, and sleep: for thou, Lord, only, makest me dwell in safety.
+If I regard iniquity in my heart, the Lord will not hear me.
  
-Because thou hast made the Lord, which is my refuge, even the most High, thy habitation; there shall no evil befall thee, neither shall any plague come nigh thy dwelling. For He shall give his angels charge over thee, to keep thee in all thy ways. -- When thou liest down, thou shalt not be afraid: yea, thou shalt lie down, and thy sleep shall be sweet. -- So he giveth his beloved sleep.  
+Beloved, if our heart condemn us not, then have we confidence toward God. And whatsoever we ask, we receive of him, because we keep his commandments, and do those things that are pleasing in his sight.  
 
-**Psa 139:3; Gen 28:16,17; 2 Chr 16:9; Psa 4:8; Psa 91:9-11; Prov 3:24; Psa 127:2**
+**Song 5:6; Josh 7:8,10,11; Isa 59:1,2; Psa 66:18; 1 John 3:21,22**
 
 ---
 
-[Friday 20-June, 2025](https://t.me/s/daily_light)
+[Saturday 21-June, 2025](https://t.me/s/daily_light)
 
 > Jonathan Bagster, the son of Samuel Bagster, created the Daily Light for his own family's daily devotion in 1875
 
