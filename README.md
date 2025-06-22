@@ -1,32 +1,34 @@
 # Morning
 
-**Christ suffered for us, leaving us an example that ye should follow his steps.**
+**Ye are dead, and your life is hid with Christ in God.**
  
-Even the Son of man came not to be ministered unto, but to minister. -- Whosoever of you will be the chiefest, shall be servant of all. Jesus of Nazareth ... went about doing good. -- Bear ye one another's burdens, and so fulfill the law of Christ. The meekness and gentleness of Christ. -- In lowliness of mind let each esteem other better than themselves.
+How shall we, that are dead to sin, live any longer therein? -- I am crucified with Christ, nevertheless I live; yet not I but Christ liveth in me: and the life which I now live in the flesh I live by the faith of the Son of God, who loved me and gave himself for me. -- He died for all, that they which live should not live unto themselves, but unto him which died for them and rose again. -- If any man be in Christ, he is a new creature; old things are passed away; behold, all things are become new.
  
-Father, forgive them: for they know not what they do. -- Be ye kind one to another, tenderhearted, forgiving one another, even as God for Christ's sake hath forgiven you.
+We are in him that is true, even in his Son Jesus Christ. -- As thou, Father, art in me, and I in thee, that they also may be one in us. -- Ye are the body of Christ, and members in particular. -- Because I live, ye shall live also.
  
-He that saith he abideth in him, ought himself also so to walk, even as he walked. -- Looking unto Jesus, the author and finisher of our faith; who for the joy that was set before him endured the cross, despising the shame, and is set down at the right hand of the throne of God.  
+To him that overcometh will I give to eat of the hidden manna, and wilt give him a white stone, and in the stone a new name written, which no man knoweth saving he that receiveth it.  
 
-**1 Pet 2:21; Mark 10:45; Mark 10:44; Acts 10:38; Gal 6:2; 2 Cor 10:1; Phl 2:3; Luke 23:34; Eph 4:32; 1 John 2:6; Heb 12:2**
+**Col 3:3; Rom 6:2; Gal 2:20; 2 Cor 5:15; 2 Cor 5:17; 1 John 5:20; John 17:21; 1 Cor 12:27; John 14:19; Rev 2:17**
 
 # Evening
 
-**I sought him, but I could not find him: I called him, but he gave me no answer.**
+**Behold how he loved.**
  
-O Lord, what shall I say, when Israel turneth their backs before their enemies! and the Lord said unto Joshua, Get thee up; wherefore liest thou thus upon thy face? Israel hath sinned, for they have even taken of the accursed thing ... and they have put it even among their own stuff.
+He died for all. -- Greater love hath no man than this, that a man lay down his life for his friends.
  
-Behold, the Lord’s hand is not shortened, that it cannot save; neither his ear heavy, that it cannot hear: but your iniquities have separated between you and your God, and your sins have hid his face from you, that he will not hear.
+He ... liveth to make intercession for them. -- I go to prepare a place for you.
  
-If I regard iniquity in my heart, the Lord will not hear me.
+I will come again, and receive you unto myself that where I am, there ye may be also. -- Father, I will that they whom thou hast given me, be with me where I am. -- Having loved his own which were in the world, he loved them unto the end.
  
-Beloved, if our heart condemn us not, then have we confidence toward God. And whatsoever we ask, we receive of him, because we keep his commandments, and do those things that are pleasing in his sight.  
+We love him, because he first loved loved us. -- The love of Christ constraineth us; because we thus judge, that if one died for all, then were all dead: and that he died for all, that they which live should not henceforth live unto themselves, but to him which died for them, and rose again.
+ 
+If ye keep my commandments, ye shall abide in my love; even as I have kept my Father's commandments, and abide in his love.  
 
-**Song 5:6; Josh 7:8,10,11; Isa 59:1,2; Psa 66:18; 1 John 3:21,22**
+**John 11:36; 2 Cor 5:15; John 15:13; Heb 7:25; John 14:2; John 14:3; John 17:24; John 13:1; 1 John 4:19; 2 Cor 5:14,15; John 15:10**
 
 ---
 
-[Saturday 21-June, 2025](https://t.me/s/daily_light)
+[Sunday 22-June, 2025](https://t.me/s/daily_light)
 
 > Jonathan Bagster, the son of Samuel Bagster, created the Daily Light for his own family's daily devotion in 1875
 
