@@ -1,13 +1,13 @@
 **Morning**
 
-**Oh that thou wouldest bless me indeed, and that thou wouldest keep me from evil! And God granted him that which he requested.**
+**Who shall be able to stand?**
  
-The blessing of the Lord, it maketh rich, and he addeth no sorrow with it. -- When he giveth quietness, who then can make trouble? and when he hideth his face, who then can behold him?
+Who may abide the day of his coming? and who shall stand when he appeareth? for he is like a refiner's fire, and like fullers' soap.
  
-Salvation belongeth unto the Lord: thy blessing is upon thy people. -- How great is thy goodness, which thou hast laid up for them that fear thee; which thou hast wrought for them that trust in thee before the sons of men. -- I pray not that thou shouldest take them out of the world, but that thou shouldest keep them from the evil.
+I beheld, and, lo, a great multitude, which no man could number, of all nations, and kindreds, and peoples, and tongues, stood before the throne, and before the Lamb, clothed with white robes, and palms in their hands. These are they which came out of great tribulation, and have washed their robes and made them white in the blood of the Lamb. They shall hunger no more, neither thirst any more: neither shall the sun light on them, nor any heat. For the Lamb, which is in the midst of the throne, shall feed them, and shall lead them unto living fountains of waters: and God shall wipe away all tears from their eyes.
  
-Ask, and it shall be given you; seek, and ye shall find; knock, and it shall be opened unto you: for every one that asketh receiveth; and he that seeketh findeth; and to him that knocketh it shall be opened. -- The Lord redeemeth the soul of his servants and none of them that trust in him shall be desolate.  
+There is no condemnation to them which are in Christ Jesus, who walk not after the flesh, but after the Spirit. -- Stand fast therefore in the liberty wherewith Christ hath made us free.  
 
-**1 Chr 4:10; Prov 10:22; Job 34:29; Psa 3:8; Psa 31:19; John 17:15; Matt 7:7,8; Psa 3422**
+**Rev 6:17; Mal 3:2; Rev 7:9,14-17; Rom 8:1; Gal 5:1**
 
-[Thursday 26-June, 2025](https://t.me/daily_light)
+[Friday 27-June, 2025](https://t.me/daily_light)
