@@ -1,11 +1,15 @@
 **Evening**
 
-**Remember not the sins of my youth, nor my transgressions.**
+**God is in heaven, and thou upon earth: therefore let thy words be few.**
  
-I have blotted out, as a thick cloud, thy transgressions, and, as a cloud, thy sins. -- I, even I, am he that blotteth out thy transgressions for mine own sake, and will not remember thy sins. -- Come now, and let us reason together, saith the Lord: though your sins be as scarlet, they shall be as white as snow; though they be red like crimson, they shall be as wool. -- I will forgive their iniquity, and I will remember their sin no more. -- Thou wilt cast all their sins into the depths of the sea.
+When ye pray, use not vain repetitions, as the heathen do: for they think that they shall be heard for their much speaking. Be not ye therefore like unto them: for your Father knoweth what things ye have need of, before ye ask him.
  
-Thou hast in love to my soul delivered it from the pit of corruption: for thou hast cast all my sins behind thy back. -- Who is a God like unto thee, that pardoneth iniquity? ... he retaineth not his anger for ever, because he delighteth in mercy. -- Unto him that loved us, and washed us from our sins in his own blood, to him be glory and dominion for ever and ever. Amen.  
+They ... called on the name of Baal from morning even until noon, saying, O Baal, hear us.
+ 
+Two men went up into the temple to pray; the one a Pharisee, and the other a publican. The Pharisee stood and prayed thus with himself, God, I thank thee, that I am not as other men are, extortioners, unjust, adulterers, or even as this publican. And the publican, standing afar off, would not lift up so much as his eyes unto heaven, but smote upon his breast, saying, God be merciful to me a sinner. I tell you, this man went down to his house justified rather than the other.
+ 
+Lord, teach us to pray.  
 
-**Psa 25:7; Isa 44:22; Isa 43:25; Isa 1:18; Jer 31:34; Mic 7:19; Isa 38:17; Mic 7:18; Rev 1:5**
+**Eccl 5:2; Matt 6:7,8; 1 Kgs 18:26; Luke 18:10,11,13,14; Luke 11:1**
 
-[Sunday 29-June, 2025](https://t.me/daily_light)
+[Monday 30-June, 2025](https://t.me/daily_light)
