@@ -1,30 +1,30 @@
 # Morning
 
-**As many as I love, I rebuke and chasten.**
+**The fruit ot the Spirit is goodness.**
  
-My son, despise not thou the chastening of the Lord, nor faint when thou art rebuked of him: for whom the Lord loveth he chasteneth, and scourgeth every son whom he receiveth. -- Even as a father the son in whom he delighteth. -- He maketh sore, and bindeth up: he woundeth, and his hands make whole. -- Humble yourselves therefore under the mighty hand of God, that he may exalt you in due time. -- I have chosen thee in the furnace of affliction.
+Be ye ... followers of God, as dear children. -- Love your enemies, bless them that curse you, do good to them that hate you, and pray for them which despitefully use you, and persecute you; that ye may be the children of your Father which is in heaven: for he maketh his sun to rise on the evil and on the good, and sendeth rain on the just and on the unjust. -- Be ye therefore merciful, as your Father also is merciful.
  
-He doth not afflict willingly nor grieve the children of men. -- He hath not dealt with us after our sins; nor rewarded us according to our iniquities. For as the heaven is high above the earth, so great is his mercy toward them that fear him. As far as the east is from the west, so far hath he removed our transgressions from us. Like as a father pitieth his children, so the Lord pitieth them that fear him. For he knoweth our frame; he remembereth that we are dust.  
+The fruit of the Spirit is in all goodness and righteousness and truth.
+ 
+After that the kindness and love of God our Saviour toward man appeared, not by works of righteousness which we have done, but according to his mercy he saved us, by the washing of regeneration, and renewing of the Holy Ghost; which he shed on us abundantly through Jesus Christ our Saviour. -- The Lord is good to all: and his tender mercies are over all his works. -- He that spared not his own Son, but delivered him up for us all, how shall he not with him also freely give us all things?  
 
-**Rev 3:19; Heb 12:5,6; Prov 3:12; Job 5:18; 1 Pet 5:6; Isa 48:10; Lam 3:33; Psa 103:10-14**
+**Gal 5:22; Eph 5:1; Matt 5:44,45; Luke 6:36; Eph 5:9; Tit 3:4-6; Psa 145:9; Rom 8:32**
 
 # Evening
 
-**God is in heaven, and thou upon earth: therefore let thy words be few.**
+**Ebenezer ... Hitherto hath the Lord helped us.**
  
-When ye pray, use not vain repetitions, as the heathen do: for they think that they shall be heard for their much speaking. Be not ye therefore like unto them: for your Father knoweth what things ye have need of, before ye ask him.
+I was brought low, and he helped me. -- Blessed be the Lord, because he hath heard the voice of my supplications. The Lord is my strength and my shield; my heart trusted in him, and I am helped: therefore my heart greatly rejoiceth; and with my song will I praise him.
  
-They ... called on the name of Baal from morning even until noon, saying, O Baal, hear us.
+It is better to trust in the Lord than to put confidence in man. It is better to trust in the Lord than to put confidence in princes. -- Happy is he that hath the God of Jacob for his help, whose hope is in the Lord his God. -- He led them forth by the right way, that they might go to a city of habitation. -- There failed not ought of any good thing which the Lord hath spoken unto the house of Israel; all came to pass.
  
-Two men went up into the temple to pray; the one a Pharisee, and the other a publican. The Pharisee stood and prayed thus with himself, God, I thank thee, that I am not as other men are, extortioners, unjust, adulterers, or even as this publican. And the publican, standing afar off, would not lift up so much as his eyes unto heaven, but smote upon his breast, saying, God be merciful to me a sinner. I tell you, this man went down to his house justified rather than the other.
- 
-Lord, teach us to pray.  
+When I sent you without purse, and scrip, and shoes, lacked ye any thing? And they said, Nothing. -- Because thou hast been my help, therefore in the shadow of thy wings will I rejoice.  
 
-**Eccl 5:2; Matt 6:7,8; 1 Kgs 18:26; Luke 18:10,11,13,14; Luke 11:1**
+**1 Sam 7:12; Psa 116:6; Psa 28:6,7; Psa 118:8,9; Psa 146:5, -psa 107:7; Josh 21:45; Luke 22:35; Psa 63:7**
 
 ---
 
-[Monday 30-June, 2025](https://t.me/s/daily_light)
+[Tuesday 01-July, 2025](https://t.me/s/daily_light)
 
 > Jonathan Bagster, the son of Samuel Bagster, created the Daily Light for his own family's daily devotion in 1875
 
