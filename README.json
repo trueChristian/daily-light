@@ -1,47 +1,39 @@
 {
-  "date_key": "july-10",
-  "date_name": "Thursday 10-July, 2025",
+  "date_key": "july-11",
+  "date_name": "Friday 11-July, 2025",
   "evening": {
     "body": [
-      "O that there were such an heart in them, that they would fear me, and keep all my commandments always, that it might be well with them, and with their children for ever!",
-      "Thy heart is not right in the sight of God. -- Because the carnal mind is enmity against God: for it is not subject to the law of God, neither indeed can be. So then they that are in the flesh cannot please God.",
-      "They ... first gave their own selves to the Lord. -- In every work that [Hezekiah] began ... to seek his God, he did it with all his heart, and prospered.",
-      "Keep thy heart with all diligence; for out of it are the issues of life.",
-      "Whatsoever ye do, do it heartily, as to the Lord. -- As the servants of Christ, doing the will of God from the heart; with good will doing service, as to the Lord, and not to men.",
-      "I will run the way of thy commandments, when thou shalt enlarge my heart."
+      "Ye have tasted that the Lord is gracious",
+      "O God, thou art my God; early will I seek thee: my soul thirsteth for thee, my flesh longeth for thee in a dry and thirsty land, where no water is; to see thy power and thy glory. -- My soul longeth, yea, even fainteth for the courts of the Lord: my heart and my flesh crieth out for the living God. -- Having a desire to depart, and to be with Christ; which is far better.",
+      "I shall be satisfied, when I awake, with thy likeness. -- They shall hunger no more, neither thirst any more; neither shall the sun light on them, nor any heat. For the Lamb which is in the midst of the throne shall feed them, and shall lead them unto living fountains of waters: and God shall wipe away all tears from their eyes. -- They shall be abundantly satisfied with the fatness of thy house; and thou shalt make them drink of the river of thy pleasures. -- My people shall be satisfied with my goodness, saith the Lord."
     ],
-    "header": "My son, give me thine heart.",
+    "header": "He satisfieth the longing soul, and filleth the hungry soul with goodness.",
     "name": "Evening",
     "references": [
-      "Deut 5:29",
-      "Acts 8:21",
-      "Rom 87,8",
-      "2 Cor 8:5",
-      "2 Chr 31:21",
-      "Prov 4:23",
-      "Col 3:23",
-      "Eph 6:6,7",
-      "Psa 119:32"
+      "1 Pet 2:3",
+      "Psa 63:1,2",
+      "Psa 84:2",
+      "Phl 1:23",
+      "Psa 17:15",
+      "Rev 7:16,17",
+      "Psa 36:8",
+      "Jer 31:14"
     ]
   },
   "joomla": "https://git.vdm.dev/christian/mod_dailylight",
   "morning": {
     "body": [
-      "Ye call me Master and Lord: and ye say well; for so I am.",
-      "It is enough for the disciple that he be as his master, and the servant as his lord. -- If they have persecuted me, they will also persecute you; if they have kept my saying, they will keep yours also. -- I have given them thy word; and the world hath hated them, because they are not of the world, even as I am not of the world.",
-      "Consider him that endured such contradiction of sinners against himself, lest ye be wearied and faint in your minds. Ye have not yet resisted unto blood, striving against sin.",
-      "Let us run with patience the race that is set before us, looking unto Jesus the author and finisher of our faith; who for the joy that was set before him endured the cross, despising the shame, and is set down at the right hand of the throne of God. -- Forasmuch ... as Christ hath suffered for us in the flesh, arm yourselves likewise with the same mind."
+      "Shall the prey be taken from the mighty, or the lawful captive delivered? But thus saith the Lord, Even the captives of the mighty shall be taken away, and the prey of the terrible shall be delivered: for I will contend with him that contendeth with thee. And all flesh shall know that I the Lord am thy Saviour and thy Redeemer, the mighty One of Jacob. -- Fear thou not; for I am with thee: be not dismayed; for I am thy God: I will strengthen thee; yea, I will help thee; yea, I will uphold thee with the right hand of my righteousness.",
+      "We have not an high priest which cannot be touched with the feeling of our infirmities; but was in all points tempted like as we are, yet without sin. -- In that he himself hath suffered being tempted, he is able to succour them that are tempted. -- The steps of a good man are ordered by the Lord: and he delighteth in his way. Though he fall, he shall not be utterly cast down: for the Lord upholdeth him with his hand."
     ],
-    "header": "The disciple is not above his master.",
+    "header": "I am with thee to save thee.",
     "name": "Morning",
     "references": [
-      "John 13:13",
-      "Matt 10:25",
-      "John 15:20",
-      "John 17:14",
-      "Heb 12:3,4",
-      "Heb 12:1,2",
-      "1 Pet 4:1"
+      "Isa 49:24‑26",
+      "Isa 41:10",
+      "Heb 4:15",
+      "Heb 2:18",
+      "Psa 37:23,24"
     ]
   },
   "source": "https://github.com/trueChristian/daily-light",
