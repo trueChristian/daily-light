@@ -1,13 +1,15 @@
 **Evening**
 
-**He satisfieth the longing soul, and filleth the hungry soul with goodness.**
+**Let us consider one another to provoke unto love and to good works.**
  
-Ye have tasted that the Lord is gracious
+How forcible are right words! -- I stir up your pure minds by way of remembrance.
  
-O God, thou art my God; early will I seek thee: my soul thirsteth for thee, my flesh longeth for thee in a dry and thirsty land, where no water is; to see thy power and thy glory. -- My soul longeth, yea, even fainteth for the courts of the Lord: my heart and my flesh crieth out for the living God. -- Having a desire to depart, and to be with Christ; which is far better.
+They that feared the Lord spake often one to another: and the Lord hearkened, and heard it, and a book of remembrance was written before him for them that feared the Lord, and that thought upon his name. -- If two of you shall agree on earth as touching any thing that they shall ask, it shall be done for them of my Father which is in heaven.
  
-I shall be satisfied, when I awake, with thy likeness. -- They shall hunger no more, neither thirst any more; neither shall the sun light on them, nor any heat. For the Lamb which is in the midst of the throne shall feed them, and shall lead them unto living fountains of waters: and God shall wipe away all tears from their eyes. -- They shall be abundantly satisfied with the fatness of thy house; and thou shalt make them drink of the river of thy pleasures. -- My people shall be satisfied with my goodness, saith the Lord.  
+The Lord God said, It is not good that the man should be alone. -- Two are better than one; because they have a good reward for their labour. For if they fall, the one will lift up his fellow: but woe to him that is alone when he falleth; for he hath not another to help him up.
+ 
+Let ... no man put a stumblingblock or an occasion to fall in his brother's way. -- Bear ye one another's burdens, and so fulfil the law of Christ. Considering thyself, lest thou also be tempted.  
 
-**Psa 107:9; 1 Pet 2:3; Psa 63:1,2; Psa 84:2; Phl 1:23; Psa 17:15; Rev 7:16,17; Psa 36:8; Jer 31:14**
+**Heb 10:24; Job 6:25; 2 Pet 3:1; Mal 3:16; Matt 18:19; Gen 2:18; Eccl 4:9,10; Rom 14:13; Gal 6:2,1**
 
-[Friday 11-July, 2025](https://t.me/daily_light)
+[Saturday 12-July, 2025](https://t.me/daily_light)

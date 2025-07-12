@@ -1,28 +1,32 @@
 # Morning
 
-**I am with thee to save thee.**
+**My presence shall go with thee, and I will give thee rest.**
  
-Shall the prey be taken from the mighty, or the lawful captive delivered? But thus saith the Lord, Even the captives of the mighty shall be taken away, and the prey of the terrible shall be delivered: for I will contend with him that contendeth with thee. And all flesh shall know that I the Lord am thy Saviour and thy Redeemer, the mighty One of Jacob. -- Fear thou not; for I am with thee: be not dismayed; for I am thy God: I will strengthen thee; yea, I will help thee; yea, I will uphold thee with the right hand of my righteousness.
+Be strong and of a good courage, fear not, nor be afraid of them: for the Lord thy God, he it is that doth go with thee; he will not fail thee, nor forsake thee. The Lord, he it is that doth go before thee; he will be with thee, he will not fail thee, neither forsake thee: fear not, neither be dismayed. -- Have not I commanded thee? Be strong and of a good courage; be not afraid, neither be thou dismayed: for the Lord thy God is with thee whithersoever thou goest. -- In all thy ways acknowledge him, and he shall direct thy paths.
  
-We have not an high priest which cannot be touched with the feeling of our infirmities; but was in all points tempted like as we are, yet without sin. -- In that he himself hath suffered being tempted, he is able to succour them that are tempted. -- The steps of a good man are ordered by the Lord: and he delighteth in his way. Though he fall, he shall not be utterly cast down: for the Lord upholdeth him with his hand.  
+He hath said, I will never leave thee, nor forsake thee. So that we may boldly say, The Lord is my helper, and I will not fear what man shall do unto me. -- Our sufficiency is of God.
+ 
+Lead us not into temptation. -- O Lord, I know that the way of man is not in himself: it is not in man that walketh to direct his steps. -- My times are in thy hand.  
 
-**Jer 15:20; Isa 49:24‑26; Isa 41:10; Heb 4:15; Heb 2:18; Psa 37:23,24**
+**Exo 33:14; Deut 31:6,8; Josh 1:9; Prov 3:6; Heb 13:5,6; 2 Cor 3:5; Matt 6:13; Jer 10:23; Psa 31:15**
 
 # Evening
 
-**He satisfieth the longing soul, and filleth the hungry soul with goodness.**
+**Let us consider one another to provoke unto love and to good works.**
  
-Ye have tasted that the Lord is gracious
+How forcible are right words! -- I stir up your pure minds by way of remembrance.
  
-O God, thou art my God; early will I seek thee: my soul thirsteth for thee, my flesh longeth for thee in a dry and thirsty land, where no water is; to see thy power and thy glory. -- My soul longeth, yea, even fainteth for the courts of the Lord: my heart and my flesh crieth out for the living God. -- Having a desire to depart, and to be with Christ; which is far better.
+They that feared the Lord spake often one to another: and the Lord hearkened, and heard it, and a book of remembrance was written before him for them that feared the Lord, and that thought upon his name. -- If two of you shall agree on earth as touching any thing that they shall ask, it shall be done for them of my Father which is in heaven.
  
-I shall be satisfied, when I awake, with thy likeness. -- They shall hunger no more, neither thirst any more; neither shall the sun light on them, nor any heat. For the Lamb which is in the midst of the throne shall feed them, and shall lead them unto living fountains of waters: and God shall wipe away all tears from their eyes. -- They shall be abundantly satisfied with the fatness of thy house; and thou shalt make them drink of the river of thy pleasures. -- My people shall be satisfied with my goodness, saith the Lord.  
+The Lord God said, It is not good that the man should be alone. -- Two are better than one; because they have a good reward for their labour. For if they fall, the one will lift up his fellow: but woe to him that is alone when he falleth; for he hath not another to help him up.
+ 
+Let ... no man put a stumblingblock or an occasion to fall in his brother's way. -- Bear ye one another's burdens, and so fulfil the law of Christ. Considering thyself, lest thou also be tempted.  
 
-**Psa 107:9; 1 Pet 2:3; Psa 63:1,2; Psa 84:2; Phl 1:23; Psa 17:15; Rev 7:16,17; Psa 36:8; Jer 31:14**
+**Heb 10:24; Job 6:25; 2 Pet 3:1; Mal 3:16; Matt 18:19; Gen 2:18; Eccl 4:9,10; Rom 14:13; Gal 6:2,1**
 
 ---
 
-[Friday 11-July, 2025](https://t.me/s/daily_light)
+[Saturday 12-July, 2025](https://t.me/s/daily_light)
 
 > Jonathan Bagster, the son of Samuel Bagster, created the Daily Light for his own family's daily devotion in 1875
 
