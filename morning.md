@@ -1,13 +1,13 @@
 **Morning**
 
-**My presence shall go with thee, and I will give thee rest.**
+**I am my Beloved's, and His desire is toward me.**
  
-Be strong and of a good courage, fear not, nor be afraid of them: for the Lord thy God, he it is that doth go with thee; he will not fail thee, nor forsake thee. The Lord, he it is that doth go before thee; he will be with thee, he will not fail thee, neither forsake thee: fear not, neither be dismayed. -- Have not I commanded thee? Be strong and of a good courage; be not afraid, neither be thou dismayed: for the Lord thy God is with thee whithersoever thou goest. -- In all thy ways acknowledge him, and he shall direct thy paths.
+I know whom I have believed, and am persuaded that he is able to keep that which I have committed unto him against that day. -- I am persuaded, that neither death, nor life, nor angels nor principalities, nor powers, nor things present, nor things to come, nor height, nor depth, nor any other creature, shall be able to separate us from the love of God, which is in Christ Jesus our Lord. -- Those that thou gavest me I have kept, and none of them is lost.
  
-He hath said, I will never leave thee, nor forsake thee. So that we may boldly say, The Lord is my helper, and I will not fear what man shall do unto me. -- Our sufficiency is of God.
+The Lord taketh pleasure in his people. -- My delights were with the sons of men. -- His great love wherewith he loved us. -- Greater love hath no man than this, that a man lay down his life for his friends.
  
-Lead us not into temptation. -- O Lord, I know that the way of man is not in himself: it is not in man that walketh to direct his steps. -- My times are in thy hand.  
+Ye are bought with a price: therefore glorify God in you body, and in your spirit, which are God's. -- Whether we live, we live unto the Lord; and whether we die, we die unto the Lord: whether we live therefore, or die, we are the Lord's.  
 
-**Exo 33:14; Deut 31:6,8; Josh 1:9; Prov 3:6; Heb 13:5,6; 2 Cor 3:5; Matt 6:13; Jer 10:23; Psa 31:15**
+**Song 7:10; 2 Tim 1:12; Rom 8:38,39; John 17:12; Psa 149:4; Prov 8:31; Eph 2:4; John 15:13; 1 Cor 6:20; Rom 14:8**
 
-[Saturday 12-July, 2025](https://t.me/daily_light)
+[Sunday 13-July, 2025](https://t.me/daily_light)

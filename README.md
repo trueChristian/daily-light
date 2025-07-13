@@ -1,32 +1,30 @@
 # Morning
 
-**My presence shall go with thee, and I will give thee rest.**
+**I am my Beloved's, and His desire is toward me.**
  
-Be strong and of a good courage, fear not, nor be afraid of them: for the Lord thy God, he it is that doth go with thee; he will not fail thee, nor forsake thee. The Lord, he it is that doth go before thee; he will be with thee, he will not fail thee, neither forsake thee: fear not, neither be dismayed. -- Have not I commanded thee? Be strong and of a good courage; be not afraid, neither be thou dismayed: for the Lord thy God is with thee whithersoever thou goest. -- In all thy ways acknowledge him, and he shall direct thy paths.
+I know whom I have believed, and am persuaded that he is able to keep that which I have committed unto him against that day. -- I am persuaded, that neither death, nor life, nor angels nor principalities, nor powers, nor things present, nor things to come, nor height, nor depth, nor any other creature, shall be able to separate us from the love of God, which is in Christ Jesus our Lord. -- Those that thou gavest me I have kept, and none of them is lost.
  
-He hath said, I will never leave thee, nor forsake thee. So that we may boldly say, The Lord is my helper, and I will not fear what man shall do unto me. -- Our sufficiency is of God.
+The Lord taketh pleasure in his people. -- My delights were with the sons of men. -- His great love wherewith he loved us. -- Greater love hath no man than this, that a man lay down his life for his friends.
  
-Lead us not into temptation. -- O Lord, I know that the way of man is not in himself: it is not in man that walketh to direct his steps. -- My times are in thy hand.  
+Ye are bought with a price: therefore glorify God in you body, and in your spirit, which are God's. -- Whether we live, we live unto the Lord; and whether we die, we die unto the Lord: whether we live therefore, or die, we are the Lord's.  
 
-**Exo 33:14; Deut 31:6,8; Josh 1:9; Prov 3:6; Heb 13:5,6; 2 Cor 3:5; Matt 6:13; Jer 10:23; Psa 31:15**
+**Song 7:10; 2 Tim 1:12; Rom 8:38,39; John 17:12; Psa 149:4; Prov 8:31; Eph 2:4; John 15:13; 1 Cor 6:20; Rom 14:8**
 
 # Evening
 
-**Let us consider one another to provoke unto love and to good works.**
+**Seek ye out of the book of the Lord.**
  
-How forcible are right words! -- I stir up your pure minds by way of remembrance.
+Ye shall lay up these my words in your heart and in your soul, and bind them for a sign upon your hand, that they may be as frontlets between your eyes. -- This book of the law shall not depart out of thy mouth; but thou shalt meditate therein day and night, that thou mayest observe to do according to all that is written therein: for then thou shalt make thy way prosperous, and then thou shalt have good success.
  
-They that feared the Lord spake often one to another: and the Lord hearkened, and heard it, and a book of remembrance was written before him for them that feared the Lord, and that thought upon his name. -- If two of you shall agree on earth as touching any thing that they shall ask, it shall be done for them of my Father which is in heaven.
+The law of his God is in his heart; none of his steps shall slide. -- By the word of thy lips I have kept me from the paths of the destroyer. -- Thy word have I hid in mine heart, that I might not sin against thee.
  
-The Lord God said, It is not good that the man should be alone. -- Two are better than one; because they have a good reward for their labour. For if they fall, the one will lift up his fellow: but woe to him that is alone when he falleth; for he hath not another to help him up.
- 
-Let ... no man put a stumblingblock or an occasion to fall in his brother's way. -- Bear ye one another's burdens, and so fulfil the law of Christ. Considering thyself, lest thou also be tempted.  
+We have ... a more sure word of prophecy; whereunto ye do well that ye take heed, as unto a light that shineth in a dark place until the day dawn, and the day star arise in your hearts. -- That we through patience and comfort of the scriptures might have hope.  
 
-**Heb 10:24; Job 6:25; 2 Pet 3:1; Mal 3:16; Matt 18:19; Gen 2:18; Eccl 4:9,10; Rom 14:13; Gal 6:2,1**
+**Isa 34:16; Deut 11:18; Josh 1:8; Psa 37:31; Psa 17:4; Psa 119:11; 2 Pet 1:19; Rom 15:4**
 
 ---
 
-[Saturday 12-July, 2025](https://t.me/s/daily_light)
+[Sunday 13-July, 2025](https://t.me/s/daily_light)
 
 > Jonathan Bagster, the son of Samuel Bagster, created the Daily Light for his own family's daily devotion in 1875
 
