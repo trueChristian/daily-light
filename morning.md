@@ -1,13 +1,15 @@
 **Morning**
 
-**I am my Beloved's, and His desire is toward me.**
+**Out of the abundance of the heart the mouth speaketh.**
  
-I know whom I have believed, and am persuaded that he is able to keep that which I have committed unto him against that day. -- I am persuaded, that neither death, nor life, nor angels nor principalities, nor powers, nor things present, nor things to come, nor height, nor depth, nor any other creature, shall be able to separate us from the love of God, which is in Christ Jesus our Lord. -- Those that thou gavest me I have kept, and none of them is lost.
+Let the word of Christ dwell in you richly in all wisdom.
  
-The Lord taketh pleasure in his people. -- My delights were with the sons of men. -- His great love wherewith he loved us. -- Greater love hath no man than this, that a man lay down his life for his friends.
+Keep thy heart with all diligence; for out of it are the issues of life. -- Death and life are in the power of the tongue. --The mouth of the righteous speaketh wisdom, and his tongue talketh of judgment. The law of his God is in his heart: none of his steps shall slide. -- Let no corrupt communication proceed out of your mouth, but that which is good to the use of edifying, that it may minister grace unto the hearers.
  
-Ye are bought with a price: therefore glorify God in you body, and in your spirit, which are God's. -- Whether we live, we live unto the Lord; and whether we die, we die unto the Lord: whether we live therefore, or die, we are the Lord's.  
+We cannot but speak the things which we have seen and heard. -- I believed, therefore have I spoken.
+ 
+Whosoever ... shall confess me before men, him will I confess also before my Father which is in heaven. -- With the heart man believeth unto righteousness; and with the mouth confession is made unto salvation.  
 
-**Song 7:10; 2 Tim 1:12; Rom 8:38,39; John 17:12; Psa 149:4; Prov 8:31; Eph 2:4; John 15:13; 1 Cor 6:20; Rom 14:8**
+**Matt 12:34; Col 3:16; Prov 4:23; Prov 18:21; Psa 37:30,31; Eph 4:29; Acts 4:20; Psa 116:10; Mark 10:32; Rom 10:10**
 
-[Sunday 13-July, 2025](https://t.me/daily_light)
+[Monday 14-July, 2025](https://t.me/daily_light)
