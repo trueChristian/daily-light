@@ -1,32 +1,34 @@
 # Morning
 
-**Out of the abundance of the heart the mouth speaketh.**
+**Thy will be done in earth, as it is in heaven.**
  
-Let the word of Christ dwell in you richly in all wisdom.
+Bless the Lord, ye his angels, that excel in strength, that do his commandments, hearkening unto the voice of his word. Bless ye the Lord, all ye his hosts; ye ministers of his, that do his pleasure.
  
-Keep thy heart with all diligence; for out of it are the issues of life. -- Death and life are in the power of the tongue. --The mouth of the righteous speaketh wisdom, and his tongue talketh of judgment. The law of his God is in his heart: none of his steps shall slide. -- Let no corrupt communication proceed out of your mouth, but that which is good to the use of edifying, that it may minister grace unto the hearers.
+I came down from heaven not to do mine own will, but the will of him that sent me. -- I delight to do thy will, O my God; yea, thy law is within my heart. -- O my Father, if this cup may not pass away from me, except I drink it, thy will be done.
  
-We cannot but speak the things which we have seen and heard. -- I believed, therefore have I spoken.
+Not every one that saith unto me, Lord, Lord, shall enter into the kingdom of heaven; but he that doeth the will of my Father which is in heaven. -- Not the hearers of the law are just before God, but the doers of the law shall be justified. -- If ye know these things, happy are ye if ye do them. -- To him that knoweth to do good, and doeth it not, to him it is sin.
  
-Whosoever ... shall confess me before men, him will I confess also before my Father which is in heaven. -- With the heart man believeth unto righteousness; and with the mouth confession is made unto salvation.  
+Be not conformed to this world: but ye be transformed by the renewing of your mind.  
 
-**Matt 12:34; Col 3:16; Prov 4:23; Prov 18:21; Psa 37:30,31; Eph 4:29; Acts 4:20; Psa 116:10; Mark 10:32; Rom 10:10**
+**Matt 6:10; Psa 103:20,21; John 6:38; Psa 40:8; Matt 26:42; Matt 7:21; Rom 2:13; John 13:17; Jas 4:17; Rom 12:2**
 
 # Evening
 
-**I trust I shall shortly see thee, and we shall speak face to face.**
+**The ear trieth words, as the mouth tasteth meat.**
  
-Oh that thou wouldest rend the heavens, that thou wouldest come down! -- As the hart panteth after the water brooks, so panteth my soul after thee, O God. My soul thirsteth for God, for the living God: when shall I come and appear before God? -- Make haste, my beloved, and be thou like to a roe or to a young hart upon the mountains of spices.
+Beloved, believe not every spirit, but try the spirits whether they are of God: because many false prophets are gone out into the world. -- Judge not according to the appearance, but judge righteous judgment. -- I speak as to wise men; judge ye what I say. -- Let the word of Christ dwell in you richly in all wisdom.
  
-Our conversation is in heaven; from whence also we look for the Saviour, the Lord Jesus Christ. -- Looking for that blessed hope, and the glorious appearing of the great God and our Saviour Jesus Christ. -- God our Saviour, and Lord Jesus Christ, which is our hope. -- Whom having not seen, ye love.
+He that hath an ear, let him hear what the Spirit saith. -- He that is spiritual judgeth all things.
  
-He which testifieth these things saith, Surely I come quickly; Amen. Even so, come, Lord Jesus. -- It shall be said in that day, Lo, this is our God; we have waited for him, and he will save us: this is the Lord; we have waited for him, we will be glad and rejoice in his salvation.  
+Take heed what ye hear. -- I know thy works, ... and how thou hast tried them which say they are apostles, and are not, and hast found them liars. -- Prove all things; hold fast that which is good.
+ 
+He calleth his own sheep by name, and leadeth them out. And when he putteth forth his own sheep, he goeth before them, and the sheep follow him: for they know his voice. And a stranger will they not follow, but will flee from him: for they know not the voice of strangers.  
 
-**21 John 14; Isa 64:1; Psa 42:1,2; Song 8:14; Phl 3:20; Tit 2:13; 1 Tim 1:1; 1 Pet 1:8; Rev 22:20; Isa 25:9**
+**Job 34:3; 1 John 4:1; John 7:24; 1 Cor 10:15; Col 3:16; Rev 2:29; 1 Cor 2:15; Mark 4:24; Rev 2:2; 1 Thes 5:21; John 10:3‑5**
 
 ---
 
-[Monday 14-July, 2025](https://t.me/s/daily_light)
+[Tuesday 15-July, 2025](https://t.me/s/daily_light)
 
 > Jonathan Bagster, the son of Samuel Bagster, created the Daily Light for his own family's daily devotion in 1875
 
