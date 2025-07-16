@@ -1,48 +1,44 @@
 {
-  "date_key": "july-15",
-  "date_name": "Tuesday 15-July, 2025",
+  "date_key": "july-16",
+  "date_name": "Wednesday 16-July, 2025",
   "evening": {
     "body": [
-      "Beloved, believe not every spirit, but try the spirits whether they are of God: because many false prophets are gone out into the world. -- Judge not according to the appearance, but judge righteous judgment. -- I speak as to wise men; judge ye what I say. -- Let the word of Christ dwell in you richly in all wisdom.",
-      "He that hath an ear, let him hear what the Spirit saith. -- He that is spiritual judgeth all things.",
-      "Take heed what ye hear. -- I know thy works, ... and how thou hast tried them which say they are apostles, and are not, and hast found them liars. -- Prove all things; hold fast that which is good.",
-      "He calleth his own sheep by name, and leadeth them out. And when he putteth forth his own sheep, he goeth before them, and the sheep follow him: for they know his voice. And a stranger will they not follow, but will flee from him: for they know not the voice of strangers."
+      "Watch and pray, that ye enter not into temptation. -- Continue in prayer, and watch in the same with thanksgiving. -- Casting all your care upon him; for he careth for you. Be sober, be vigilant; because your adversary the devil, as a roaring lion, walketh about, seeking whom he may devour: whom resist stedfast in the faith.",
+      "Why call ye me, Lord, Lord, and do not the things which I say? -- Be ye doers of the word, and not hearers only, deceiving your own selves.",
+      "Wherefore criest thou unto me? speak unto the children of Israel, that they go forward.",
+      "Be careful for nothing; but in every thing by prayer and supplication with thanksgiving let your requests be made known unto God. And the peace of God, which passeth all understanding, shall keep your hearts and minds through Christ Jesus."
     ],
-    "header": "The ear trieth words, as the mouth tasteth meat.",
+    "header": "We made our prayer unto our God, and set a watch against them.",
     "name": "Evening",
     "references": [
-      "1 John 4:1",
-      "John 7:24",
-      "1 Cor 10:15",
-      "Col 3:16",
-      "Rev 2:29",
-      "1 Cor 2:15",
-      "Mark 4:24",
-      "Rev 2:2",
-      "1 Thes 5:21",
-      "John 10:3‑5"
+      "Matt 26:41",
+      "Col 4:2",
+      "1 Pet 5:7-9",
+      "Luke 6:46",
+      "Jas 1:22",
+      "Exo 14:15",
+      "Phl 4:6,7"
     ]
   },
   "joomla": "https://git.vdm.dev/christian/mod_dailylight",
   "morning": {
     "body": [
-      "Bless the Lord, ye his angels, that excel in strength, that do his commandments, hearkening unto the voice of his word. Bless ye the Lord, all ye his hosts; ye ministers of his, that do his pleasure.",
-      "I came down from heaven not to do mine own will, but the will of him that sent me. -- I delight to do thy will, O my God; yea, thy law is within my heart. -- O my Father, if this cup may not pass away from me, except I drink it, thy will be done.",
-      "Not every one that saith unto me, Lord, Lord, shall enter into the kingdom of heaven; but he that doeth the will of my Father which is in heaven. -- Not the hearers of the law are just before God, but the doers of the law shall be justified. -- If ye know these things, happy are ye if ye do them. -- To him that knoweth to do good, and doeth it not, to him it is sin.",
-      "Be not conformed to this world: but ye be transformed by the renewing of your mind."
+      "Thou wast slain, and hast redeemed us to God by thy blood out of every kindred, and tongue, and people, and nation; and hast made us unto our God kings and priests. -- Ye are a chosen generation, a royal priesthood, a holy nation, a peculiar people; that ye should shew forth the praises of him who hath called you out of darkness into his marvellous light.",
+      "Ye shall be named the Priests of the Lord: men shall call you the Ministers of our God. -- Priests of God and of Christ.",
+      "Wherefore, holy brethren, partakers of the heavenly calling, consider the Apostle and High Priest of our profession, Christ Jesus. -- By him therefore let us offer the sacrifice of praise to God continually, that is, the fruit of our lips giving thanks to his name.",
+      "For we are his workmanship, created in Christ Jesus unto good works, which God hath before ordained that we should walk in them. -- The temple of God is holy, which temple ye are."
     ],
-    "header": "Thy will be done in earth, as it is in heaven.",
+    "header": "Ye shall be unto me a kingdom of priests, and a holy nation.",
     "name": "Morning",
     "references": [
-      "Psa 103:20,21",
-      "John 6:38",
-      "Psa 40:8",
-      "Matt 26:42",
-      "Matt 7:21",
-      "Rom 2:13",
-      "John 13:17",
-      "Jas 4:17",
-      "Rom 12:2"
+      "Rev 5:9,10",
+      "1 Pet 2:9",
+      "Isa 61:6",
+      "Rev 20:6",
+      "Heb 3:1",
+      "Heb 13:15",
+      "Eph 2:10",
+      "1 Cor 3:17"
     ]
   },
   "source": "https://github.com/trueChristian/daily-light",
