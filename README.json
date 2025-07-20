@@ -1,44 +1,43 @@
 {
-  "date_key": "july-19",
-  "date_name": "Saturday 19-July, 2025",
+  "date_key": "july-20",
+  "date_name": "Sunday 20-July, 2025",
   "evening": {
     "body": [
-      "Mount Sion, which is Hermon. -- There the Lord commanded the blessing, even life for evermore. -- I will be as the dew unto Israel: he shall grow as the lily, and cast forth his roots as Lebanon.",
-      "My doctrine shall drop as the rain, my speech shall distil as the dew, as the small rain upon the tender herb, and as the showers upon the grass. -- As the rain cometh down, and the snow from heaven, and returneth not thither, but watereth the earth, and maketh it bring forth and bud, that it may give seed to the sower, and bread to the eater: so shall my word be that goeth forth out of my mouth: it shall not return unto me void, but it shall accomplish that which I please, and it shall prosper in the thing whereto I sent it.",
-      "God giveth not the Spirit by measure unto him. -- And of his fulness have all we received, and grace for grace. -- It is like the precious ointment upon the head ... even Aaron's ... that went down to the skirts of his garments."
+      "The joy of the Lord is your strength. -- The kingdom of God is not meat and drink; but righteousness, and peace, and joy in the Holy Ghost. -- Be filled with the Spirit; speaking to yourselves in psalms and hymns and spiritual songs, singing and making melody in your heart to the Lord; giving thanks always for all things unto God and the Father in the name of our Lord Jesus Christ.",
+      "By him ... let us offer the sacrifice of praise to God continually, that is, the fruit of our lips giving thanks to his name.",
+      "Although the fig tree shall not blossom, neither shall fruit be in the vines; the labour of the olive shall fail, and the fields shall yield no meat; the flock shall be cut off from the fold, and there shall be no herd in the stalls: yet I will rejoice in the Lord, I will joy in the God of my salvation. -- Sorrowful, yet alway rejoicing. -- We glory in tribulations also."
     ],
-    "header": "The dew of Hermon.",
+    "header": "He that is of a merry heart hath a continual feast.",
     "name": "Evening",
     "references": [
-      "Deut 4:48",
-      "Psa 133:3",
-      "Hos 14:5",
-      "Deut 32:2",
-      "Isa 55:10,11",
-      "John 3:34",
-      "John 1:16",
-      "Psa 133:2"
+      "Neh 8:10",
+      "Rom 14:17",
+      "Eph 5:18‑20",
+      "Heb 13:15",
+      "Hab 3:17,18",
+      "2 Cor 6:10",
+      "Rom 5:3"
     ]
   },
   "joomla": "https://git.vdm.dev/christian/mod_dailylight",
   "morning": {
     "body": [
-      "Who is like unto thee, O Lord, among the gods? who is like thee, glorious in holiness, fearful in praises, doing wonders? -- Among the gods there is none like unto thee, O Lord; neither are there any works like unto thy works. -- Who shall not fear thee, O Lord, and glorify thy name? for thou only art holy. -- Hallowed be thy name.",
-      "Blessed be the Lord God of Israel; for he hath visited and redeemed his people.",
-      "Who is this that cometh from Edom, with dyed garments from Bozrah? this that is glorious in his apparel, travelling in the greatness of his strength? I that speak in righteousness, mighty to save. -- I have laid help upon one that is mighty; I have exalted one chosen out of the people.",
-      "Now unto him that is able to do exceeding abundantly above all that we ask or think, according to the power that worketh in us, ... be glory."
+      "He is despised and rejected of men; a man of sorrows, and acquainted with grief. -- In the world ye shall have tribulation: but be of good cheer; I have overcome the world.",
+      "Such an high priest became us, who is holy, harmless, undefiled, separate from sinners. -- That ye may be blameless and harmless, the sons of God, without rebuke, in the midst of a crooked and perverse nation.",
+      "Jesus of Nazareth ... went about doing good, and healing all that were oppressed of the devil; for God was with him. -- As we have therefore opportunity, let us do good unto all men, especially unto them who are of the household of faith.",
+      "That was the true Light, which lighteth every man that cometh into the world. -- Ye are the light of the world. A city that is set on a hill cannot be hid. Let your light so shine before men, that they may see your good works, and glorify your Father which is in heaven."
     ],
-    "header": "He that is mighty hath done to me great things; and holy is his name.",
+    "header": "They are not of the world, even as I am not of the world.",
     "name": "Morning",
     "references": [
-      "Exo 15:11",
-      "Psa 86:8",
-      "Rev 15:4",
-      "Matt 6:9",
-      "Luke 1:68",
-      "Isa 63:1",
-      "Psa 89:19",
-      "Eph 3:20,21"
+      "Isa 53:3",
+      "John 16:33",
+      "Heb 7:26",
+      "Phl 2:15",
+      "Acts 10:38",
+      "Gal 6:10",
+      "John 1:9",
+      "Matt 5:14,16"
     ]
   },
   "source": "https://github.com/trueChristian/daily-light",

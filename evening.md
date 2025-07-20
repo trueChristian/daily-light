@@ -1,13 +1,13 @@
 **Evening**
 
-**The dew of Hermon.**
+**He that is of a merry heart hath a continual feast.**
  
-Mount Sion, which is Hermon. -- There the Lord commanded the blessing, even life for evermore. -- I will be as the dew unto Israel: he shall grow as the lily, and cast forth his roots as Lebanon.
+The joy of the Lord is your strength. -- The kingdom of God is not meat and drink; but righteousness, and peace, and joy in the Holy Ghost. -- Be filled with the Spirit; speaking to yourselves in psalms and hymns and spiritual songs, singing and making melody in your heart to the Lord; giving thanks always for all things unto God and the Father in the name of our Lord Jesus Christ.
  
-My doctrine shall drop as the rain, my speech shall distil as the dew, as the small rain upon the tender herb, and as the showers upon the grass. -- As the rain cometh down, and the snow from heaven, and returneth not thither, but watereth the earth, and maketh it bring forth and bud, that it may give seed to the sower, and bread to the eater: so shall my word be that goeth forth out of my mouth: it shall not return unto me void, but it shall accomplish that which I please, and it shall prosper in the thing whereto I sent it.
+By him ... let us offer the sacrifice of praise to God continually, that is, the fruit of our lips giving thanks to his name.
  
-God giveth not the Spirit by measure unto him. -- And of his fulness have all we received, and grace for grace. -- It is like the precious ointment upon the head ... even Aaron's ... that went down to the skirts of his garments.  
+Although the fig tree shall not blossom, neither shall fruit be in the vines; the labour of the olive shall fail, and the fields shall yield no meat; the flock shall be cut off from the fold, and there shall be no herd in the stalls: yet I will rejoice in the Lord, I will joy in the God of my salvation. -- Sorrowful, yet alway rejoicing. -- We glory in tribulations also.  
 
-**Psa 133:3; Deut 4:48; Psa 133:3; Hos 14:5; Deut 32:2; Isa 55:10,11; John 3:34; John 1:16; Psa 133:2**
+**Prov 15:15; Neh 8:10; Rom 14:17; Eph 5:18‑20; Heb 13:15; Hab 3:17,18; 2 Cor 6:10; Rom 5:3**
 
-[Saturday 19-July, 2025](https://t.me/daily_light)
+[Sunday 20-July, 2025](https://t.me/daily_light)
