@@ -1,11 +1,13 @@
 **Evening**
 
-**Thou hast given me the heritage of those that fear thy name.**
+**Nicodemus ... he that came to Jesus by night.**
  
-No weapon that is formed against thee shall prosper; and every tongue that shall rise against thee in judgment thou shalt condemn. This is the heritage of the servants of the Lord, and their righteousness is of me, saith the Lord. -- The angel of the Lord encampeth round about them that fear him, and delivereth them. O taste and see that the Lord is good: blessed is the man that trusteth in him. O fear the Lord, ye his saints: for there is no want to them that fear him. The young lions do lack, and suffer hunger: but they that seek the Lord shall not want any good thing. -- The lines are fallen unto me in pleasant places; yea, I have a goodly heritage.
+Peter followed him afar off. -- Among the chief rulers also many believed on him; but because of the Pharisees they did not confess him, lest they should be put out of the synagogue: for they loved the praise of men more than the praise of God. -- The fear of man bringeth a snare: but whoso putteth his trust in the Lord shall be safe.
  
-Unto you that fear my name shall the Sun of righteousness arise with healing in his wings: and ye shall go forth, and grow up as calves of the stall. -- He that spared not his own Son, but delivered him up for us all, how shall he not with him also freely give us all things?  
+Him that cometh to me I will in no wise cast out. -- A bruised reed shall he not break, and the smoking flax shall he not quench. -- Faith as a grain of mustard seed.
+ 
+God hath not given us the spirit of fear; but of power, and of love, and of a sound mind. Be not thou therefore ashamed of the testimony of our Lord. -- Little children, abide in him; that, when he shall appear, we may have confidence, and not be ashamed before him at his coming. -- Whosoever ... shall confess me before men, him will I confess also before my Father which is in heaven.  
 
-**Psa 61:5; Isa 54:17; Psa 34:7‑10; Psa 16:6; Mal 4:2; Rom 8:32**
+**John 7:50; Matt 26:58; John 12:42,43; Prov 29:25; John 6:37; Isa 42:3; Matt 17:20; 2 Tim 1:7,8; 1 John 2:28; Matt 10:32**
 
-[Tuesday 29-July, 2025](https://t.me/daily_light)
+[Wednesday 30-July, 2025](https://t.me/daily_light)
