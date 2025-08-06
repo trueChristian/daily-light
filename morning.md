@@ -1,11 +1,13 @@
 **Morning**
 
-**Walk in newness of life.**
+**Whom the Lord loveth he correcteth.**
  
-As ye have yielded your members servants to uncleanness and to iniquity unto iniquity; even so now yield your members servants to righteousness unto holiness. -- I beseech you, ... brethren, by the mercies of God, that ye present your bodies a living sacrifice, holy, acceptable unto God, which is your reasonable service. And be not conformed to this world: but be ye transformed by the renewing of your mind.
+See now that I, even I, am he, and there is no god with me: I kill, and I make alive; I wound, and I heal: neither is there any that can deliver out of my hand. -- I know the thoughts that I think toward you, saith the Lord, thoughts of peace, and not of evil, to give you an expected end. -- My thoughts are not your thoughts, neither are your ways my ways, saith the Lord.
  
-If any man be in Christ he is a new creature: old things are passed away; behold, all things are become new. -- In Christ Jesus neither circumcision availeth anything, nor uncircumcision, but a new creature. And as many as walk according to this rule, peace be on them, and mercy. -- This I say therefore, and testify in the Lord, that ye henceforth walk not as other Gentiles walk, in the vanity of their mind. -- Ye have not so learned Christ; if so be that ye have heard him, and have been taught by him, as the truth is in Jesus. Put on the new man, which after God is created in righteousness and true holiness.  
+I will allure her, and bring her into the wilderness, and speak comfortably unto her. -- As a man chasteneth his son, so the Lord thy God chasteneth thee. -- Now no chastening for the present, seemeth to be joyous, but grievous: nevertheless afterward it yieldeth the peaceable fruit of righteousness unto them which are exercised thereby. -- Humble yourselves therefore under the mighty hand of God, that he may exalt you in due time.
+ 
+I know, O Lord, that thy judgments are right, and that thou in faithfulness hast afflicted me.  
 
-**Rom 6:4; Rom 6:19; Rom 12:1,2; 2 Cor 5:17; Gal 6:15,16; Eph 4:17; Eph 4:20,21,24**
+**Prov 3:12; Deut 32:39; Jer 29:11; Isa 55:8; Hos 2:14; Deut 8:5; Heb 12:11; 1 Pet 5:6; Psa 119:75**
 
-[Tuesday 05-August, 2025](https://t.me/daily_light)
+[Wednesday 06-August, 2025](https://t.me/daily_light)
