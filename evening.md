@@ -1,15 +1,13 @@
 **Evening**
 
-**The earth is the Lord's, and the fulness thereof.**
+**What think ye of Christ?**
  
-She did not know that I gave her corn, and wine, and oil, and multiplied her silver and gold. Therefore will I return, and take away my corn in the time thereof, and my wine in the season thereof, and I will recover my wool and my flax.
+Lift up your heads, O ye gates; even lift them up, ye everlasting doors; and the King of glory shall come in. Who is this King of glory? The Lord of hosts, he is the King of glory. -- He hath on his vesture and on his thigh a name written, KING OF KINGS, AND LORD OF LORDS.
  
-All things come of thee, and of thine own have we given thee. For we are strangers before thee, and sojourners, as were all our fathers: our days on the earth are as a shadow, and there is none abiding. O Lord our God, all this store ... cometh of thine hand, and is all thine own. -- Of him, and through him, and to him, are all things: to whom be glory for ever. Amen.
+Unto you ... which believe he is precious: but unto them which be disobedient, the stone which the builders disallowed, the same is made the head of the corner. -- Christ crucified, unto the Jews a stumblingblock, and unto the Greeks foolishness; but unto them which are called, both Jews and Greeks, Christ the power of God, and the wisdom of God.
  
-The living God ... giveth us richly all things to enjoy. -- Every creature of God is good, and nothing to be refused, if it be received with thanksgiving: for it is sanctified by the word of God and prayer.
- 
-My God shall supply all your need according to his riches in glory by Christ Jesus.  
+I count all things but loss for the excellency of the knowledge of Christ Jesus my Lord: for whom I have suffered the loss of all things, and do count them but dung, that I may win Christ. -- Lord, thou knowest all things: thou knowest that I love thee.  
 
-**Psa 24:1; Hos 2:8,9; 1 Chr 29:14‑16; Rom 11:36; 1 Tim 6:17; 1 Tim 4:4,5; Phl 4:19**
+**Matt 22:42; Psa 24:9,10; Rev 9:16; 1 Pet 2:7; 1 Cor 1:23,24; Phl 3:8; John 21:17**
 
-[Wednesday 06-August, 2025](https://t.me/daily_light)
+[Thursday 07-August, 2025](https://t.me/daily_light)
