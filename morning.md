@@ -1,15 +1,9 @@
 **Morning**
 
-**The God of peace make you perfect in every good work to do his will.**
+**The house that is to be builded for the Lord must be exceeding magnifical.**
  
-Be perfect, be of good comfort, be of one mind, live in peace; and the God of love and peace shall be with you.
- 
-By grace are ye saved through faith; and that not of yourselves: it is the gift of God; not of works, lest any man should boast. -- Every good gift and every perfect gift is from above, and cometh down from the Father of lights, with whom is no variableness neither shadow of turning.
- 
-Work out your own salvation with fear and trembling. For it is God which worketh in you both to will and to do of his good pleasure. -- Be ye transformed by the renewing of your mind, that ye may prove what is that good, and acceptable, and perfect, will of God. -- Being filled with the fruits of righteousness, which are by Jesus Christ, unto the glory and praise of God.
- 
-Not that we are sufficient of ourselves to think anything as of ourselves; but our sufficiency is of God.  
+Ye ... as lively stones, are built up a spiritual house. -- Know ye not that ye are the temple of God, and that the Spirit of God dwelleth in you? If any man defile the temple of God, him shall God destroy; for the temple of God is holy, which temple ye are. -- Your body is the temple of the Holy Ghost which is in you, which ye have of God, and ye are not your own. For ye are bought with a price: therefore glorify God in your body and in your spirit, which are God's. -- What agreement hath the temple of God with idols? for ye are the temple of the living God; as God has said, I will dwell in them, and walk in them; and I will be their God, and they shall be my people. -- Ye ... are built upon the foundation of the apostles and prophets, Jesus Christ himself being the chief cornerstone; in whom all the building fitly framed together groweth unto a holy temple in the Lord: in whom ye also are builded together for a habitation of God through the Spirit.  
 
-**Heb 13:20,21; 2 Cor 13:11; Eph 2:8,9; Jas 1:17; Phl 2:12,13; Rom 12:2; Phl 1:11; 2 Cor 3:5**
+**1 Chr 22:5; 1 Pet 2:5; 1 Cor 3:16,17; 1 Cor 6:19,20; 2 Cor 6:16; Eph 2:19-22**
 
-[Friday 15-August, 2025](https://t.me/daily_light)
+[Saturday 16-August, 2025](https://t.me/daily_light)
