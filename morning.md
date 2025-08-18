@@ -1,15 +1,11 @@
 **Morning**
 
-**Pray one for another, that ye may be healed.**
+**What God is there in heaven or in earth, that can do according to thy works, and according to thy might?**
  
-Abraham answered and said, Behold now, I have taken upon me to speak unto the Lord, which am but dust and ashes: peradventure there shall lack five of the fifty righteous: wilt thou destroy all city for lack of five? And he said, If I find there forty and five, I will not destroy it.
+Who in the heaven can be compared unto the LORD? who among the sons of the mighty can be likened unto the LORD? O LORD God of hosts, who is a strong LORD like unto thee? or to thy faithfulness round about thee? -- Among the gods there is none like unto thee, O Lord; neither are there any works like unto thy works. -- For thy word's sake, and according to thine own heart hast thou done all these great things, to make thy servant know them. Wherefore thou art great, O LORD God: for there is none like thee, neither is there any God beside thee, according to all that we have heard with our ears.
  
-Father, forgive them; for they know not what they do. -- Pray for them which despitefully use you, and persecute you.
- 
-I pray for them: I pray not for the world, but for them which thou hast given me; for they are thine. Neither pray I for these alone, but for them also which shall believe on me through their word. -- Bear ye one another's burdens, and so fulfil the law of Christ.
- 
-The effectual fervent prayer of a righteous man availeth much. Elias was a man subject to like passions as we are, and he prayed earnestly that it might not rain: and it rained not on the earth by the space of three years and six months.  
+Eye hath not seen, nor ear heard, neither have entered into the heart of man, the things which God hath prepared for them that love him. But God hath revealed them unto us by his Spirit. -- The secret things belong unto the LORD our God: but those thing which are revealed belong unto us and to our children.  
 
-**Jas 5:16; Gen 18:27,28; Luke 23:34; Matt 5:44; John 17:9,20; Gal 6:2; Jas 5:16,17**
+**Deut 3:24; Psa 89:6,8; Psa 86:8; 2 Sam 7:21,22; 1 Cor 2:9,10; Deut 29:29**
 
-[Sunday 17-August, 2025](https://t.me/daily_light)
+[Monday 18-August, 2025](https://t.me/daily_light)
