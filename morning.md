@@ -1,13 +1,15 @@
 **Morning**
 
-**As he which hath called you is holy, so be ye holy in all manner of conversation.**
+**God is not a man, that he should lie; neither the son of man, that he should repent.**
  
-Ye know how we exhorted ... and charged every one of you, that ye would walk worthy of God, who hath called you unto his kingdom and glory. -- Ye should shew forth the praises of him who hath called you out of darkness into his marvellous light.
+The Father of lights, with whom is no variableness, neither shadow of turning. -- Jesus Christ, the same yesterday, and today, and for ever.
  
-Ye were sometime darkness, but now are ye light in the Lord: walk as children of light: (for the fruit of the Spirit is in all goodness and righteousness and truth;) proving what is acceptable unto the Lord. And have no fellowship with the unfruitful works of darkness, but rather reprove them. -- Being filled with the fruits of righteousness, which are by Jesus Christ, unto the glory and praise of God.
+His truth shall be thy shield and buckler.
  
-Let your light so shine before men, that they may see your good works, and glorify your Father which is in heaven. -- Whether therefore ye eat, or drink, or whatsoever ye do, do all to the glory of God.  
+God, willing more abundantly to shew unto the heirs of promise the immutability of his counsel, confirmed it by an oath; that by two immutable things, in which it was impossible for God to lie, we might have a strong consolation, who have fled for refuge to lay hold upon the hope set before us.
+ 
+The faithful God, which keepeth covenant and mercy with them that love him and keep his commandments to a thousand generations. -- All the paths of the LORD are mercy and truth unto such as keep his covenant and his testimonies. -- Happy is he that hath the God of Jacob for his help, whose hope is in the LORD his God ... which keepeth truth for ever.  
 
-**1 Pet 1:15; 1 Thes 2:11,12; 1 Pet 2:9; Eph 5:8-11; Phl 1:11; Matt 5:16; 1 Cor 10:31**
+**Num 23:19; Jas 1:17; Heb 13:8; Psa 91:4; Heb 6:17,18; Deut 7:9; Psa 25:10; Psa 146:5,6**
 
-[Tuesday 19-August, 2025](https://t.me/daily_light)
+[Wednesday 20-August, 2025](https://t.me/daily_light)
