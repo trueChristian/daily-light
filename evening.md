@@ -1,13 +1,15 @@
 **Evening**
 
-**If thou faint in the day of adversity, thy strength is small.**
+**There is a way which seemeth right unto a man, but the end thereof are the ways of death.**
  
-He giveth power to the faint; and to them that have no might he increaseth strength. -- My grace is sufficient for thee: for my strength is made perfect in weakness. -- He shall call upon me, and I will answer him: I will be with him in trouble; I will deliver him. -- The eternal God is thy refuge, and underneath are the everlasting arms: and he shall thrust out the enemy from before thee.
+He that trusteth in his own heart is a fool.
  
-I looked for some to take pity, but there was none; and for comforters, but I found none.
+Thy word is a lamp unto my feet, and a light unto my path. -- Concerning the works of men, by the word of thy lips I have kept me from the paths of the destroyer.
  
-Every high priest taken from among men is ordained for men in things pertaining to God, ... who can have compassion on the ignorant, and on them that are out of the way: so also Christ, ... though he were a Son, yet learned he obedience by the things which he suffered; and being made perfect, he became the author of eternal salvation unto all them that obey him. -- Surely he hath borne our griefs, and carried our sorrows.  
+If there arise among you a prophet, or a dreamer of dreams, saying, Let us go after other gods, which thou hast not known, and let us serve them; thou shalt not hearken unto the words of that prophet: for the LORD your God proveth you, to know whether ye love the LORD your God with all your heart and with all your soul. Ye shall walk after the LORD your God, and fear him, and keep his commandments, and obey his voice, and ye shall serve him, and cleave unto him.
+ 
+I will instruct thee and teach thee in the way which thou shalt go; I will guide thee with mine eye.  
 
-**Prov 24:10; Isa 40:29; 2 Cor 12:9; Psa 91:15; Deut 33:27; Psa 69:20; Heb 5:1,2,5,8,9; Isa 53:4**
+**Prov 14:12; Psa 28:26; Psa 119:105; Psa 17:4; Deut 13:1-4; Psa 32:8**
 
-[Wednesday 20-August, 2025](https://t.me/daily_light)
+[Thursday 21-August, 2025](https://t.me/daily_light)
