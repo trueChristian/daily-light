@@ -1,15 +1,15 @@
 **Evening**
 
-**I have made, and I will bear.**
+**I must work the works of him that sent me, while it is day.**
  
-Thus saith the LORD that created thee, O Jacob, and he that formed thee, O Israel, Fear not: for I have redeemed thee, I have called thee by thy name; thou art mine. When thou passest through the waters, I will be with thee; and through the rivers, they shall not overflow thee. -- Even to your old age I am he; and even to hoar hairs will I carry you.
+The soul of the sluggard desireth, and hath nothing: but the soul of the diligent shall be made fat. -- He that watereth shall be watered.
  
-As an eagle stirreth up her nest, fluttereth over her young, spreadeth abroad her wings, taketh them, beareth them on her wings: so the LORD alone did lead him. -- He bare them, and carried them all the days of old.
+My meat is to do the will of him that sent me, and to finish his work. Say not ye, There are yet four months, and then cometh harvest: behold, I say unto you, Lift up your eyes, and look on the fields; for they are white already to harvest. And he that reapeth receiveth wages, and gathereth fruit unto life eternal: that both he that soweth and he that reapeth may rejoice together. -- The kingdom of heaven is like unto a man that is an householder, which went out early in the morning to hire labourers into his vineyard. And when he had agreed with the labourers for a penny a day, he sent them into his vineyard.
  
-Jesus Christ the same yesterday, and today, and forever. -- For I am persuaded, that neither ... height, nor depth, nor any other creature, shall be able to separate us from the love of God, which is in Christ Jesus our Lord.
+Preach the word; be instant in season, out of season. -- Occupy till I come.
  
-Can a woman forget her sucking child, that she should not have compassion on the son of her womb? yea, they may forget, yet will I not forget thee.  
+I laboured more abundantly than they all: yet not I, but the grace of God which was with me.  
 
-**Isa 46:4; Isa 43:1,2; Isa 46:4; Deut 32:11,12; Isa 63:9; Heb 13:8; Rom 8:38,39; Isa 49:15**
+**John 9:4; Prov 13:4; Prov 11:25; John 4:34-36; Matt 20:1,2; 2 Tim 4:2; Luke 19:13; 1 Cor 15:10**
 
-[Saturday 23-August, 2025](https://t.me/daily_light)
+[Sunday 24-August, 2025](https://t.me/daily_light)
