@@ -1,48 +1,40 @@
 {
-  "date_key": "august-24",
-  "date_name": "Sunday 24-August, 2025",
+  "date_key": "august-25",
+  "date_name": "Monday 25-August, 2025",
   "evening": {
     "body": [
-      "The soul of the sluggard desireth, and hath nothing: but the soul of the diligent shall be made fat. -- He that watereth shall be watered.",
-      "My meat is to do the will of him that sent me, and to finish his work. Say not ye, There are yet four months, and then cometh harvest: behold, I say unto you, Lift up your eyes, and look on the fields; for they are white already to harvest. And he that reapeth receiveth wages, and gathereth fruit unto life eternal: that both he that soweth and he that reapeth may rejoice together. -- The kingdom of heaven is like unto a man that is an householder, which went out early in the morning to hire labourers into his vineyard. And when he had agreed with the labourers for a penny a day, he sent them into his vineyard.",
-      "Preach the word; be instant in season, out of season. -- Occupy till I come.",
-      "I laboured more abundantly than they all: yet not I, but the grace of God which was with me."
+      "I will bless the LORD at all times: his praise shall continually be in my mouth. My soul shall make her boast in the LORD: the humble shall hear thereof, and be glad. O magnify the LORD with me, and let us exalt his name together. -- The LORD will give grace and glory: no good thing will he withhold from them that walk uprightly. O LORD of hosts, blessed is the man that trusteth in thee. -- Bless the LORD, O my soul: and all that is within me, bless his holy name.",
+      "Is any merry? let him sing psalms. -- Be filled with the Spirit; speaking to yourselves in psalms and hymns and spiritual songs, singing and making melody in your heart to the LORD; giving thanks always for all things. -- Singing with grace in your hearts to the Lord.",
+      "At midnight Paul and Silas prayed, and sang praises unto God: and the prisoners heard them. -- Rejoice in the Lord alway: and again, I say, Rejoice."
     ],
-    "header": "I must work the works of him that sent me, while it is day.",
+    "header": "I will greatly rejoice in the Lord, my soul shall be joyful in my God.",
     "name": "Evening",
     "references": [
-      "Prov 13:4",
-      "Prov 11:25",
-      "John 4:34-36",
-      "Matt 20:1,2",
-      "2 Tim 4:2",
-      "Luke 19:13",
-      "1 Cor 15:10"
+      "Psa 34:1-3",
+      "Psa 84:11,12",
+      "Psa 103:1",
+      "Jas 5:13",
+      "Eph 5:18-20",
+      "Col 3:16",
+      "Acts 16:25",
+      "Phl 4:4"
     ]
   },
   "joomla": "https://git.vdm.dev/christian/mod_dailylight",
   "morning": {
     "body": [
-      "A man of sorrows and acquainted with grief. -- Touched with the feeling of our infirmities.",
-      "Himself took our infirmities, and bare our sicknesses. -- Jesus being wearied with his journey, sat thus on the well.",
-      "When Jesus ... saw her weeping, and the Jews also weeping which came with her, he groaned in the spirit, and was troubled. Jesus wept. -- For in that he himself hath suffered being tempted, he is able to succour them that are tempted.",
-      "He hath looked down from the height of his sanctuary; from heaven did the LORD behold the earth; to hear the groaning of the prisoner; to loose those that are appointed to death. -- He knoweth the way that I take: when he hath tried me, I shall come forth as gold. -- When my spirit was overwhelmed within me, then thou knewest my path.",
-      "He that toucheth you toucheth the apple of his eye. -- In all their affliction he was afflicted; and the angel of his presence saved them."
+      "Behold, I was shapen in iniquity. -- None eye pitied thee but thou wast cast out in the open field, to the loathing of thy person, in the day that thou wast born. And when I passed by thee, and saw thee polluted in thine own blood, I said unto thee, Live.",
+      "He brought me up ... out of a horrible pit, out of the miry clay, and set my feet upon a rock, and established my goings. And he hath put a new song in my mouth, even praise unto our God.",
+      "When we were yet without strength, in due time Christ died for the ungodly. For scarcely for a righteous man will one die: yet peradventure for a good man some would even dare to die. But God commendeth his love toward us, in that, while we were yet sinners, Christ died for us. -- God, who is rich in mercy, for his great love wherewith he loved us, even when we were dead in sins, hath quickened us together with Christ."
     ],
-    "header": "I know their sorrows.",
+    "header": "Look unto the rock whence ye are hewn, and to the hole of the pit whence ye are digged.",
     "name": "Morning",
     "references": [
-      "Isa 53:3",
-      "Heb 4:15",
-      "Matt 8:17",
-      "John 4:6",
-      "John 11:33,35",
-      "Heb 2:18",
-      "Psa 102:19,20",
-      "Job 23:10",
-      "Psa 142:3",
-      "Zech 2:8",
-      "Isa 63:9"
+      "Psa 51:5",
+      "Ezek 16:5,6",
+      "Psa 40:2,3",
+      "Rom 5:6-8",
+      "Eph 2:4,5"
     ]
   },
   "source": "https://github.com/trueChristian/daily-light",
