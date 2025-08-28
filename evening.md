@@ -1,13 +1,13 @@
 **Evening**
 
-**What meanest thou, O sleeper? arise.**
+**The tree of life**.
  
-This is not your rest: ... it is polluted, it shall destroy you. -- Set your affection on things above, not on things on the earth. -- If riches increase, set not your heart upon them. -- Set your heart and your soul to seek your God: arise therefore.
+God hath given to us eternal life, and this life is in his Son. -- He gave his only begotten Son, that whosoever believeth in him should not perish, but have everlasting life. -- As the Father raiseth up the dead, and quickeneth them; even so the Son quickeneth whom he will. As the Father hath life in himself; so hath he given to the Son to have life in himself.
  
-Why sleep ye? rise and pray, lest ye enter into temptation. -- Take heed to yourselves, lest at any time your hearts be overcharged with surfeiting, and drunkenness, and cares of this life, and so that day come upon you unawares.
+To him that overcometh will I give to eat of the tree of life, which is in the midst of the paradise of God. -- In the midst of the street of it, and on either side of the river, was there the tree of life, which bare twelve manner of fruits, and yielded her fruit every month: and the leaves of the tree were for the healing of the nations.
  
-While the bridegroom tarried, they all slumbered and slept. -- Yet a little while, and he that shall come will come, and will not tarry. -- Now it is high time to awake out of sleep: for now is our salvation nearer than when we believed. -- Watch ye therefore: for ye know not when the master of the house cometh, at even, or at midnight, or at the cockcrowing, or in the morning: lest coming suddenly he finds you sleeping.  
+Happy is the man that findeth wisdom. Length of days is in her right hand. She is a tree of life to them that lay hold upon her: and happy is every one that retaineth her. -- Christ Jesus, ... is made unto us wisdom.  
 
-**Jon 1:6; Mic 2:10; Col 3:2; Psa 62:10; 1 Chr 22:19; Luke 22:46; Luke 21:34; Matt 25:5; Heb 10:37; Rom 13:11; Mark 13:35,36**
+**Gen 2:9; 1 John 5:11; John 3:16; John 5:21,26; Rev 2:7; Rev 22:2; Prov 3:13,16,18; 1 Cor 1:30**
 
-[Wednesday 27-August, 2025](https://t.me/daily_light)
+[Thursday 28-August, 2025](https://t.me/daily_light)

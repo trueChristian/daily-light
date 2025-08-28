@@ -1,28 +1,28 @@
 # Morning
 
-**Thy word is a lamp unto my feet, and a light unto my path.**
+**The accuser of our brethren is cast down, which accused them before our God day and night.**
  
-By the word of thy lips I have kept me from the paths of the destroyer. Hold up my goings in thy paths, that my footsteps slip not. -- When thou goest, it shall lead thee; when thou sleepest, it shall keep thee; and when thou awakest, it shall talk with thee. For the commandment is a lamp; and the law is light. -- Thine ears shall hear a word behind thee, saying, This is the way, walk ye in it, when ye turn to the right hand, and when ye turn to the left.
+They overcame him by the blood of the Lamb, and by the word of their testimony. -- Who shall lay any thing to the charge of God's elect? It is God that justifieth. Who is he that condemneth? It is Christ that died, yea, rather, that is risen again, who is even at the right hand of God, who also maketh intercession for us.
  
-I am the light of the world: he that followeth me shall not walk in darkness, but shall have the light of life. -- We have also a sure word of prophecy; whereunto ye do well that ye take heed, as unto a light that shineth in a dark place. -- Now we see through a glass, darkly; but then face to face: now I know in part; but then shall I know even as also I am known. -- They need no candle, neither light of the sun; for the Lord God giveth them light: and they shall reign for ever and ever.  
+Having spoiled principalities and powers, he made a shew of them openly. -- That through death he might destroy him that had the power of death, that is, the devil; and deliver them who through fear of death were all their lifetime subject to bondage. -- In all these things we are more than conquerors, through him that loved us. -- Put on the whole armour of God, that ye may be able to stand against the wiles of the devil. And take the sword of the Spirit, which is the word of God. -- Thanks be to God, which giveth us the victory through our Lord Jesus Christ.  
 
-**Psa 119:105; Psa 17:4,5; Prov 6:22,23; Isa 30:21; John 8:12; 2 Pet 1:19; 1 Cor 13:12; Rev 22:5**
+**Rev 12:10; Rev 12:11; Rom 8:33,34; Col 2:15; Heb 2:14,15; Rom 8:37; Eph 6:11,17; 1 Cor 15:57**
 
 # Evening
 
-**What meanest thou, O sleeper? arise.**
+**The tree of life**.
  
-This is not your rest: ... it is polluted, it shall destroy you. -- Set your affection on things above, not on things on the earth. -- If riches increase, set not your heart upon them. -- Set your heart and your soul to seek your God: arise therefore.
+God hath given to us eternal life, and this life is in his Son. -- He gave his only begotten Son, that whosoever believeth in him should not perish, but have everlasting life. -- As the Father raiseth up the dead, and quickeneth them; even so the Son quickeneth whom he will. As the Father hath life in himself; so hath he given to the Son to have life in himself.
  
-Why sleep ye? rise and pray, lest ye enter into temptation. -- Take heed to yourselves, lest at any time your hearts be overcharged with surfeiting, and drunkenness, and cares of this life, and so that day come upon you unawares.
+To him that overcometh will I give to eat of the tree of life, which is in the midst of the paradise of God. -- In the midst of the street of it, and on either side of the river, was there the tree of life, which bare twelve manner of fruits, and yielded her fruit every month: and the leaves of the tree were for the healing of the nations.
  
-While the bridegroom tarried, they all slumbered and slept. -- Yet a little while, and he that shall come will come, and will not tarry. -- Now it is high time to awake out of sleep: for now is our salvation nearer than when we believed. -- Watch ye therefore: for ye know not when the master of the house cometh, at even, or at midnight, or at the cockcrowing, or in the morning: lest coming suddenly he finds you sleeping.  
+Happy is the man that findeth wisdom. Length of days is in her right hand. She is a tree of life to them that lay hold upon her: and happy is every one that retaineth her. -- Christ Jesus, ... is made unto us wisdom.  
 
-**Jon 1:6; Mic 2:10; Col 3:2; Psa 62:10; 1 Chr 22:19; Luke 22:46; Luke 21:34; Matt 25:5; Heb 10:37; Rom 13:11; Mark 13:35,36**
+**Gen 2:9; 1 John 5:11; John 3:16; John 5:21,26; Rev 2:7; Rev 22:2; Prov 3:13,16,18; 1 Cor 1:30**
 
 ---
 
-[Wednesday 27-August, 2025](https://t.me/s/daily_light)
+[Thursday 28-August, 2025](https://t.me/s/daily_light)
 
 > Jonathan Bagster, the son of Samuel Bagster, created the Daily Light for his own family's daily devotion in 1875
 
