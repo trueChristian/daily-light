@@ -1,32 +1,28 @@
 # Morning
 
-**The king held out ... the golden sceptre. So Esther drew near, and touched the top of the sceptre**.
+**The free gift is of many offences unto justification.**
  
-It shall come to pass, when he crieth unto me, that I will hear; for I am gracious.
+Though your sins be as scarlet, they shall be as white as snow; though they be red like crimson, they shall be as wool. -- I, even I, am he that blotteth out thy transgressions for mine own sake, and will not remember thy sins. Put me in remembrance: let us plead together: declare thou, that thou mayest be justified. -- I have blotted out, as a thick cloud, thy transgressions, and, as a cloud, thy sins: return unto me; for I have redeemed thee.
  
-We have known and believed the love that God hath to us. God is love; and he that dwelleth in love dwelleth in God, and God in him. Herein is our love made perfect, that we may have boldness in the day of judgment: because as he is, so are we in this world. There is no fear in love; but perfect love casteth out fear: because fear hath torment. He that feareth is not made perfect in love. We love him, because he first loved us.
- 
-Let us draw near with a true heart, in full assurance of faith, having our hearts sprinkled from an evil conscience, and our bodies washed with pure water. -- For through him we ... have access by one Spirit unto the Father. -- We have boldness and access with confidence by the faith of him. -- Let us therefore come boldly unto the throne of grace, that we may obtain mercy, and find grace to help in time of need.  
+God so loved the world, that he gave his only begotten Son, that whosoever believeth in him should not perish, but have everlasting life. -- Not as the offence, so also is the free gift. For if through the offence of one many be dead, much more the grace of God, and the gift by grace, which is by one man, Jesus Christ, hath abounded unto many. -- And such were some of you: but ye are washed, but ye are sanctified, but ye are justified in the name of the Lord Jesus, and by the Spirit of our God.  
 
-**Esth 5:2; Exo 22:27; 1 John 4:16-19; Heb 10:22; Eph 2:18; Eph 3:12; Heb 4:16**
+**Rom 5:16; Isa 1:18; Isa 43:25,26; Isa 44:22; John 3:16; Rom 5:15; 1 Cor 6:11**
 
 # Evening
 
-**They said, ... it is manna: for they wist not what it was.**
+**Occupy till I come.**
  
-Without controversy great is the mystery of godliness: God was manifest in the flesh. -- The bread of God is he which cometh down from heaven, and giveth life unto the world.
+The Son of man is as a man taking a far journey, who left his house, and gave authority to his servants, and to every man his work, and commanded the porter to watch. -- Unto one he gave five talents, to another two, and to another one; to every man according to his several ability; and straightway took his journey.
  
-Your fathers did eat manna in the wilderness, and are dead. -- If any man eat of this bread, he shall live for ever: and the bread that I will give is my flesh, which I will give for the life of the world. -- My flesh is meat indeed, and my blood is drink indeed.
+I must work the works of him that sent me, while it is day: the night cometh, when no man can work. -- Wist ye not that I must be about my Father's business? -- Leaving us an example, that ye should follow his steps.
  
-The children of Israel ... gathered, some more, some less. He that gathered much had nothing over, and he that gathered little had no lack. They gathered it every morning, every man according to his eating.
- 
-Take no thought, saying, What shall we eat: or, What shall we drink? Your heavenly Father knoweth that ye have need of all these things. But seek ye first the kingdom of God and his righteousness; and all these things shall be added unto you.  
+Preach the word; be instant in season, out of season; reprove, rebuke, exhort with all longsuffering and doctrine. -- Every man's work shall be made manifest: for the day shall declare it. -- Therefore, my beloved brethren, be ye stedfast, unmoveable, always abounding in the work of the Lord, forasmuch as ye know that your labour is not in vain in the Lord.  
 
-**Exo 16:15; 1 Tim 3:16; John 6:33; John 6:49,51,55; Luke 16:17,18,21; Exo 16:17,18,21; Matt 6:31-33**
+**Luke 19:13; Mark 13:34; Matt 25:15; John 9:4; Luke 2:49; 1 Pet 2:21; 2 Tim 4:2; 1 Cor 3:13; 1 Cor 15:58**
 
 ---
 
-[Saturday 30-August, 2025](https://t.me/s/daily_light)
+[Sunday 31-August, 2025](https://t.me/s/daily_light)
 
 > Jonathan Bagster, the son of Samuel Bagster, created the Daily Light for his own family's daily devotion in 1875
 
