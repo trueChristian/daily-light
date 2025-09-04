@@ -1,11 +1,13 @@
 **Evening**
 
-**The serpent said unto the woman, Ye shall not surely die: ... your eyes shall be opened, and ye shall be as gods, knowing good and evil.**
+**What I do thou knowest not now; but thou shalt know hereafter. **
  
-I fear, lest by any means, as the serpent beguiled Eve through his subtlety, so your minds should be corrupted from the simplicity that is in Christ.
+Thou shalt remember all the way which the LORD thy God led thee these forty years in the wilderness, to humble thee, and to prove thee, to know what was in thine heart, whether thou wouldest keep his commandments, or no.
  
-My brethren, be strong in the Lord, and in the power of his might. Put on the whole armour of God, that ye may be able to stand against the wiles of the devil. Take unto you the whole armour of God, that ye may be able to withstand in the evil day, and having done all, to stand. Stand therefore, having your loins girt about with truth, and having on the breastplate of righteousness; and your feet shod with the preparation of the gospel of peace; above all, taking the shield of faith, wherewith ye shall be able to quench all the fiery darts of the wicked. And take the helmet of salvation, and the sword of the Spirit, which is the word of God. -- Lest Satan should get an advantage of us; for we are not ignorant of his devices.  
+When I passed by thee, and looked upon thee, behold, thy time was the time of love; yea, I sware unto thee, and entered into a covenant with thee, saith the Lord God, and thou becamest mine. -- Whom the Lord loveth he chasteneth.
+ 
+Beloved, think it not strange concerning the fiery trial which is to try you, as though some strange thing happened unto you: but rejoice, inasmuch as ye are partakers of Christ's sufferings; that, when his glory shall be revealed, ye may be glad also with exceeding joy. -- Our light affliction, which is but for a moment, worketh for us a far more exceeding and eternal weight of glory; while we look not at the things which are seen, but at the things which are not seen.  
 
-**Gen 3:4,5; 2 Cor 11:3; Eph 6:10,11,13-17; 2 Cor 2:11**
+**John 13:7; Deut 8:2; Ezek 16:8; Heb 12:6; 1 Pet 4:12,13; 2 Cor 4:17,18**
 
-[Wednesday 03-September, 2025](https://t.me/daily_light)
+[Thursday 04-September, 2025](https://t.me/daily_light)
