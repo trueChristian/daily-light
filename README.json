@@ -1,44 +1,43 @@
 {
-  "date_key": "september-08",
-  "date_name": "Monday 08-September, 2025",
+  "date_key": "september-09",
+  "date_name": "Tuesday 09-September, 2025",
   "evening": {
     "body": [
-      "Except a corn of wheat fall into the ground and die, it abideth alone: but if it die, it bringeth forth much fruit. -- If the firstfruit be holy the lump is also holy : and if the root be holy, so are the branches. -- Now is Christ risen from the dead, and become the firstfruits of them that slept. -- If we have been planted together in the likeness of his death we shall be also in the likeness of his resurrection. -- The Lord Jesus Christ ... shall change our vile body, that it may be fashioned like unto his glorious body, according to the working whereby he is able even to subdue all things unto himself.",
-      "The firstborn from the dead. -- If the Spirit of him that raised up Jesus from the dead dwell in you, he that raised up Christ from the dead shall also quicken our mortal bodies by his Spirit that dwelleth in you.",
-      "I am the resurrection, and the life: he that believeth in me, though he were dead, yet shall he live."
+      "When I said, My foot slippeth; thy mercy, O LORD, held me up.",
+      "The Lord said, Simon, Simon, behold Satan hath desired to have you, that he may sift you as wheat: but I have prayed for thee, that thy faith fail not.",
+      "A just man falleth seven times, and riseth up again. -- Although he fall, he shall not be utterly cast down: for the LORD upholdeth him with his hand.",
+      "Rejoice not against me, O my enemy: when I fall, I shall arise: when I sit in darkness, the Lord shall be a light unto me. -- He shall deliver thee in six troubles: yea, in seven there shall no evil touch thee.",
+      "If any man sin, we have an advocate with the Father, Jesus Christ the righteous. -- Wherefore he is able also to save them to the uttermost that come unto God by him, seeing he ever liveth to make intercession for them."
     ],
-    "header": "Christ the firstfruits.",
+    "header": "My feet were almost gone; my steps had well nigh slipped.",
     "name": "Evening",
     "references": [
-      "John 12:24",
-      "Rom 11:16",
-      "1 Cor 15:20",
-      "Rom 6:5",
-      "Phl 3:20,21",
-      "Col 1:18",
-      "Rom 8:11",
-      "John 11:25"
+      "Psa 94:18",
+      "Luke 22:31,32",
+      "Prov 24:16",
+      "Psa 37:24",
+      "Mic 7:8",
+      "Job 5:19",
+      "1 John 2:1",
+      "Heb 7:25"
     ]
   },
   "joomla": "https://git.vdm.dev/christian/mod_dailylight",
   "morning": {
     "body": [
-      ".",
-      "The LORD is a God of knowledge, and by him, actions are weighed. -- That which is highly esteemed among men is abomination in the sight of God. -- The LORD seeth not as man seeth; for man looketh on the outward appearance, but the LORD looketh on the heart. -- Be not deceived, God is not mocked: for whatsoever a man soweth, that shall he also reap. For he that soweth to his flesh shall of the flesh reap corruption; but he that soweth to the Spirit shall of the spirit reap life everlasting.",
-      "What is a man profited if he shall gain the whole world, and lose his own soul? or what shall a man give in exchange for his soul? -- What things were gain to me, those I counted loss for Christ.",
-      "Behold, thou desirest truth in the inward parts. -- Thou hast proved mine heart; thou hast visited me in the night; thou hast tried me, and shalt find nothing."
+      "Thou sayest, I am rich, and increased with goods and have need of nothing: and knowest not that thou art wretched, and miserable, and poor, and blind, and naked. I counsel thee to buy of me gold tried in the fire, that thou mayest be rich. As many as I love, I rebuke and chasten: be zealous therefore and repent.",
+      "Blessed are they which do hunger and thirst after righteousness: for they shall be filled. -- When the poor and needy seek water, and there is none, and their tongue faileth for thirst, I the LORD will hear them, I the God of Israel will not forsake them. -- I am the Lord thy God ... open thy mouth wide and I will fill it.",
+      "Wherefore do ye spend money for that which is not bread? and your labour for that which satisfieth not? hearken diligently unto me, and eat ye that which is good, and let your soul delight itself in fatness. -- I am the bread of life: he that cometh to me shall never hunger; and he that believeth on me shall never thirst."
     ],
-    "header": "Thou art weighed in the balances, and art found wanting",
+    "header": "He hath filled the hungry with good things; and the rich he hath sent empty away.",
     "name": "Morning",
     "references": [
-      "1 Sam 2:3",
-      "Luke 16:15",
-      "1 Sam 16:7",
-      "Gal 6:7,8",
-      "Matt 16:26",
-      "Phl 3:7",
-      "Psa 51:6",
-      "Psa 17:3"
+      "Rev 3:17-19",
+      "Matt 5:6",
+      "Isa 41:17",
+      "Psa 81:10",
+      "Isa 55:2",
+      "John 6:35"
     ]
   },
   "source": "https://github.com/trueChristian/daily-light",
