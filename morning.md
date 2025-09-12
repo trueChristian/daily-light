@@ -1,15 +1,13 @@
 **Morning**
 
-**Be not conformed to this world: but be ye transformed by the renewing of your mind.**
+**I have seen his ways, and will heal him.**
  
-Thou shalt not follow a multitude to do evil.
+I am the LORD that healeth thee.
  
-Know ye not that the friendship of the world is enmity with God? whosoever therefore will be a friend of the world is the enemy of God.
+O LORD, thou hast searched me, and known me. Thou knowest my downsitting and mine uprising, thou understandest my thought afar off. Thou compassest my path and my lying down, and art acquainted with all my ways. -- Thou hast set our iniquities before thee, our secret sins in the light of thy countenance. -- All things are naked and opened unto the eyes of him with whom we have to do.
  
-What fellowship hath righteousness with unrighteousness? and what communion hath light with darkness? And what concord hath Christ with Belial? or what part hath he that believeth with an infidel? And what agreement hath the temple of God with idols? -- Love not the world, neither the things that are in the world. If any man love the world, the love of the Father is not in him. The world passeth away, and the lust thereof, but he that doeth the will of God abideth for ever.
- 
-In time past ye walked according to the course of this world, according to the prince of the power of the air, the spirit that now worketh in the children of disobedience. -- Ye have not so learned Christ; if so be that ye have heard him, ... as the truth is in Jesus.  
+Come now, and let us reason together, saith the LORD: though your sins be as scarlet, they shall be as white as snow; though they be red like crimson, they shall be as wool. -- He is gracious unto him, and saith, Deliver him from going down to the pit: I have found a ransom. -- He was wounded for our transgressions, he was bruised for our iniquities: the chastisement of our peace was upon him: and with his stripes we are healed. -- He hath sent me to bind up the brokenhearted. -- Thy faith hath made thee whole; go in peace, and be whole of thy plague.  
 
-**Rom 12:2; Exo 23:2; Jas 4:4; 2 Cor 6:14-16; 1 John 2:15,17; Eph 2:2; Eph 4:20,21**
+**Isa 57:18; Exo 15:26; Psa 139:1-3; Psa 90:8; Heb 4:13; Isa 1:18; Job 33:24; Isa 53:5; Isa 61:1; Mark 5:34**
 
-[Thursday 11-September, 2025](https://t.me/daily_light)
+[Friday 12-September, 2025](https://t.me/daily_light)
