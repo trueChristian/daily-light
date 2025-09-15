@@ -1,15 +1,15 @@
 **Evening**
 
-**Ye were called unto the fellowship of his Son**.
+**A double minded man is unstable in all his ways.**
  
-He received from God the Father honour and glory, when there came such a voice to him from the excellent glory, This is my beloved Son, in whom I am well pleased. -- Behold, what manner of love the Father hath bestowed upon us, that we should be called the sons of God.
+No man, having put his hand to the plough and looking back, is fit for the kingdom of God.
  
-Be ye ... followers of God, as dear children. -- If children, then heirs; heirs of God, and joint heirs with Christ.
+He that cometh to God must believe that he is, and that he is a rewarder of them that diligently seek him. -- Let him ask in faith, nothing wavering. For he that wavereth is like a wave of the sea driven with the wind and tossed. For let not that man think that he shall receive anything of the Lord. -- What things soever ye desire, when ye pray, believe that ye receive them, and ye shall have them.
  
-The brightness of his glory, and the express image of his person. -- Let your light so shine before men, that they may see your good works, and glorify your Father which is in heaven.
+Be no more children, tossed to and fro, and carried about with every wind of doctrine, by the sleight of men, and cunning craftiness, whereby they lie in wait to deceive: but speaking the truth in love, ... grow up into him in all things which is the head, even Christ.
  
-Jesus the author and finisher of our faith; who for the joy that was set before him endured the cross, despising the shame. -- These things I speak in the world, that they might have my joy fulfilled in themselves. -- As the sufferings of Christ abound in us, so our consolation also aboundeth by Christ.  
+Abide in me. -- Be ye steadfast, unmoveable, always abounding in the work of the Lord, forasmuch as ye know that your labour is not in vain in the Lord.  
 
-**1 Cor 1:9; 2 Pet 1:17; 1 John 3:1; Eph 5:1; Rom 8:17; Heb 1:3; Matt 5:16; Heb 12:2; John 17:13; 2 Cor 1:5**
+**Jas 1:8; Luke 9:62; Heb 11:6; Jas 1:6,7; Mark 11:24; Eph 4:14,15; John 15:4; 1 Cor 15:58**
 
-[Sunday 14-September, 2025](https://t.me/daily_light)
+[Monday 15-September, 2025](https://t.me/daily_light)
