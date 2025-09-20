@@ -1,13 +1,13 @@
 **Evening**
 
-**I will lift up mine eyes unto the hills, from whence cometh my help. My help cometh from the Lord.**
+**Poor, yet making many rich.**
  
-As the mountains are round about Jerusalem, so the LORD is round about his people from henceforth even for ever.
+Ye know the grace of our Lord Jesus Christ, that, though he was rich, yet for your sakes he became poor, that ye through his poverty might be rich. -- Of his fulness have all we received, and grace for grace. -- My God shall supply all your need according to his riches in glory by Christ Jesus. -- God is able to make all grace abound toward you; that ye, always having all sufficiency in all things, may abound to every good work.
  
-Unto thee lift I up mine eyes, O thou that dwellest in the heavens. Behold, as the eyes of servants look unto the hand of their masters, and as the eyes of a maiden unto the hand of her mistress; so our eyes wait upon the LORD our God, until that he have mercy upon us. -- Because thou hast been my help, therefore in the shadow of thy wings will I rejoice.
+Hath not God chosen the poor of this world rich in faith, and heirs of the kingdom which he hath promised to them that love him? -- Not many wise men after the flesh, not many mighty, not many noble, are called: but God hath chosen the foolish things of the world to confound the wise; and God hath chosen the weak things of the world to confound the things which are mighty.
  
-O our God, wilt thou not judge them? for we have no might against this great company that cometh against us; neither know we what to do: but our eyes are upon thee. -- Mine eyes are ever toward the LORD; for he shall pluck my feet out of the net. -- Our help is in the name of the LORD, who made heaven and earth.  
+We have this treasure in earthen vessels, that the excellency of the power may be of God, and not of us.  
 
-**Psa 121:1,2; Psa 125:2; Psa 123:1,2; Psa 63:7; 2 Chr 20:12; Psa 25:15; Psa 124:8**
+**2 Cor 6:10; 2 Cor 8:9; John 1:16; Phl 4:19; 2 Cor 9:8; Jas 2:5; 1 Cor 1:26,27; 2 Cor 4:7**
 
-[Friday 19-September, 2025](https://t.me/daily_light)
+[Saturday 20-September, 2025](https://t.me/daily_light)

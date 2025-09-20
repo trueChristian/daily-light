@@ -1,30 +1,34 @@
 # Morning
 
-**The God of all grace.**
+**Happy is the man that findeth wisdom, and the man that getteth understanding. **
  
-I will proclaim the name of the LORD before thee; and will be gracious to whom I will be gracious. -- He is gracious unto him, and saith, Deliver him from going down to the pit: I have found a ransom. -- Being justified freely by his grace, through the redemption that is in Christ Jesus: whom God hath set forth to be a propitiation through faith in his blood, to declare his righteousness for the remission of sins that are past, through the forbearance of God. -- Grace and truth came by Jesus Christ.
+Whoso findeth me findeth life, and shall obtain favour of the LORD.
  
-By grace are ye saved through faith; and that not of yourselves: it is the gift of God. -- Grace, mercy, and peace, from God our Father and Jesus Christ our Lord. -- Unto every one of us is given grace according to the measure of the gift of Christ. -- As every man hath received the gift, even so minister the same one to another, as good stewards of the manifold grace of God. -- He giveth more grace.
+Thus saith the LORD, Let not the wise man glory in his wisdom, neither let the mighty man glory in his might: ... but let him that glorieth glory in this, that he understandeth and knoweth me, that I am the LORD. -- The fear of the LORD is the beginning of wisdom.
  
-Grow in grace, and in the knowledge of our Lord and Saviour Jesus Christ. To him be glory both now and for ever.  
+What things were gain to me, those I counted loss for Christ. Yea doubtless, and I count all things but loss for the excellency of the knowledge of Christ Jesus my Lord: for whom I have suffered the loss of all things, and do count them but dung, that I may win Christ. -- In whom are hid all the treasures of wisdom and knowledge. -- Counsel is mine, and sound wisdom: I am understanding; I have strength.
+ 
+Christ Jesus, ... is made unto us wisdom, and righteousness, and sanctification, and redemption.
+ 
+He that winneth souls is wise.  
 
-**1 Pet 5:10; Exo 33:19; Job 33:24; Rom 3:24,25; John 1:17; Eph 2:8; 1 Tim 1:2; Eph 4:7; 1 Pet 4:10; Jas 4:6; 2 Pet 3:18**
+**Prov 3:13; Prov 8:35; Jer 9:23,24; Prov 9:10; Phl 3:7,8; Col 2:3; Prov 8:14; 1 Cor 1:30; Prov 1:30**
 
 # Evening
 
-**I will lift up mine eyes unto the hills, from whence cometh my help. My help cometh from the Lord.**
+**Poor, yet making many rich.**
  
-As the mountains are round about Jerusalem, so the LORD is round about his people from henceforth even for ever.
+Ye know the grace of our Lord Jesus Christ, that, though he was rich, yet for your sakes he became poor, that ye through his poverty might be rich. -- Of his fulness have all we received, and grace for grace. -- My God shall supply all your need according to his riches in glory by Christ Jesus. -- God is able to make all grace abound toward you; that ye, always having all sufficiency in all things, may abound to every good work.
  
-Unto thee lift I up mine eyes, O thou that dwellest in the heavens. Behold, as the eyes of servants look unto the hand of their masters, and as the eyes of a maiden unto the hand of her mistress; so our eyes wait upon the LORD our God, until that he have mercy upon us. -- Because thou hast been my help, therefore in the shadow of thy wings will I rejoice.
+Hath not God chosen the poor of this world rich in faith, and heirs of the kingdom which he hath promised to them that love him? -- Not many wise men after the flesh, not many mighty, not many noble, are called: but God hath chosen the foolish things of the world to confound the wise; and God hath chosen the weak things of the world to confound the things which are mighty.
  
-O our God, wilt thou not judge them? for we have no might against this great company that cometh against us; neither know we what to do: but our eyes are upon thee. -- Mine eyes are ever toward the LORD; for he shall pluck my feet out of the net. -- Our help is in the name of the LORD, who made heaven and earth.  
+We have this treasure in earthen vessels, that the excellency of the power may be of God, and not of us.  
 
-**Psa 121:1,2; Psa 125:2; Psa 123:1,2; Psa 63:7; 2 Chr 20:12; Psa 25:15; Psa 124:8**
+**2 Cor 6:10; 2 Cor 8:9; John 1:16; Phl 4:19; 2 Cor 9:8; Jas 2:5; 1 Cor 1:26,27; 2 Cor 4:7**
 
 ---
 
-[Friday 19-September, 2025](https://t.me/s/daily_light)
+[Saturday 20-September, 2025](https://t.me/s/daily_light)
 
 > Jonathan Bagster, the son of Samuel Bagster, created the Daily Light for his own family's daily devotion in 1875
 
