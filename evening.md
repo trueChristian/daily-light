@@ -1,13 +1,15 @@
 **Evening**
 
-**Poor, yet making many rich.**
+**The communion of the Holy Ghost be with you all.**
  
-Ye know the grace of our Lord Jesus Christ, that, though he was rich, yet for your sakes he became poor, that ye through his poverty might be rich. -- Of his fulness have all we received, and grace for grace. -- My God shall supply all your need according to his riches in glory by Christ Jesus. -- God is able to make all grace abound toward you; that ye, always having all sufficiency in all things, may abound to every good work.
+I will pray the Father, and he shall give you another Comforter, that he may abide with you for ever; even the Spirit of truth; whom the world cannot receive, because it seeth him not, neither knoweth him: but ye know him; for he dwelleth with you, and shall be in you. -- He shall not speak of himself. He shall glorify me: for he shall receive of mine, and shall shew it unto you.
  
-Hath not God chosen the poor of this world rich in faith, and heirs of the kingdom which he hath promised to them that love him? -- Not many wise men after the flesh, not many mighty, not many noble, are called: but God hath chosen the foolish things of the world to confound the wise; and God hath chosen the weak things of the world to confound the things which are mighty.
+The love of God is shed abroad in our hearts by the Holy Ghost which is given unto us.
  
-We have this treasure in earthen vessels, that the excellency of the power may be of God, and not of us.  
+He that is joined unto the Lord is one spirit. -- Know ye not that your body is the temple of the Holy Ghost which is in you, which ye have of God, and ye are not your own?
+ 
+Grieve not the holy Spirit of God, whereby ye are sealed unto the day of redemption. -- The Spirit also helpeth our infirmities: for we know not what we would pray for as we ought: but the Spirit itself maketh intercession for us with groanings which cannot be uttered.  
 
-**2 Cor 6:10; 2 Cor 8:9; John 1:16; Phl 4:19; 2 Cor 9:8; Jas 2:5; 1 Cor 1:26,27; 2 Cor 4:7**
+**2 Cor 13:14; John 14:16,17; John 16:13,14; Rom 5:5; 1 Cor 6:17; 1 Cor 6:19; Eph 4:30; Rom 8:26**
 
-[Saturday 20-September, 2025](https://t.me/daily_light)
+[Sunday 21-September, 2025](https://t.me/daily_light)
