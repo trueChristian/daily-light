@@ -1,11 +1,13 @@
 **Morning**
 
-**Let patience have her perfect work, that ye may be perfect and entire, wanting nothing.**
+**A God of truth and without iniquity, just and right is he.**
  
-Now for a season, if need be, ye are in heaviness through manifold temptations: that the trial of your faith, being much more precious than of gold that perisheth, though it be tried with fire, might be found unto praise and honour and glory at the appearing of Jesus Christ. -- We glory in tribulations also: knowing that tribulation worketh patience; and patience, experience; and experience, hope.
+Him that judgeth righteously. -- We must all appear before the judgment seat of Christ; that every one may receive the things done in his body, according to that he hath done, whether it be good or bad. -- Every one of us shall give account of himself to God. -- The soul that sinneth it shall die.
  
-It is good that a man should both hope and quietly wait for the salvation of the LORD. -- Ye have in heaven a better and an enduring substance. Cast not away therefore your confidence, which hath great recompence of reward. For ye have need of patience, that, after ye have done the will of God, ye might receive the promise. -- Our Lord Jesus Christ himself, and God, even our Father, which hath loved us, and hath given us everlasting consolation and good hope through grace, comfort your hearts. 
+Awake, O sword, against my shepherd, and against the man that is my fellow, saith the LORD of hosts: smite the shepherd. -- The LORD hath laid on him the iniquity of us all. -- Mercy and truth are met together: righteousness and peace have kissed each other. -- Mercy rejoiceth against judgment. -- The wages of sin is death; but the gift of God is eternal life through Jesus Christ our Lord.
+ 
+A just God and a Saviour; there is none beside me. -- Just, and the justifier of him which believeth in Jesus. -- Justified freely by his grace through the redemption that is in Christ Jesus.  
 
-**James 1:4; 1 Pet 1:6,7; Rom 5:3-4; Lam 3:26; Heb 10: 34-36; 2Th 2:16-17**
+**Deut 32:4; 1 Pet 2:23; 2 Cor 5:10; Rom 14:12; Ezek 18:4; Zech 13:7; Isa 53:6; Psa 85:10; Isa 2:13; Rom 6:23; Isa 45:21; Rom 3:26; Rom 3:24**
 
-[Thursday 25-September, 2025](https://t.me/daily_light)
+[Friday 26-September, 2025](https://t.me/daily_light)

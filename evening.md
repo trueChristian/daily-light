@@ -1,13 +1,17 @@
 **Evening**
 
-**God shall judge the secrets of men by Jesus Christ.**
+**Death is swallowed up in victory.**
  
-Judge nothing before the time, until the Lord come, who both will bring to light the hidden things of darkness, and will make manifest the counsels of the hearts: and then shall every man have praise of God. -- The Father judgeth no man, but hath committed all judgment unto the Son: -- because he is the Son of man. -- The Son of God, -- hath his eyes like unto a flame of fire.
+Thanks be to God, which giveth us the victory through our Lord Jesus Christ.
  
-They say, How doth God know? and is there knowledge in the most High?--These things hast thou done, and I kept silence; thou thoughtest that I was altogether such an one as thyself: but I will reprove thee, and set them in order before thine eyes. -- There is nothing covered, that shall not be revealed; neither hid, that shall not be known.
+Forasmuch ... as the children are partakers of flesh and blood, he also himself likewise took part of the same; that through death he might destroy him that had the power of death, that is, the devil; and deliver them who through fear of death were all their lifetime subject to bondage.
  
-Lord, all my desire is before thee; and my groaning is not hid from thee. -- Examine me, O LORD, and prove me; try my reins and my heart. 
+If we be dead with Christ, we believe that we shall also live with him: knowing that Christ being raised from the dead dieth no more; death hath no more dominion over him. For in that he died, he died unto sin once: but in that he liveth, he liveth unto God.
+ 
+Likewise reckon ye also yourselves to be dead indeed unto sin, but alive unto God through Jesus Christ our Lord.
+ 
+In all these things we are more than conquerors through him that loved us.  
 
-**Rom 2:16; 1Cor 4:5; Joh 5:22,27; Rev 2:18; Ps 73:11; Ps 50:21; Lu 12:2; Ps 38:9; Ps 26:2**
+**1 Cor 15:54; 1 Cor 15:57; Heb 2:14,15; Rom 6:8-10; Rom 6:11; Rom 8:37**
 
-[Thursday 25-September, 2025](https://t.me/daily_light)
+[Friday 26-September, 2025](https://t.me/daily_light)
