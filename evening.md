@@ -1,11 +1,13 @@
 **Evening**
 
-**Yea, hath God said?**
+**The heavens declare the glory of God; and the firmament sheweth his handywork.**
  
-When the tempter came to Jesus, he said, If thou be the Son of God. -- Jesus said unto him, It is written, ... it is written, ... it is written. -- Then the devil leaveth him.
+The invisible things of him from the creation of the world are clearly seen, being understood by the things that are made, even his eternal power and Godhead. -- He left not himself without witness. -- Day unto day uttereth speech, and night unto night sheweth knowledge. There is no speech nor language, where their voice is not heard.
  
-I may not return with thee. For it was said to me by the word of the LORD, Thou shalt eat no bread nor drink water there. He said unto him, I am a prophet also as thou art; and an angel spake unto me by the word of the LORD, saying, Bring him back with thee into thine house, that he may eat bread and drink water. But he lied unto him. So he went back with him. The man of God ... was disobedient unto the word of the LORD: therefore the LORD hath delivered him unto the lion, which hath torn him, and slain him, according to the word of the LORD. -- Though we, or an angel from heaven, preach any other gospel unto you than that which we have preached unto you, let him be accursed. -- Thy word have I hid in mine heart, that I might not sin against thee.  
+When I consider thy heavens, the work of thy fingers, the moon and the stars, which thou hast ordained; what is man, that thou art mindful of him? and the son of man, that thou visitest him?
+ 
+There is one glory of the sun, and another glory of the moon, and another glory of the stars: for one star differeth from another star in glory. So also is the resurrection of the dead. -- They that be wise shall shine as the brightness of the firmament; and they that turn many to righteousness as the stars for ever and ever.  
 
-**Gen 3:1; Matt 4:3; Matt 4:4,7,10; Matt 4:11; 1 Kgs 13:16-19,26; Gal 1:8; Psa 119:11**
+**Psa 19:1; Rom 1:20; Acts 14:17; Psa 19:2,3; Psa 8:3,4; 1 Cor 15:41,42; Dan 12:3**
 
-[Saturday 27-September, 2025](https://t.me/daily_light)
+[Sunday 28-September, 2025](https://t.me/daily_light)
