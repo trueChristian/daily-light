@@ -1,11 +1,13 @@
 **Morning**
 
-**The goat shall bear upon him all their iniquities unto a land not inhabited: and he shall let go the goat in the wilderness.**
+**Unto him that loved us, and washed us from our sins in his own blood.**
  
-As far as the east is from the west, so far hath he removed our transgressions from us. -- In those days, and in that time, saith the LORD, the iniquity of Israel shall be sought for, and there shall be none; and the sins of Judah, and they shall not be found: for I will pardon them whom I reserve. -- Thou wilt cast all their sins into the depths of the sea. -- Who is a God like unto thee, that pardoneth iniquity?
+Many waters cannot quench love, neither can the floods drown it. Love is strong as death. -- Greater love hath no man than this, that a man lay down his life for his friends.
  
-All we like sheep have gone astray; we have turned every one to his own way; and the LORD hath laid on him the iniquity of us all. -- He shall bear their iniquities. Therefore will I divide him a portion with the great, and he shall divide the spoil with the strong, because he hath poured out his soul unto death; and he was numbered with the transgressors; and he bare the sin of many, and made intercession for the transgressors. -- The Lamb of God, which taketh away the sin of the world.  
+Who his own self bare our sins in his own body on the tree, that we, being dead to sins, should live unto righteousness: by whose stripes ye were healed. -- In whom we have redemption through his blood, the forgiveness of sins, according to the riches of his grace.
+ 
+Ye are washed, ... ye are sanctified, ... ye are justified in the name of the Lord Jesus, and by the Spirit of our God. -- Ye are a chosen generation, a royal priesthood, a holy nation, a peculiar people; that ye should shew forth the praises of him who hath called you out of darkness into his marvellous light. -- I beseech you ... brethren, by the mercies of God, that ye present your bodies a living sacrifice, holy, acceptable unto God, which is your reasonable service.  
 
-**Lev 16:22; Psa 103:12; Jer 50:20; Mic 7:19; Mic 7:18; Isa 53:6; Isa 53:11,12; John 1:29**
+**Rev 1:5; Song 8:7,6; John 15:13; 1 Pet 2:24; Eph 1:7; 1 Cor 6:11; 1 Pet 2:9; Rom 12:1**
 
-[Thursday 02-October, 2025](https://t.me/daily_light)
+[Friday 03-October, 2025](https://t.me/daily_light)
