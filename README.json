@@ -1,44 +1,46 @@
 {
-  "date_key": "october-06",
-  "date_name": "Monday 06-October, 2025",
+  "date_key": "october-07",
+  "date_name": "Tuesday 07-October, 2025",
   "evening": {
     "body": [
-      "He hath shewed thee, O man, what is good; and what doth the LORD require of thee, but to do justly, and to love mercy, and to walk humbly with thy God? -- To keep the commandments of the LORD, and his statutes, which I command thee this day for thy good.",
-      "As many as are of the works of the law are under the curse: for it is written, Cursed is every one that continueth not in all things which are written in the book of the law to do them. But that no man is justified by the law in the sight of God, it is evident: for The just shall live by faith. Wherefore then serveth the law? It was added because of transgressions, till the seed should come to whom the promise was made.",
-      "God, who at sundry times and in divers manners spake in time past unto the fathers by the prophets, hath in these last days spoken unto us by his Son.",
-      "Speak, LORD; for thy servant heareth."
+      "Thou blessest, O LORD, and it shall be blessed for ever. -- The blessing of the LORD, it maketh rich, and he addeth no sorrow with it.",
+      "Remember the words of the Lord Jesus, how he said, It is more blessed to give than to receive. -- When thou makest a feast call the poor, the maimed, the lame, the blind: and thou shalt be blessed; for they cannot recompense thee: for thou shalt be recompensed at the resurrection of the just. -- Come, ye blessed of my Father, inherit the kingdom prepared for you from the foundation of the world: for I was an hungred, and ye gave me meat: I was thirsty, and ye gave me drink: I was a stranger, and took me in: naked, and ye clothed me: I was sick, and ye visited me: I was in prison, and ye came unto me.",
+      "Blessed is he that considereth the poor: the LORD will deliver him in time of trouble.",
+      "The LORD God is a sun and shield."
     ],
-    "header": "What is the thing that the Lord hath said unto thee?",
+    "header": "O Lord God, ... with thy blessing let the house of thy servant be blessed for ever.",
     "name": "Evening",
     "references": [
-      "Mic 6:8",
-      "Deut 10:13",
-      "Gal 3:10,11,19",
-      "Heb 1:1,2",
-      "1 Sam 3:9"
+      "1 Chr 17:27",
+      "Prov 10:22",
+      "Acts 20:35",
+      "Luke 14:13,14",
+      "Matt 25:34-36",
+      "Psa 41:1",
+      "Psa 84:11"
     ]
   },
   "joomla": "https://git.vdm.dev/christian/mod_dailylight",
   "morning": {
     "body": [
-      "I know that thou canst do every thing. -- The things which are impossible with men are possible with God. -- He doeth according to his will in the army of heaven, and among the inhabitants of the earth: and none can stay his hand, or say unto him, What doest thou? -- There is none that can deliver out of my hand: I will work, and who shall let it? -- Abba, Father, all things are possible unto thee.",
-      "Believe ye that I am able to do this? They said unto him, Yea, Lord. Then touched he their eyes, saying, According to your faith be it unto you. -- Lord, if thou wilt, thou canst make me clean. And Jesus put forth his hand and touched him, saying, I will; be thou clean. -- The mighty God. -- All power is given unto me in heaven and in earth.",
-      "Some trust in chariots, and some in horses: but we will remember the name of the LORD our God. -- Be strong and courageous, be not afraid nor dismayed, ... there be more with us than with him."
+      "Blessed are the meek.",
+      "I returned, and saw under the sun, that the race is not to the swift, nor the battle to the strong, neither yet bread to the wise, nor yet riches to men of understanding, nor yet favour to men of skill. -- A man's heart deviseth his way: but the LORD directeth his steps.",
+      "Unto thee lift I up mine eyes, O Thou that dwellest in the heavens. Behold, as the eyes of servants look unto the hand of their masters, and as the eyes of a maiden unto the hand of her mistress; so our eyes wait upon the LORD our God. -- Cause me to know the way wherein I should walk; for I lift up my soul unto thee.",
+      "O our God, wilt thou not judge them? for we have no might against this great company that cometh against us; neither know we what to do: but our eyes are upon thee.",
+      "If any of you lack wisdom, let him ask of God, that giveth to all men liberally, and upbraideth not; and it shall be given him.",
+      "When he, the Spirit of truth, is come, he will guide you into all truth."
     ],
-    "header": "The Lord God omnipotent reigneth.",
+    "header": "The meek will he teach his way.",
     "name": "Morning",
     "references": [
-      "Job 42:2",
-      "Luke 18:27",
-      "Dan 4:35",
-      "Isa 43:13",
-      "Mark 14:36",
-      "Matt 9:28,29",
-      "Matt 8:23",
-      "Isa 9:6",
-      "Matt 28:18",
-      "Psa 20:7",
-      "2 Chr 32:7"
+      "Matt 5:5",
+      "Eccl 9:11",
+      "Prov 16:9",
+      "Psa 123:1,2",
+      "Psa 143:8",
+      "2 Chr 20:12",
+      "Jas 1:5",
+      "John 16:13"
     ]
   },
   "source": "https://github.com/trueChristian/daily-light",
