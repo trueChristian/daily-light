@@ -1,44 +1,47 @@
 {
-  "date_key": "october-10",
-  "date_name": "Friday 10-October, 2025",
+  "date_key": "october-11",
+  "date_name": "Saturday 11-October, 2025",
   "evening": {
     "body": [
-      "Jesus lifted up his eyes to heaven, and said, Father. -- My Father, and your Father.",
-      "Ye are all the children of God by faith in Christ Jesus. -- Ye have not received the spirit of bondage again to fear; but ye have received the Spirit of adoption, whereby we cry, Abba, Father. The Spirit itself beareth witness with our spirit, that we are the children of God.",
-      "Because ye are sons, God hath sent forth the Spirit of his Son into your hearts, crying, Abba, Father. Wherefore thou art no more a servant, but a son.",
-      "Verily, verily, I say unto you, Whatsoever ye shall ask the Father in my name, he will give it you. Hitherto have ye asked nothing in my name: ask, and ye shall receive, that your joy may be full.",
-      "I will receive you, and will be a Father unto you, and ye shall be my sons and daughters, saith the Lord Almighty."
+      "Thou shalt worship no other god: for the LORD, whose name is Jealous, is a jealous God.",
+      "Who is like unto thee, O LORD, among the gods? who is like thee, glorious in holiness, fearful in praises, doing wonders? -- Holy, holy, holy, Lord God Almighty.",
+      "Worship the LORD in the beauty of holiness. -- I saw ... the Lord sitting upon a throne, high and lifted up, and his train filled the temple. Above it stood the seraphims. And one cried unto another, and said, Holy, holy, holy, is the LORD of hosts; the whole earth is full of his glory. Then said I, Woe is me! for I am undone. -- I have heard of thee by the hearing of the ear: but now mine eye seeth thee. Wherefore I abhor myself.",
+      "The blood of Jesus Christ his Son cleanseth us from all sin. -- That we might be partakers of his holiness. -- Having therefore, brethren, boldness to enter into the holiest by the blood of Jesus, let us draw near with a true heart."
     ],
-    "header": "After this manner ... pray ye: Our Father which art in heaven.",
+    "header": "Hallowed be thy name.",
     "name": "Evening",
     "references": [
-      "John 17:1",
-      "John 20:17",
-      "Gal 3:26",
-      "Rom 8:15,16",
-      "Gal 4:6,7",
-      "John 16:23,24",
-      "2 Cor 6:17,18"
+      "Exo 34:14",
+      "Exo 15:11",
+      "Rev 4:8",
+      "1 Chr 16:29",
+      "Isa 6:1-3,5",
+      "Job 42:5,6",
+      "1 John 1:7",
+      "Heb 12:10",
+      "Heb 10:19,22"
     ]
   },
   "joomla": "https://git.vdm.dev/christian/mod_dailylight",
   "morning": {
     "body": [
-      "One God and Father of all, who is above all, and through all, and in you all. -- Ye are all the children of God by faith in Christ Jesus. -- That in the dispensation of the fulness of times, he might gather together in one all things in Christ, both which are in heaven, and which are on earth; even in him.",
-      "He is not ashamed to call them brethren. -- Behold my mother and my brethren! Whosoever shall do the will of my Father which is in heaven, the same is my brother, and sister, and mother. -- Go to my brethren, and say unto them, I ascend unto my Father, and your Father.",
-      "I saw under the altar the souls of them that were slain for the word of God, and for the testimony which they held: ... and white robes were given unto every one of them; and it was said unto them, that they should rest for a little season, until their fellow servants also and their brethren, that should be killed as they were, should be fulfilled. -- That they without us should not be made perfect."
+      "How long wilt thou forget me, O LORD? for ever? how long wilt thou hide thy face from me? How long shall I take counsel in my soul, having sorrow in my heart daily? -- Hide not thy face far from me; put not thy servant away in anger: thou hast been my help; leave me not, neither forsake me, O God of my salvation.",
+      "He shall call upon me, and I will answer him: I will be with him in trouble; I will deliver him, and honour him. -- The LORD is nigh unto all them that call upon him, to all that call upon him in truth. He will fulfil the desire of them that fear him: he also will hear their cry, and will save them.",
+      "I will not leave you comfortless: I will come to you. -- Lo, I am with you alway, even unto the end of the world.",
+      "God is our refuge and strength, a very present help in trouble. -- Truly my soul waiteth upon God: from him cometh my salvation. -- My soul, wait thou only upon God; for my expectation is from him."
     ],
-    "header": "The whole family in heaven and earth.",
+    "header": "Be not far from me; for trouble is near.",
     "name": "Morning",
     "references": [
-      "Eph 4:6",
-      "Gal 3:26",
-      "Eph 1:10",
-      "Heb 2:11",
-      "Matt 12:49,50",
-      "John 20:17",
-      "Rev 6:9-11",
-      "Heb 11:40"
+      "Psa 13:1,2",
+      "Psa 27:9",
+      "Psa 91:15",
+      "Psa 145:18,19",
+      "John 14:18",
+      "Matt 28:20",
+      "Psa 46:1",
+      "Psa 62:1",
+      "Psa 62:5"
     ]
   },
   "source": "https://github.com/trueChristian/daily-light",
