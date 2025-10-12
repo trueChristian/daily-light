@@ -1,34 +1,34 @@
 # Morning
 
-**Be not far from me; for trouble is near.**
+**God was in Christ, reconciling the world unto himself, not imputing their trespasses unto them.**
  
-How long wilt thou forget me, O LORD? for ever? how long wilt thou hide thy face from me? How long shall I take counsel in my soul, having sorrow in my heart daily? -- Hide not thy face far from me; put not thy servant away in anger: thou hast been my help; leave me not, neither forsake me, O God of my salvation.
+It pleased the Father, that in him should all fulness dwell; and, having made peace through the blood of his cross, by him to reconcile all things unto himself. -- Mercy and truth are met together; righteousness and peace have kissed each other.
  
-He shall call upon me, and I will answer him: I will be with him in trouble; I will deliver him, and honour him. -- The LORD is nigh unto all them that call upon him, to all that call upon him in truth. He will fulfil the desire of them that fear him: he also will hear their cry, and will save them.
+I know the thoughts that I think toward you, saith the LORD, thoughts of peace, and not of evil. -- Come now, and let us reason together, saith the LORD: though your sins be as scarlet, they shall be as white as snow; though they be red like crimson, they shall be as wool.
  
-I will not leave you comfortless: I will come to you. -- Lo, I am with you alway, even unto the end of the world.
+Who is a God like unto thee, that pardoneth iniquity?
  
-God is our refuge and strength, a very present help in trouble. -- Truly my soul waiteth upon God: from him cometh my salvation. -- My soul, wait thou only upon God; for my expectation is from him.  
+Acquaint now thyself with him, and be at peace. -- Work out your own salvation with fear and trembling. For it is God which worketh in you both to will and to do of his good pleasure. -- LORD, thou wilt ordain peace for us: for thou also hast wrought all our works in us.  
 
-**Psa 22:11; Psa 13:1,2; Psa 27:9; Psa 91:15; Psa 145:18,19; John 14:18; Matt 28:20; Psa 46:1; Psa 62:1; Psa 62:5**
+**2 Cor 5:19; Col 1:19,20; Psa 85:10; Jer 29:11; Isa 1:18; Mic 7:18; Job 22:21; Phl 2:12,13; Isa 26:12**
 
 # Evening
 
-**Hallowed be thy name.**
+**Thy kingdom come.**
  
-Thou shalt worship no other god: for the LORD, whose name is Jealous, is a jealous God.
+In the days of these kings shall the God of heaven set up a kingdom, which shall never be destroyed: and the kingdom shall not be left to other people, but it shall break in pieces and consume all these kingdoms, and it shall stand for ever. -- A stone ... cut out without hands. -- Not by might, nor by power, but by my Spirit, saith the LORD of hosts. -- The kingdom of God cometh not with observation: neither shall they say, Lo here! or, lo there! for, behold, the kingdom of God is within you.
  
-Who is like unto thee, O LORD, among the gods? who is like thee, glorious in holiness, fearful in praises, doing wonders? -- Holy, holy, holy, Lord God Almighty.
+Unto you it is given to know the mystery of the kingdom of God. So is the kingdom of God, as if a man should cast seed into the ground; and should sleep, and rise night and day, and the seed should spring and grow up, he knoweth not how. But when the fruit is brought forth, immediately he putteth in the sickle, because the harvest is come.
  
-Worship the LORD in the beauty of holiness. -- I saw ... the Lord sitting upon a throne, high and lifted up, and his train filled the temple. Above it stood the seraphims. And one cried unto another, and said, Holy, holy, holy, is the LORD of hosts; the whole earth is full of his glory. Then said I, Woe is me! for I am undone. -- I have heard of thee by the hearing of the ear: but now mine eye seeth thee. Wherefore I abhor myself.
+Be ye ... ready: for in such an hour as ye think not, the Son of man cometh.
  
-The blood of Jesus Christ his Son cleanseth us from all sin. -- That we might be partakers of his holiness. -- Having therefore, brethren, boldness to enter into the holiest by the blood of Jesus, let us draw near with a true heart.  
+The Spirit and the bride say, Come. And let him that heareth say, Come.  
 
-**Matt 6:9; Exo 34:14; Exo 15:11; Rev 4:8; 1 Chr 16:29; Isa 6:1-3,5; Job 42:5,6; 1 John 1:7; Heb 12:10; Heb 10:19,22**
+**Matt 6:10; Dan 2:44; Dan 2:34; Zech 4:6; Luke 17:20,21; Mark 4:11,26,27,29; Matt 24:44; Rev 22:17**
 
 ---
 
-[Saturday 11-October, 2025](https://t.me/s/daily_light)
+[Sunday 12-October, 2025](https://t.me/s/daily_light)
 
 > Jonathan Bagster, the son of Samuel Bagster, created the Daily Light for his own family's daily devotion in 1875
 
