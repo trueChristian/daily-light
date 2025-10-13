@@ -1,44 +1,43 @@
 {
-  "date_key": "october-12",
-  "date_name": "Sunday 12-October, 2025",
+  "date_key": "october-13",
+  "date_name": "Monday 13-October, 2025",
   "evening": {
     "body": [
-      "In the days of these kings shall the God of heaven set up a kingdom, which shall never be destroyed: and the kingdom shall not be left to other people, but it shall break in pieces and consume all these kingdoms, and it shall stand for ever. -- A stone ... cut out without hands. -- Not by might, nor by power, but by my Spirit, saith the LORD of hosts. -- The kingdom of God cometh not with observation: neither shall they say, Lo here! or, lo there! for, behold, the kingdom of God is within you.",
-      "Unto you it is given to know the mystery of the kingdom of God. So is the kingdom of God, as if a man should cast seed into the ground; and should sleep, and rise night and day, and the seed should spring and grow up, he knoweth not how. But when the fruit is brought forth, immediately he putteth in the sickle, because the harvest is come.",
-      "Be ye ... ready: for in such an hour as ye think not, the Son of man cometh.",
-      "The Spirit and the bride say, Come. And let him that heareth say, Come."
+      "Understanding what the will of the Lord is.",
+      "It is not the will of your Father which is in heaven, that one of these little ones should perish.",
+      "This is the will of God, even your sanctification. -- That he no longer should live the rest of his time in the flesh to the lusts of men, but to the will of God. -- Of his own will begat he us with the word of truth: wherefore lay apart all filthiness.",
+      "Be ye holy; for I am holy. -- [Jesus] said, Whosoever shall do the will of God, the same is my brother, and my sister, and mother. -- Whosoever heareth these sayings of mine, and doeth them, I will liken him unto a wise man, which built his house upon a rock: and the rain descended, and the floods came, and the winds blew, and beat upon that house; and it fell not: for it was founded upon a rock. -- The world passeth away, and the lust thereof: but he that doeth the will of God abideth for ever."
     ],
-    "header": "Thy kingdom come.",
+    "header": "Thy will be done in earth, as it is in heaven.",
     "name": "Evening",
     "references": [
-      "Dan 2:44",
-      "Dan 2:34",
-      "Zech 4:6",
-      "Luke 17:20,21",
-      "Mark 4:11,26,27,29",
-      "Matt 24:44",
-      "Rev 22:17"
+      "Eph 5:17",
+      "Matt 18:14",
+      "1 Thes 4:3",
+      "1 Pet 4:2",
+      "Jas 1:18,21",
+      "1 Pet 1:16",
+      "Mark 3:34,35",
+      "Matt 7:24,25",
+      "1 John 2:17"
     ]
   },
   "joomla": "https://git.vdm.dev/christian/mod_dailylight",
   "morning": {
     "body": [
-      "It pleased the Father, that in him should all fulness dwell; and, having made peace through the blood of his cross, by him to reconcile all things unto himself. -- Mercy and truth are met together; righteousness and peace have kissed each other.",
-      "I know the thoughts that I think toward you, saith the LORD, thoughts of peace, and not of evil. -- Come now, and let us reason together, saith the LORD: though your sins be as scarlet, they shall be as white as snow; though they be red like crimson, they shall be as wool.",
-      "Who is a God like unto thee, that pardoneth iniquity?",
-      "Acquaint now thyself with him, and be at peace. -- Work out your own salvation with fear and trembling. For it is God which worketh in you both to will and to do of his good pleasure. -- LORD, thou wilt ordain peace for us: for thou also hast wrought all our works in us."
+      "Thus saith the high and lofty One that inhabiteth eternity, whose name is Holy; I dwell in the high and holy place, with him also that is of a contrite and humble spirit, to revive the spirit of the humble, and to revive the heart of the contrite ones. -- The sacrifices of God are a broken spirit: a broken and a contrite heart, O God, thou wilt not despise. -- Though the LORD be high, yet hath he respect unto the lowly: but the proud he knoweth afar off. -- Humble yourselves therefore under the mighty hand of God, that he may exalt you in due time. -- God resisteth the proud, but giveth grace unto the humble. Submit yourselves therefore to God.",
+      "Thou, Lord, art good, and ready to forgive; and plenteous in mercy unto all them that call upon thee. Give ear, O LORD, unto my prayer; and attend to the voice of my supplications. In the day of my trouble I will call upon thee: for thou wilt answer me."
     ],
-    "header": "God was in Christ, reconciling the world unto himself, not imputing their trespasses unto them.",
+    "header": "From the first day that thou didst set thine heart to understand, and to chasten thyself before thy God, thy words were heard.",
     "name": "Morning",
     "references": [
-      "Col 1:19,20",
-      "Psa 85:10",
-      "Jer 29:11",
-      "Isa 1:18",
-      "Mic 7:18",
-      "Job 22:21",
-      "Phl 2:12,13",
-      "Isa 26:12"
+      "Isa 57:15",
+      "Psa 51:17",
+      "Psa 138:6",
+      "Prov 5:6",
+      "Jas 4:6",
+      "Jas 4:7",
+      "Psa 86:5-7"
     ]
   },
   "source": "https://github.com/trueChristian/daily-light",
