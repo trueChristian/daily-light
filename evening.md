@@ -1,9 +1,13 @@
 **Evening**
 
-**Forgive us our debts, as we forgive our debtors.**
+**Lead us not into temptation, but deliver us from evil.**
  
-Lord, how oft shall my brother sin against me, and I forgive him? till seven times? Jesus saith unto him, I say not unto thee, Until seven times: but, Until seventy times seven. -- O thou wicked servant, I forgave thee all that debt, because thou desiredst me: shouldest not thou also have had compassion on thy fellow servant, even as I had pity on thee? And his lord was wroth, and delivered him to the tormentors, till he should pay all that was due unto him. So likewise shall my heavenly Father do also unto you, if ye from your hearts forgive not every one his brother their trespasses. -- Be ye kind one to another, tenderhearted, forgiving one another, even as God for Christ's sake hath forgiven you. -- You, ... hath he quickened, ... having forgiven you all trespasses; blotting out the handwriting of ordinances that was against us, which was contrary to us, and took it out of the way, nailing it to his cross. -- Even as Christ forgave you, so also do ye.  
+He that trusteth in his own heart is a fool: but whoso walketh wisely, he shall be delivered.
+ 
+Let no man say when he is tempted, I am tempted of God: for God cannot be tempted with evil, neither tempteth he any man: but every man is tempted, when he is drawn away of his own lust, and enticed. -- Wherefore come out from among them, and be ye separate, saith the Lord, and touch not the unclean thing; and I will receive you.
+ 
+Lot lifted up his eyes, and beheld all the plain of Jordan, that it was well watered every where, ... even as the garden of the LORD. Then Lot chose him all the plain of Jordan; but the men of Sodom were wicked and sinners before the LORD exceedingly. -- [The Lord] delivered just Lot, vexed with the filthy conversation of the wicked. The Lord knoweth how to deliver the godly out of temptations. -- Yea, he shall be holden up: for God is able to make him stand.  
 
-**Matt 6:12; Matt 18:21,22; Matt 18:32-35; Eph 4:32; Col 2:13,14; Col 3:13**
+**Matt 6:13; Prov 28:26; Jas 1:13,14; 2 Cor 6:17; Gen 13:10,11,13; 2 Pet 2:7,9; Rom 14:4**
 
-[Wednesday 15-October, 2025](https://t.me/daily_light)
+[Thursday 16-October, 2025](https://t.me/daily_light)
