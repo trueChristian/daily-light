@@ -1,13 +1,13 @@
 **Evening**
 
-**Lead us not into temptation, but deliver us from evil.**
+**Thine is the kingdom, and the power, and the glory, for ever.**
  
-He that trusteth in his own heart is a fool: but whoso walketh wisely, he shall be delivered.
+The LORD reigneth, he is clothed with majesty: thy throne is established of old: thou art from everlasting.
  
-Let no man say when he is tempted, I am tempted of God: for God cannot be tempted with evil, neither tempteth he any man: but every man is tempted, when he is drawn away of his own lust, and enticed. -- Wherefore come out from among them, and be ye separate, saith the Lord, and touch not the unclean thing; and I will receive you.
+The LORD is ... great in power. -- If God be for us, who can be against us? -- Our God whom we serve is able to deliver us, and he will deliver us. -- My Father, which gave them me, is greater than all; and no man is able to pluck them out of my Father's hand. -- Greater is he that is in you, than he that is in the world.
  
-Lot lifted up his eyes, and beheld all the plain of Jordan, that it was well watered every where, ... even as the garden of the LORD. Then Lot chose him all the plain of Jordan; but the men of Sodom were wicked and sinners before the LORD exceedingly. -- [The Lord] delivered just Lot, vexed with the filthy conversation of the wicked. The Lord knoweth how to deliver the godly out of temptations. -- Yea, he shall be holden up: for God is able to make him stand.  
+Not unto us, O LORD, not unto us, but unto thy name give glory. -- Thine, O LORD, is the greatness, and the power, and the glory, and the victory, and the majesty: for all that is in the heaven and in the earth is thine; thine is the kingdom, O LORD, and thou art exalted as head above all. Now therefore, our God, we thank thee and praise thy glorious name. But who am I, and what is my people, that we should be able to offer so willingly after this sort? for all things come of thee, and of thine own have we given thee.  
 
-**Matt 6:13; Prov 28:26; Jas 1:13,14; 2 Cor 6:17; Gen 13:10,11,13; 2 Pet 2:7,9; Rom 14:4**
+**Matt 6:13; Psa 93:1,2; Nah 1:3; Rom 8:31; Dan 3:17; John 10:29; 1 John 4:4; Psa 115:1; 1 Chr 29:11,13,14**
 
-[Thursday 16-October, 2025](https://t.me/daily_light)
+[Friday 17-October, 2025](https://t.me/daily_light)
