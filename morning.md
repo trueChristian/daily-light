@@ -1,17 +1,15 @@
 **Morning**
 
-**Of his fulness have all we received, and grace for grace.**
+**O God, my heart is fixed.**
  
-This is my beloved Son, in whom I am well pleased. -- Behold, what manner of love the Father hath bestowed upon us, that we should be called the sons of God.
+The Lord is my light and my salvation; whom shall I fear? the LORD is the strength of my life; of whom shall I be afraid?
  
-His Son, whom he hath appointed heir of all things. -- If children, then heirs; heirs of God, and joint heirs with Christ; if so be that we suffer with him, that we may be also glorified together.
+Thou wilt keep him in perfect peace, whose mind is stayed on thee: because he trusteth in thee. -- He shall not be afraid of evil tidings: his heart is fixed, trusting in the LORD. His heart is established, he shall not be afraid, until he see his desire upon his enemies.
  
-I and my Father are one. The Father is in me, and I in him. -- My Father, and your Father; and ... my God, and your God. -- I in them, and thou in me, that they may be made perfect in one.
+What time I am afraid, I will trust in thee. -- In the time of trouble he shall hide me in his pavilion: in the secret of his tabernacle shall he hide me; he shall set me up upon a rock. And now shall mine head be lifted up above mine enemies round about me: therefore will I offer in his tabernacle sacrifices of joy: I will sing, yea, I will sing praises unto the LORD.
  
-The Church, which is his body, the fulness of him that filleth all in all.
- 
-Having ... these promises, dearly beloved, let us cleanse ourselves from all filthiness of the flesh and spirit, perfecting holiness in the fear of God.  
+The God of all grace, who hath called us unto his eternal glory by Christ Jesus, after that ye have suffered awhile, make you perfect, stablish, strengthen, settle you. To him be glory and dominion for ever and ever.  
 
-**John 1:16; Matt 17:5; 1 John 3:1; Heb 1:2; Rom 8:17; John 10:30,38; John 20:17; John 17:23; Eph 1:22,23; 2 Cor 7:1**
+**Psa 108:1; Psa 27:1; Isa 26:3; Psa 112:7,8; Psa 56:3; Psa 27:5,6; 1 Pet 5:10,11**
 
-[Tuesday 21-October, 2025](https://t.me/daily_light)
+[Wednesday 22-October, 2025](https://t.me/daily_light)
