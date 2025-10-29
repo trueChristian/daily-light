@@ -1,13 +1,13 @@
 **Morning**
 
-**He saw that there was no man, and wondered that there was no intercessor: therefore his arm brought salvation unto him.**
+**He is altogether lovely.**
  
-Sacrifice and offering thou didst not desire: mine ears hast thou opened: burnt offering and sin offering hast thou not required. Then said I, Lo, I come: in the volume of the book it is written of me, I delight to do thy will, O my God: yea, thy law is within my heart. -- I lay down my life, that I might take it again. No man taketh it from me, but I lay it down of myself. I have power to lay it down, and I have power to take it again.
+My meditation of him shall be sweet. -- My beloved is ... the chiefest among ten thousand. -- A chief corner stone, elect, precious: and he that believeth on him shall not be confounded. -- Thou art fairer than the children of men: grace is poured into thy lips. -- God ... hath highly exalted him, and given him a name which is above every name. -- It pleased the Father that in him should all fulness dwell.
  
-There is no God else beside me: a just God and a Saviour; there is none beside me. Look unto me, and be ye saved, all the ends of the earth: for I am God, and there is none else. -- There is none other name under heaven given among men, whereby we must be saved.
+Whom having not seen, ye love; in whom, though now ye see him not, yet believing, ye rejoice with joy unspeakable and full of glory.
  
-Ye know the grace of our Lord Jesus Christ, that, though he was rich, yet for your sakes he became poor, that ye through his poverty might be rich.  
+I count all things but loss, for the excellency of the knowledge of Christ Jesus my Lord: for whom I have suffered the loss of all things, and do count them but dung, that I may win Christ, and be found in him, not having mine own righteousness which is of the law, but that which is through the faith of Christ, the righteousness which is of God by faith.  
 
-**Isa 59:16; Psa 40:6-8; John 10:17,18; Isa 45:21,22; Acts 4:12; 2 Cor 8:9**
+**Song 5:16; Psa 104:34; Song 5:10; 1 Pet 2:6; Psa 45:2; Phl 2:9; Col 1:19; 1 Pet 1:8; Phl 3:8,9**
 
-[Tuesday 28-October, 2025](https://t.me/daily_light)
+[Wednesday 29-October, 2025](https://t.me/daily_light)

@@ -1,30 +1,30 @@
 # Morning
 
-**He saw that there was no man, and wondered that there was no intercessor: therefore his arm brought salvation unto him.**
+**He is altogether lovely.**
  
-Sacrifice and offering thou didst not desire: mine ears hast thou opened: burnt offering and sin offering hast thou not required. Then said I, Lo, I come: in the volume of the book it is written of me, I delight to do thy will, O my God: yea, thy law is within my heart. -- I lay down my life, that I might take it again. No man taketh it from me, but I lay it down of myself. I have power to lay it down, and I have power to take it again.
+My meditation of him shall be sweet. -- My beloved is ... the chiefest among ten thousand. -- A chief corner stone, elect, precious: and he that believeth on him shall not be confounded. -- Thou art fairer than the children of men: grace is poured into thy lips. -- God ... hath highly exalted him, and given him a name which is above every name. -- It pleased the Father that in him should all fulness dwell.
  
-There is no God else beside me: a just God and a Saviour; there is none beside me. Look unto me, and be ye saved, all the ends of the earth: for I am God, and there is none else. -- There is none other name under heaven given among men, whereby we must be saved.
+Whom having not seen, ye love; in whom, though now ye see him not, yet believing, ye rejoice with joy unspeakable and full of glory.
  
-Ye know the grace of our Lord Jesus Christ, that, though he was rich, yet for your sakes he became poor, that ye through his poverty might be rich.  
+I count all things but loss, for the excellency of the knowledge of Christ Jesus my Lord: for whom I have suffered the loss of all things, and do count them but dung, that I may win Christ, and be found in him, not having mine own righteousness which is of the law, but that which is through the faith of Christ, the righteousness which is of God by faith.  
 
-**Isa 59:16; Psa 40:6-8; John 10:17,18; Isa 45:21,22; Acts 4:12; 2 Cor 8:9**
+**Song 5:16; Psa 104:34; Song 5:10; 1 Pet 2:6; Psa 45:2; Phl 2:9; Col 1:19; 1 Pet 1:8; Phl 3:8,9**
 
 # Evening
 
-**The Enemy.**
+**David encouraged himself in the Lord his God.**
  
-Be sober, be vigilant; because your adversary the devil, as a roaring lion, walketh about, seeking whom he may devour. -- Resist the devil, and he will flee from you.
+Lord, to whom shall we go? thou hast the words of eternal life. -- I know whom I have believed, and am persuaded that he is able to keep that which I have committed unto him against that day.
  
-Put on the whole armour of God, that ye may be able to stand against the wiles of the devil. For we wrestle not against flesh and blood, but against principalities, against powers, against the rulers of the darkness of this world, against spiritual wickedness in high places. Wherefore take unto you the whole armour of God, that ye may be able to withstand in the evil day, and having done all, to stand. Stand therefore having your loins girt about with truth, and having on the breastplate of righteousness; and your feet shod with the preparation of the gospel of peace; above all, taking the shield of faith, wherewith ye shall be able to quench all the fiery darts of the wicked.
+In my distress I called upon the LORD, and cried unto my God: he heard my voice out of his temple, and my cry came before him, even into his ears. They prevented me in the day of my calamity: but the LORD was my stay. He brought me forth also into a large place; he delivered me, because he delighted in me.
  
-Rejoice not against me, O mine enemy: when I fall, I shall arise; when I sit in darkness, the LORD shall be a light unto me.  
+I will bless the LORD at all times: his praise shall continually be in my mouth. My soul shall make her boast in the LORD: the humble shall hear thereof, and be glad. O magnify the LORD with me, and let us exalt his name together. I sought the LORD, and he heard me, and delivered me from all my fears. O taste and see that the LORD is good: blessed is the man that trusteth in him.  
 
-**Luke 10:19; 1 Pet 5:8; Jas 4:7; Eph 6:11-16; Mic 7:8**
+**1 Sam 30:6; John 6:68; 2 Tim 1:12; Psa 18:6,18,19; Psa 34:1-4,8**
 
 ---
 
-[Tuesday 28-October, 2025](https://t.me/s/daily_light)
+[Wednesday 29-October, 2025](https://t.me/s/daily_light)
 
 > Jonathan Bagster, the son of Samuel Bagster, created the Daily Light for his own family's daily devotion in 1875
 
