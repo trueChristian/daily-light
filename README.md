@@ -1,34 +1,34 @@
 # Morning
 
-**Not by might, nor by power, but by my Spirit, saith the Lord of hosts.**
+**Blessed is the man that heareth me, watching daily at my gates, waiting at the posts of my doors.**
  
-Who hath directed the Spirit of the LORD, or being his counsellor hath taught him?
+Behold, as the eyes of servants look unto the hand of their masters, and as the eyes of a maiden unto the hand of her mistress; so our eyes wait upon the LORD our God, until that he have mercy upon us.
  
-God hath chosen the foolish things of the world to confound the wise; and God hath chosen the weak things of the world to confound the things which are mighty; and base things of the world, and things which are despised, hath God chosen, yea, and things which are not, to bring to nought things that are: that no flesh should glory in his presence.
+A continual burnt offering throughout your generations at the door of the tabernacle of the congregation before the LORD: where I will meet you, to speak there unto thee. -- In all places where I record my name I will come unto thee, and I will bless thee.
  
-The wind bloweth where it listeth, and thou hearest the sound thereof, but canst not tell whence it cometh, and whither it goeth: so is every one that is born of the Spirit. -- Born not of blood, nor of the will of the flesh, nor of the will of man, but of God.
+Where two or three are gathered together in my name, there am I in the midst of them.
  
-My Spirit remaineth among you: fear ye not. -- The battle is not yours, but God's.
+The hour cometh, and now is, when the true worshippers shall worship the Father in spirit and in truth: for the Father seeketh such to worship him. God is a Spirit: and they that worship him must worship him in spirit and in truth.
  
-The LORD saveth not with sword and spear: for the battle is the LORD's.  
+Praying always with all prayer and supplication in the Spirit. -- Pray without ceasing.  
 
-**Zech 4:6; Isa 40:13; 1 Cor 1:27-29; John 3:8; John 1:13; Hag 2:5; 2 Chr 20:15; 1 Sam 17:47**
+**Prov 8:34; Psa 123:2; Exo 29:42; Exo 20:24; Matt 18:20; John 4:23,24; Eph 6:18; 1 Thes 5:17**
 
 # Evening
 
-**Do as thou hast said.**
+**His name shall be called Counsellor.**
  
-Stablish thy word unto thy servant, who is devoted to thy fear. So shall I have wherewith to answer him that reproacheth me: for I trust in thy word. Remember the word unto thy servant, upon which thou hast caused me to hope. Thy statutes have been my songs in the house of my pilgrimage. The law of thy mouth is better unto me than thousands of gold and silver. For ever, O LORD, thy word is settled in heaven. Thy faithfulness is unto all generations.
+The Spirit of the LORD shall rest upon him, the spirit of wisdom and understanding, the spirit of counsel and might, the spirit of knowledge, and of the fear of the LORD. And shall make him of quick understanding in the fear of the LORD.
  
-God, willing more abundantly to shew unto the heirs of promise the immutability of his counsel, confirmed it by an oath; that by two immutable things, in which it was impossible for God to lie, we might have a strong consolation, who have fled for refuge to lay hold upon the hope set before us: which hope we have as an anchor of the soul, both sure and stedfast, and which entereth into that within the veil; whither the forerunner is for us entered, even Jesus.
+Doth not wisdom cry? and understanding put forth her voice? Unto you, O men, I call; and my voice is to the sons of man. O ye simple, understand wisdom: and ye fools, be ye of an understanding heart. Hear; for I will speak of excellent things; and the opening of my lips shall be right things. Counsel is mine, and sound wisdom: I am understanding; I have strength.
  
-Exceeding great and precious promises.  
+The LORD of hosts ... is wonderful in counsel, and excellent in working. -- If any of you lack wisdom, let him ask of God, that giveth to all men liberally, and upbraideth not; and it shall be given him. -- Trust in the LORD with all thine heart; and lean not unto thine own understanding. In all thy ways acknowledge him, and he shall direct thy paths.  
 
-**2 Sam 7:25; Psa 119:38,42,49,54,72,89,90; Heb 6:17-20; 2 Pet 1:4**
+**Isa 9:6; Luke 11:2,3; Prov 8:1,4-6,14; Isa 28:29; Jas 1:5; Prov 3:5,6**
 
 ---
 
-[Friday 31-October, 2025](https://t.me/s/daily_light)
+[Saturday 01-November, 2025](https://t.me/s/daily_light)
 
 > Jonathan Bagster, the son of Samuel Bagster, created the Daily Light for his own family's daily devotion in 1875
 

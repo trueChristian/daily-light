@@ -1,17 +1,17 @@
 **Morning**
 
-**Not by might, nor by power, but by my Spirit, saith the Lord of hosts.**
+**Blessed is the man that heareth me, watching daily at my gates, waiting at the posts of my doors.**
  
-Who hath directed the Spirit of the LORD, or being his counsellor hath taught him?
+Behold, as the eyes of servants look unto the hand of their masters, and as the eyes of a maiden unto the hand of her mistress; so our eyes wait upon the LORD our God, until that he have mercy upon us.
  
-God hath chosen the foolish things of the world to confound the wise; and God hath chosen the weak things of the world to confound the things which are mighty; and base things of the world, and things which are despised, hath God chosen, yea, and things which are not, to bring to nought things that are: that no flesh should glory in his presence.
+A continual burnt offering throughout your generations at the door of the tabernacle of the congregation before the LORD: where I will meet you, to speak there unto thee. -- In all places where I record my name I will come unto thee, and I will bless thee.
  
-The wind bloweth where it listeth, and thou hearest the sound thereof, but canst not tell whence it cometh, and whither it goeth: so is every one that is born of the Spirit. -- Born not of blood, nor of the will of the flesh, nor of the will of man, but of God.
+Where two or three are gathered together in my name, there am I in the midst of them.
  
-My Spirit remaineth among you: fear ye not. -- The battle is not yours, but God's.
+The hour cometh, and now is, when the true worshippers shall worship the Father in spirit and in truth: for the Father seeketh such to worship him. God is a Spirit: and they that worship him must worship him in spirit and in truth.
  
-The LORD saveth not with sword and spear: for the battle is the LORD's.  
+Praying always with all prayer and supplication in the Spirit. -- Pray without ceasing.  
 
-**Zech 4:6; Isa 40:13; 1 Cor 1:27-29; John 3:8; John 1:13; Hag 2:5; 2 Chr 20:15; 1 Sam 17:47**
+**Prov 8:34; Psa 123:2; Exo 29:42; Exo 20:24; Matt 18:20; John 4:23,24; Eph 6:18; 1 Thes 5:17**
 
-[Friday 31-October, 2025](https://t.me/daily_light)
+[Saturday 01-November, 2025](https://t.me/daily_light)
