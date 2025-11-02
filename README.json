@@ -1,41 +1,37 @@
 {
-  "date_key": "november-01",
-  "date_name": "Saturday 01-November, 2025",
+  "date_key": "november-02",
+  "date_name": "Sunday 02-November, 2025",
   "evening": {
     "body": [
-      "The Spirit of the LORD shall rest upon him, the spirit of wisdom and understanding, the spirit of counsel and might, the spirit of knowledge, and of the fear of the LORD. And shall make him of quick understanding in the fear of the LORD.",
-      "Doth not wisdom cry? and understanding put forth her voice? Unto you, O men, I call; and my voice is to the sons of man. O ye simple, understand wisdom: and ye fools, be ye of an understanding heart. Hear; for I will speak of excellent things; and the opening of my lips shall be right things. Counsel is mine, and sound wisdom: I am understanding; I have strength.",
-      "The LORD of hosts ... is wonderful in counsel, and excellent in working. -- If any of you lack wisdom, let him ask of God, that giveth to all men liberally, and upbraideth not; and it shall be given him. -- Trust in the LORD with all thine heart; and lean not unto thine own understanding. In all thy ways acknowledge him, and he shall direct thy paths."
+      "Thou art fairer than the children of men: grace is poured into thy lips: therefore God hath blessed thee for ever. Gird thy sword upon thy thigh, O most Mighty, with thy glory and thy majesty. And in thy majesty ride prosperously ... Thy throne, O God, is for ever and ever: the sceptre of thy kingdom is a right sceptre. -- Thou spakest in vision to thy Holy One, and saidst, I have laid help upon one that is mighty. -- The man that is my fellow, saith the LORD of hosts.",
+      "Behold, God, is my salvation; I will trust, and not be afraid: for the LORD JEHOVAH is my strength and my song; he also is become my salvation. -- Thanks be unto God, which always causes us to triumph in Christ.",
+      "Now unto him that is able to keep you from falling, and to present you faultless before the presence of his glory with exceeding joy, to the only wise God our Saviour, be glory and majesty, dominion and power, both now and ever."
     ],
-    "header": "His name shall be called Counsellor.",
+    "header": "The mighty God.",
     "name": "Evening",
     "references": [
-      "Luke 11:2,3",
-      "Prov 8:1,4-6,14",
-      "Isa 28:29",
-      "Jas 1:5",
-      "Prov 3:5,6"
+      "Psa 45:2-4,6",
+      "Psa 89:19",
+      "Zech 13:7",
+      "Isa 12:2",
+      "2 Cor 2:14",
+      "Jude 24,25"
     ]
   },
   "joomla": "https://git.vdm.dev/christian/mod_dailylight",
   "morning": {
     "body": [
-      "Behold, as the eyes of servants look unto the hand of their masters, and as the eyes of a maiden unto the hand of her mistress; so our eyes wait upon the LORD our God, until that he have mercy upon us.",
-      "A continual burnt offering throughout your generations at the door of the tabernacle of the congregation before the LORD: where I will meet you, to speak there unto thee. -- In all places where I record my name I will come unto thee, and I will bless thee.",
-      "Where two or three are gathered together in my name, there am I in the midst of them.",
-      "The hour cometh, and now is, when the true worshippers shall worship the Father in spirit and in truth: for the Father seeketh such to worship him. God is a Spirit: and they that worship him must worship him in spirit and in truth.",
-      "Praying always with all prayer and supplication in the Spirit. -- Pray without ceasing."
+      "For even hereunto were ye called: because Christ also suffered for us, leaving us an example, that ye should follow his steps: who did no sin, neither was guile found in his mouth: who, when he was reviled, reviled not again; ... but committed himself to him that judgeth righteously. -- Consider him that endured such contradiction of sinners against himself, lest ye be wearied and faint in your minds.",
+      "Let us lay aside every weight, and the sin which doth so easily beset us, and let us run with patience the race that is set before us, looking unto Jesus the author and finisher of our faith; who for the joy that was set before him endured the cross, despising the shame, and is set down at the right hand of the throne of God.",
+      "Finally, brethren, whatsoever things are true, whatsoever things are honest, whatsoever things are just, whatsoever things are pure, whatsoever things are lovely, whatsoever things are of good report: if there be any virtue, and if there be any praise, think on these things."
     ],
-    "header": "Blessed is the man that heareth me, watching daily at my gates, waiting at the posts of my doors.",
+    "header": "Ever follow that which is good.",
     "name": "Morning",
     "references": [
-      "Psa 123:2",
-      "Exo 29:42",
-      "Exo 20:24",
-      "Matt 18:20",
-      "John 4:23,24",
-      "Eph 6:18",
-      "1 Thes 5:17"
+      "1 Pet 2:21-23",
+      "Heb 12:3",
+      "Heb 12:1,2",
+      "Phl 4:8"
     ]
   },
   "source": "https://github.com/trueChristian/daily-light",
