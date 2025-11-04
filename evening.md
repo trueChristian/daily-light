@@ -1,13 +1,13 @@
 **Evening**
 
-**The everlasting Father.**
+**The Prince of Peace.**
  
-Hear, O Israel: The LORD our God is one LORD.
+He shall judge thy people with righteousness, and thy poor with judgment. The mountains shall bring peace to the people, and the little hills, by righteousness. He shall come down like rain upon the mown grass; as showers that water the earth. In his days shall the righteous flourish; and abundance of peace so long as the moon endureth. -- Glory to God ... on earth peace, good will toward men.
  
-I and my Father are one, the Father is in me, and I in him. -- Had ye had known me, ye should have known my Father also. -- Philip saith unto him, Lord, shew us the Father, and it sufficeth us. Jesus saith unto him, Have I been so long time with you, and yet hast thou not known me, Philip? he that hath seen me hath seen the Father. -- Behold I and the children which God hath given me. -- He shall see of the travail of his soul, and shall be satisfied. -- I am Alpha and Omega, the beginning and the ending, saith the Lord, which is, and which was, and which is to come, the Almighty. -- Before Abraham was, I am. -- God said unto Moses, I AM THAT I AM: and he said, Thus shalt thou say unto the children of Israel, I AM hath sent me unto you.
+Through the tender mercy of our God; ... the dayspring from on high hath visited us. To give light to them that sit in darkness and in the shadow of death, to guide our feet into the way of peace; -- peace by Jesus Christ: (he is Lord of all).
  
-Unto the Son he saith, Thy throne, O God, is for ever and ever. -- He is before all things, and by him all things consist. -- In him dwelleth all the fulness of the Godhead bodily.  
+These things I have spoken unto you, that in me ye might have peace. In the world ye shall have tribulation: but be of good cheer; I have overcome the world. -- Peace I leave with you, my peace I give unto you: not as the world giveth give I unto you. -- The peace of God, which passeth all understanding, shall keep your hearts and minds through Christ Jesus.  
 
-**Isa 9:6; Deut 6:4; John 10:30,38; John 8:19; John 14:8,9; Heb 2:13; Isa 53:11; Rev 1:8; John 8:58; Exo 3:14; Heb 1:8; Col 1:17; Col 2:9**
+**Isa 9:6; Psa 72:2-7; Luke 2:14; Luke 1:78,79; Acts 10:36; John 16:33; John 14:27; Phl 4:7**
 
-[Monday 03-November, 2025](https://t.me/daily_light)
+[Tuesday 04-November, 2025](https://t.me/daily_light)
