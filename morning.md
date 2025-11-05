@@ -1,11 +1,15 @@
 **Morning**
 
-**Now for a season, if need be, ye are in heaviness through manifold temptations.**
+**Take thou also unto thee principal spices, and thou shalt make it an oil of holy ointment.**
  
-Beloved, think it not strange concerning the fiery trial which is to try you, as though some strange thing happened unto you: but rejoice, inasmuch as ye are partakers of Christ's sufferings; that, when his glory shall be revealed, ye may be glad also with exceeding joy. -- The exhortation ... speaketh unto you as unto children, My son, despise not thou the chastening of the Lord, nor faint when thou art rebuked of him. -- Now no chastening for the present seemeth to be joyous but grievous: nevertheless, afterward it yieldeth the peaceable fruit of righteousness unto them which are exercised thereby.
+Upon man's flesh shall it not be poured, neither shall ye make any other like it, after the composition of it: it is holy, and it shall be holy unto you. -- One Spirit. -- Diversities of gifts, but the same Spirit.
  
-We have not a high priest which cannot be touched with the feeling of our infirmities; but was in all points tempted like as we are, yet without sin. -- For in that he himself hath suffered being tempted, he is able to succour them that are tempted. -- God is faithful, who will not suffer you to be tempted above that ye are able.  
+Thy God hath anointed thee with the oil of gladness above thy fellows. -- God anointed Jesus of Nazareth with the Holy Ghost and with power. -- God giveth not the Spirit by measure unto him.
+ 
+Of his fulness have all we received. -- As the same anointing teacheth you of all things, and is truth, and is no lie, and even as it hath taught you, ye shall abide in him. -- He which ... hath anointed us, is God; who hath also sealed us, and given the earnest of the Spirit in our hearts.
+ 
+The fruit of the Spirit is love, joy, peace, longsuffering, gentleness, goodness, faith, meekness, temperance: against such there is no law.  
 
-**1 Pet 1:6; 1 Pet 4:12,13; Heb 12:5; Heb 12:11; Heb 4:15; Heb 2:18; 1 Cor 10:13**
+**Exo 30:23,25; Exo 30:32; Eph 4:4; 1 Cor 12:4; Psa 45:7; Acts 10:38; John 3:34; John 1:16; 1 John 2:27; 2 Cor 1:21,22; Gal 5:22,23**
 
-[Tuesday 04-November, 2025](https://t.me/daily_light)
+[Wednesday 05-November, 2025](https://t.me/daily_light)
