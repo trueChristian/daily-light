@@ -1,35 +1,35 @@
 {
-  "date_key": "november-07",
-  "date_name": "Friday 07-November, 2025",
+  "date_key": "november-08",
+  "date_name": "Saturday 08-November, 2025",
   "evening": {
     "body": [
-      "We glory in tribulations: ... knowing that tribulation worketh patience; and patience, experience; and experience, hope: And hope maketh not ashamed; because the love of God is shed abroad in our hearts by the Holy Ghost which is given unto us. -- No chastening for the present seemeth to be joyous, but grievous: nevertheless afterward it yieldeth the peaceable fruit of righteousness unto them which are exercised thereby. -- My brethren, count it all joy when ye fall into divers temptations; knowing this, that the trying of your faith worketh patience. But let patience have her perfect work, that ye may be perfect and entire, wanting nothing. Blessed is the man that endureth temptation: for when he is tried, he shall receive the crown of life, which the Lord hath promised to them that love him. -- Most gladly therefore will I rather glory in my infirmities, that the power of Christ may rest upon me. For when I am weak, then am I strong."
+      "Thus saith the LORD, because the Syrians have said, the LORD is a God of the hills, but he is not God of the valleys; therefore will I deliver all this great multitude into thine hand, and ye shall know that I am the LORD. And they pitched one over against the other seven days; and so it was, that in the seventh day the battle was joined: and the children of Israel slew of the Syrians an hundred thousand footmen in one day. -- Ye are of God, little children, and have overcome them; because greater is he that is in you, than he that is in the world.",
+      "Fear thou not; for I am with thee: be not dismayed; for I am thy God: I will strengthen thee; yea, I will help thee; yea, I will uphold thee with the right hand of my righteousness.",
+      "They shall fight against thee; but they shall not prevail against thee; for I am with thee, saith the LORD, to deliver thee."
     ],
-    "header": "Behold, we count them happy which endure.",
+    "header": "The children of Israel pitched before them like two little flocks of kids; but the Syrians filled the country.",
     "name": "Evening",
     "references": [
-      "Rom 5:3-5",
-      "Heb 12:11",
-      "Jas 1:2-4,12",
-      "2 Cor 12:9,10"
+      "1 Kgs 20:28,29",
+      "1 John 4:4",
+      "Isa 41:10",
+      "Jer 1:19"
     ]
   },
   "joomla": "https://git.vdm.dev/christian/mod_dailylight",
   "morning": {
     "body": [
-      "O taste and see that the LORD is good: blessed is the man that trusteth in him. -- How great is thy goodness, which thou hast laid up for them that fear thee!",
-      "This people have I formed for myself; they shall shew forth my praise. -- Having predestinated us unto the adoption of children by Jesus Christ to himself, according to the good pleasure of his will, to the praise of the glory of his grace, wherein he hath made us accepted in the beloved. That we should be to the praise of his glory, who first trusted in Christ.",
-      "How great is his goodness, and how great is his beauty! -- The LORD is good to all: and his tender mercies are over all his works. All thy works shall praise thee, O LORD; and thy saints shall bless thee. They shall speak of the glory of thy kingdom, and talk of thy power; to make known to the sons of men his mighty acts, and the glorious majesty of his kingdom."
+      "Gird up the loins of your mind, be sober, and hope to the end for the grace that is to be brought unto you at the revelation of Jesus Christ. -- Stand therefore, having your loins girt about with truth, and having on the breastplate of righteousness; above all, taking the shield of faith, wherewith ye shall be able to quench all the fiery darts of the wicked. And take the helmet of salvation, and the sword of the Spirit, which is the word of God.",
+      "He will swallow up death in victory; and the Lord GOD will wipe away tears from off all faces; and the rebuke of his people shall he take away from off all the earth: for the LORD hath spoken it. And it shall be said in that day, Lo, this is our God; we have waited for him, and he will save us: this is the LORD; ... we will be glad and rejoice in his salvation.",
+      "Faith is the substance of things hoped for, the evidence of things not seen."
     ],
-    "header": "Oh that men would praise the Lord for his goodness, and for his wonderful works to the children of men!",
+    "header": "Let us, who are of the day, be sober, putting on the breastplate of faith and love; and for an helmet, the hope of salvation.",
     "name": "Morning",
     "references": [
-      "Psa 34:8",
-      "Psa 31:19",
-      "Isa 43:21",
-      "Eph 1:5,6,12",
-      "Zech 9:17",
-      "Psa 145:9-12"
+      "1 Pet 1:13",
+      "Eph 6:14,16,17",
+      "Isa 25:8,9",
+      "Heb 11:1"
     ]
   },
   "source": "https://github.com/trueChristian/daily-light",
