@@ -1,30 +1,28 @@
 # Morning
 
-**Let us, who are of the day, be sober, putting on the breastplate of faith and love; and for an helmet, the hope of salvation.**
+**I have laid help upon one that is mighty; I have exalted one chosen out of the people.**
  
-Gird up the loins of your mind, be sober, and hope to the end for the grace that is to be brought unto you at the revelation of Jesus Christ. -- Stand therefore, having your loins girt about with truth, and having on the breastplate of righteousness; above all, taking the shield of faith, wherewith ye shall be able to quench all the fiery darts of the wicked. And take the helmet of salvation, and the sword of the Spirit, which is the word of God.
+I, even I, am the Lord; and beside me there is no saviour. -- There is one God, and one mediator between God and men, the man Christ Jesus. -- There is none other name under heaven given among men, whereby we must be saved.
  
-He will swallow up death in victory; and the Lord GOD will wipe away tears from off all faces; and the rebuke of his people shall he take away from off all the earth: for the LORD hath spoken it. And it shall be said in that day, Lo, this is our God; we have waited for him, and he will save us: this is the LORD; ... we will be glad and rejoice in his salvation.
- 
-Faith is the substance of things hoped for, the evidence of things not seen.  
+The mighty God. -- Who made himself of no reputation, and took upon him the form of a servant, and was made in the likeness of men: and being found in fashion as a man, he humbled himself and became obedient unto death, even the death of the cross. Wherefore God also hath highly exalted him, and given him a name which is above every name. -- We see Jesus, who was made a little lower than the angels for the suffering of death, crowned with glory and honour; that he by the grace of God should taste death for every man. -- Forasmuch ... as the children are partakers of flesh and blood, he also himself likewise took part of the same.  
 
-**1 Thes 5:8; 1 Pet 1:13; Eph 6:14,16,17; Isa 25:8,9; Heb 11:1**
+**Psa 89:19; Isa 43:11; 1 Tim 2:5; Acts 4:12; Isa 9:6; Phl 2:7-9; Heb 2:9; Heb 2:14**
 
 # Evening
 
-**The children of Israel pitched before them like two little flocks of kids; but the Syrians filled the country.**
+**Gather my saints together unto me, those that have made a covenant with me by sacrifice.**
  
-Thus saith the LORD, because the Syrians have said, the LORD is a God of the hills, but he is not God of the valleys; therefore will I deliver all this great multitude into thine hand, and ye shall know that I am the LORD. And they pitched one over against the other seven days; and so it was, that in the seventh day the battle was joined: and the children of Israel slew of the Syrians an hundred thousand footmen in one day. -- Ye are of God, little children, and have overcome them; because greater is he that is in you, than he that is in the world.
+Christ was once offered to bear the sins of many; and unto them that look for him shall he appear the second time, without sin, unto salvation. -- He is the mediator of the new testament, that by means of death, ... they which are called might receive the promise of eternal inheritance.
  
-Fear thou not; for I am with thee: be not dismayed; for I am thy God: I will strengthen thee; yea, I will help thee; yea, I will uphold thee with the right hand of my righteousness.
+Father, I will that they also, whom thou hast given me, be with me where I am. -- Then he shall send his angels, and shall gather together his elect from the four winds, from the uttermost part of the earth, to the uttermost part of heaven. -- If any of thine be driven out unto the outmost parts of heaven, from thence will the LORD thy God gather thee, and from thence will he fetch thee.
  
-They shall fight against thee; but they shall not prevail against thee; for I am with thee, saith the LORD, to deliver thee.  
+The dead in Christ shall rise first: then we which are alive and remain shall be caught up together with them in the clouds, to meet be Lord in the air: and so shall we ever be with the Lord.  
 
-**1 Kgs 20:27; 1 Kgs 20:28,29; 1 John 4:4; Isa 41:10; Jer 1:19**
+**Psa 50:5; Heb 9:28; Heb 9:15; John 17:24; Mark 13:27; Deut 30:4; 1 Thes 4:16,17**
 
 ---
 
-[Saturday 08-November, 2025](https://t.me/s/daily_light)
+[Sunday 09-November, 2025](https://t.me/s/daily_light)
 
 > Jonathan Bagster, the son of Samuel Bagster, created the Daily Light for his own family's daily devotion in 1875
 
