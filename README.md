@@ -1,28 +1,30 @@
 # Morning
 
-**I have laid help upon one that is mighty; I have exalted one chosen out of the people.**
+**Faithful in every good work, and increasing in the knowledge of God.**
  
-I, even I, am the Lord; and beside me there is no saviour. -- There is one God, and one mediator between God and men, the man Christ Jesus. -- There is none other name under heaven given among men, whereby we must be saved.
+I beseech you, ... brethren, by the mercies of God, that ye present your bodies a living sacrifice, holy, acceptable unto God, which is your reasonable service. And be not conformed to this world: but be ye transformed by the renewing of your mind, that ye may prove what is that good, and acceptable, and perfect, will of God. -- As ye have yielded your members servants to uncleanness and to iniquity unto iniquity; even so now yield your members servants to righteousness unto holiness. -- In Christ Jesus neither circumcision availeth any thing, nor uncircumcision, but a new creature. And as many as walk according to this rule, peace be on them, and mercy.
  
-The mighty God. -- Who made himself of no reputation, and took upon him the form of a servant, and was made in the likeness of men: and being found in fashion as a man, he humbled himself and became obedient unto death, even the death of the cross. Wherefore God also hath highly exalted him, and given him a name which is above every name. -- We see Jesus, who was made a little lower than the angels for the suffering of death, crowned with glory and honour; that he by the grace of God should taste death for every man. -- Forasmuch ... as the children are partakers of flesh and blood, he also himself likewise took part of the same.  
+Herein is my Father glorified, that ye bear much fruit; so shall ye be my disciples. -- I have chosen you, and ordained you, that ye should go and bring forth fruit, and that your fruit should remain: that whatsoever ye shall ask of the Father in my name, he may give it you.  
 
-**Psa 89:19; Isa 43:11; 1 Tim 2:5; Acts 4:12; Isa 9:6; Phl 2:7-9; Heb 2:9; Heb 2:14**
+**Col 1:10; Rom 12:1,2; Rom 6:19; Gal 6:15,16; John 15:8; John 15:16**
 
 # Evening
 
-**Gather my saints together unto me, those that have made a covenant with me by sacrifice.**
+**I sought him, but I found him not.**
  
-Christ was once offered to bear the sins of many; and unto them that look for him shall he appear the second time, without sin, unto salvation. -- He is the mediator of the new testament, that by means of death, ... they which are called might receive the promise of eternal inheritance.
+Return unto the LORD thy God; for thou hast fallen by thine iniquity. Take with you words, and turn to the LORD: say unto him, Take away all iniquity, and receive us graciously.
  
-Father, I will that they also, whom thou hast given me, be with me where I am. -- Then he shall send his angels, and shall gather together his elect from the four winds, from the uttermost part of the earth, to the uttermost part of heaven. -- If any of thine be driven out unto the outmost parts of heaven, from thence will the LORD thy God gather thee, and from thence will he fetch thee.
+Let no man say when he is tempted, I am tempted of God. But every man is tempted, when he is drawn away of his own lust, and enticed. Do not err, my beloved brethren. Every good gift and every perfect gift is from above, and cometh down from the Father of lights, with whom is no variableness, neither shadow of turning.
  
-The dead in Christ shall rise first: then we which are alive and remain shall be caught up together with them in the clouds, to meet be Lord in the air: and so shall we ever be with the Lord.  
+Wait on the Lord; be of good courage, and he shall strengthen thine heart: wait, I say, on the LORD. -- It is good that a man should both hope and quietly wait for the salvation of the LORD. -- Shall not God avenge his own elect, which cry day and night unto him, though he bear long with them?
+ 
+Truly my soul waiteth upon God: from him cometh my salvation. My soul, wait thou only upon God; for my expectation is from him.  
 
-**Psa 50:5; Heb 9:28; Heb 9:15; John 17:24; Mark 13:27; Deut 30:4; 1 Thes 4:16,17**
+**Song 3:1; Hos 14:1,2; Jas 1:13-17; Psa 27:14; Lam 3:26; Luke 18:7; Psa 62:1,5**
 
 ---
 
-[Sunday 09-November, 2025](https://t.me/s/daily_light)
+[Monday 10-November, 2025](https://t.me/s/daily_light)
 
 > Jonathan Bagster, the son of Samuel Bagster, created the Daily Light for his own family's daily devotion in 1875
 
