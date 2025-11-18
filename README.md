@@ -1,28 +1,30 @@
 # Morning
 
-**Thy thoughts are very deep.**
+**He stayeth his rough wind in the day of the east wind.**
  
-We ... do not cease to pray for you, and to desire that ye might be filled with the knowledge of his will in all wisdom and spiritual understanding. -- That ye, being rooted and grounded in love, may be able to comprehend with all saints what is the breadth, and length, and depth, and height; and to know the love of Christ, which passeth knowledge, that ye might be filled with all the fulness of God.
+Let us fall now into the hand of the LORD; for his mercies are great. -- I am with thee, saith the LORD, to save thee: ... I will correct thee in measure, and will not leave thee altogether unpunished. -- He will not always chide: neither will he keep his anger for ever. He hath not dealt with us after our sins; nor rewarded us according to our iniquities. For he knoweth our frame; he remembereth that we are dust. -- I will spare them, as a man spareth his own son that serveth him.
  
-O the depth of the riches both of the wisdom and knowledge of God! how unsearchable are his judgments, and his ways past finding out! -- My thoughts are not your thoughts, neither are your ways my ways, saith the LORD. For as the heavens are higher than the earth, so are my ways higher than your ways, and my thoughts than your thoughts. -- Many, O LORD my God, are thy wonderful works which thou hast done, and thy thoughts which are to us ward: they cannot be reckoned up in order unto thee: if I would declare and speak of them, they are more than can be numbered.  
+God is faithful, who will not suffer you to be tempted above that ye are able; but will with the temptation also make a way to escape, that ye may be able to bear it. -- Satan hath desired to have you, that he may sift you as wheat: but I have prayed for thee, that thy faith fail not.
+ 
+Thou hast been a strength to the poor, a strength to the needy in his distress, a refuge from the storm, a shadow from the heat, when the blast of the terrible ones is as a storm against the wall.  
 
-**Psa 92:5; Col 1:9; Eph 3:17-19; Rom 11:33; Isa 55:8,9; Psa 40:5**
+**Isa 27:8; 2 Sam 24:14; Jer 30:11; Psa 103:9,10,14; Mal 3:17; 1 Cor 10:13; Luke 22:31,32; Isa 25:4**
 
 # Evening
 
-**Whatsoever a man soweth, that shall he also reap.**
+**I believed not the words, until I came, and mine eyes had seen it; and, behold, the half was not told me.**
  
-They that plow iniquity, and sow wickedness, reap the same. -- They have sown the wind, and they shall reap the whirlwind. -- He that soweth to his flesh shall of the flesh reap corruption.
+The queen of the south shall rise up in the judgment with this generation, and shall condemn it: for she came from the uttermost parts of the earth to hear the wisdom of Solomon; and, behold, a greater than Solomon is here. -- We beheld his glory, the glory as of the only begotten of the Father, full of grace and truth.
  
-To him that soweth righteousness shall be a sure reward. -- He that soweth to the Spirit shall of the Spirit reap life everlasting. And let us not be weary in well doing: for in due season we shall reap, if we faint not. As we have therefore opportunity, let us do good unto all men, especially unto them who are of the household of faith.
+My speech and my preaching was ... in demonstration of the Spirit and of power: that your faith should not stand in the wisdom of men, but in the power of God. But as it is written, Eye hath not seen, nor ear heard, neither have entered into the heart of man, the things which God hath prepared for them that love him. But God hath revealed them unto us by his Spirit: for the Spirit searcheth all things, yea, the deep things of God.
  
-There is that scattereth, and yet increaseth; and there is that withholdeth more than is meet, but it tendeth to poverty. -- The liberal soul shall be made fat: and he that watereth shall be watered also himself. -- He which soweth sparingly shall reap also sparingly; and he which soweth bountifully shall reap also bountifully.  
+Thine eyes shall see the King in his beauty. -- We shall see him as he is. -- In my flesh I shall see God. -- I shall be satisfied.  
 
-**Gal 6:7; Job 4:8; Hos 8:7; Gal 6:8; Prov 11:18; Gal 6:8-10; Prov 11:24; Prov 11:25; 2 Cor 9:6**
+**1 Kgs 10:7; Matt 12:42; John 1:14; 1 Cor 2:4,5,9,10; Isa 33:17; 1 John 3:2; Job 19:26; Psa 17:15**
 
 ---
 
-[Monday 17-November, 2025](https://t.me/s/daily_light)
+[Tuesday 18-November, 2025](https://t.me/s/daily_light)
 
 > Jonathan Bagster, the son of Samuel Bagster, created the Daily Light for his own family's daily devotion in 1875
 
