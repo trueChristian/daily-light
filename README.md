@@ -1,30 +1,32 @@
 # Morning
 
-**He stayeth his rough wind in the day of the east wind.**
+**By their fruits ye shall know them.**
  
-Let us fall now into the hand of the LORD; for his mercies are great. -- I am with thee, saith the LORD, to save thee: ... I will correct thee in measure, and will not leave thee altogether unpunished. -- He will not always chide: neither will he keep his anger for ever. He hath not dealt with us after our sins; nor rewarded us according to our iniquities. For he knoweth our frame; he remembereth that we are dust. -- I will spare them, as a man spareth his own son that serveth him.
+Little children, let no man deceive you: he that doeth righteousness is righteous, even as he is righteous. -- Doth a fountain send forth at the same place sweet water and bitter? Can the fig tree, my brethren, bear olive berries? either a vine, figs? so can no fountain both yield salt water and fresh. Who is a wise man and endued with knowledge among you? let him shew out of a good conversation his works with meekness of wisdom. -- Having your conversation honest among the Gentiles: that, whereas they speak against you as evildoers, they may by your good works, which they shall behold, glorify God in the day of visitation.
  
-God is faithful, who will not suffer you to be tempted above that ye are able; but will with the temptation also make a way to escape, that ye may be able to bear it. -- Satan hath desired to have you, that he may sift you as wheat: but I have prayed for thee, that thy faith fail not.
+Either make the tree good, and his fruit good; or else make the tree corrupt, and his fruit corrupt: for the tree is known by his fruit. -- A good man out of the good treasure of the heart bringeth forth good things: and an evil man out of the evil treasure bringeth forth evil things.
  
-Thou hast been a strength to the poor, a strength to the needy in his distress, a refuge from the storm, a shadow from the heat, when the blast of the terrible ones is as a storm against the wall.  
+What could have been done more to my vineyard, that I have not done in it?  
 
-**Isa 27:8; 2 Sam 24:14; Jer 30:11; Psa 103:9,10,14; Mal 3:17; 1 Cor 10:13; Luke 22:31,32; Isa 25:4**
+**Matt 7:20; 1 John 3:7; Jas 3:11-13; 1 Pet 2:12; Matt 12:33; Matt 12:35; Isa 5:4**
 
 # Evening
 
-**I believed not the words, until I came, and mine eyes had seen it; and, behold, the half was not told me.**
+**I will make the place of my feet glorious.**
  
-The queen of the south shall rise up in the judgment with this generation, and shall condemn it: for she came from the uttermost parts of the earth to hear the wisdom of Solomon; and, behold, a greater than Solomon is here. -- We beheld his glory, the glory as of the only begotten of the Father, full of grace and truth.
+Thus saith the LORD, The heaven is my throne, and the earth is my footstool.
  
-My speech and my preaching was ... in demonstration of the Spirit and of power: that your faith should not stand in the wisdom of men, but in the power of God. But as it is written, Eye hath not seen, nor ear heard, neither have entered into the heart of man, the things which God hath prepared for them that love him. But God hath revealed them unto us by his Spirit: for the Spirit searcheth all things, yea, the deep things of God.
+Will God in very deed dwell with men on the earth! Behold, heaven and the heaven of heavens cannot contain thee; how much less this house which I have built!
  
-Thine eyes shall see the King in his beauty. -- We shall see him as he is. -- In my flesh I shall see God. -- I shall be satisfied.  
+Thus saith the LORD of hosts, Yet once, it is a little while, and I will shake the heavens, and the earth, and the sea, and the dry land; and I will shake all nations, and the desire of all nations shall come: and I will fill this house with glory, saith the LORD of hosts. The glory of this latter house shall be greater than of the former, saith the LORD of hosts.
+ 
+I saw a new heaven and a new earth: for the first heaven and the first earth were passed away; and there was no more sea. And I heard a great voice out of heaven, saying, Behold, the tabernacle of God is with men, and he will dwell with them, and they shall be his people, and God himself shall be with them, and be their God.  
 
-**1 Kgs 10:7; Matt 12:42; John 1:14; 1 Cor 2:4,5,9,10; Isa 33:17; 1 John 3:2; Job 19:26; Psa 17:15**
+**Isa 60:13; Isa 66:1; 2 Chr 6:18; Hag 2:6,7,9; Rev 21:1,3**
 
 ---
 
-[Tuesday 18-November, 2025](https://t.me/s/daily_light)
+[Wednesday 19-November, 2025](https://t.me/s/daily_light)
 
 > Jonathan Bagster, the son of Samuel Bagster, created the Daily Light for his own family's daily devotion in 1875
 
