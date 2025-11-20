@@ -1,15 +1,15 @@
 **Evening**
 
-**I will make the place of my feet glorious.**
+**One God, and one mediator between God and men, the man Christ Jesus.**
  
-Thus saith the LORD, The heaven is my throne, and the earth is my footstool.
+Hear, O Israel: The LORD our God is one LORD. -- A mediator is not a mediator of one, but God is one.
  
-Will God in very deed dwell with men on the earth! Behold, heaven and the heaven of heavens cannot contain thee; how much less this house which I have built!
+We have sinned with our fathers, we have committed iniquity, we have done wickedly. Our fathers understood not thy wonders in Egypt; they remembered not the multitude of thy mercies ... Therefore he said that he would destroy them, had not Moses his chosen stood before him in the breach, to turn away his wrath, lest he should destroy them.
  
-Thus saith the LORD of hosts, Yet once, it is a little while, and I will shake the heavens, and the earth, and the sea, and the dry land; and I will shake all nations, and the desire of all nations shall come: and I will fill this house with glory, saith the LORD of hosts. The glory of this latter house shall be greater than of the former, saith the LORD of hosts.
+Wherefore, holy brethren, partakers of the heavenly calling, consider the Apostle and High Priest of our profession, Christ Jesus; who was faithful to him that appointed him, as also Moses was faithful in all his house.
  
-I saw a new heaven and a new earth: for the first heaven and the first earth were passed away; and there was no more sea. And I heard a great voice out of heaven, saying, Behold, the tabernacle of God is with men, and he will dwell with them, and they shall be his people, and God himself shall be with them, and be their God.  
+He is the mediator of a better covenant, which was established upon better promises. I will be merciful to their unrighteousness, and their sins and their iniquities will I remember no more.  
 
-**Isa 60:13; Isa 66:1; 2 Chr 6:18; Hag 2:6,7,9; Rev 21:1,3**
+**1 Tim 2:5; Deut 6:4; Gal 3:20; Psa 106:6,7,23; Heb 3:1-3; Heb 8:6,12**
 
-[Wednesday 19-November, 2025](https://t.me/daily_light)
+[Thursday 20-November, 2025](https://t.me/daily_light)
