@@ -1,30 +1,30 @@
 # Morning
 
-**Being made free from sin, ye became the servants of righteousness.**
+**The Lord delighteth in thee.**
  
-Ye cannot serve God and Mammon. -- When ye were the servants of sin, ye were free from righteousness. What fruit had ye then in those things whereof ye are now ashamed? for the end of those things is death. But now being made free from sin, and become servants to God, ye have your fruit unto holiness, and the end everlasting life.
+Thus saith the LORD that created thee, ... Fear not: for I have redeemed thee, I have called thee by thy name; thou art mine. -- Can a woman forget her sucking child, that she should not have compassion on the son of her womb? yea, they may forget, yet will I not forget thee. Behold, I have graven thee upon the palms of mine hands: thy walls are continually before me.
  
-Christ is the end of the law for righteousness to every one that believeth.
+The steps of a good man are ordered by the LORD: and he delighteth in his way. -- My delights were with the sons of men. -- The LORD taketh pleasure in them that fear him, in those that hope in his mercy. -- They shall be mine, saith the LORD of hosts, in that day when I make up my jewels; and I will spare them, as a man spareth his own son that serveth him.
  
-If any man serve me, let him follow me; and where I am, there shall also my servant be: if any man serve me, him will my Father honour. -- Take my yoke upon you, and learn of me: for I am meek and lowly in heart: and ye shall find rest unto your souls. For my yoke is easy, and my burden is light.
- 
-O LORD our God, other lords beside thee have had dominion over us: but by thee only will we make mention of thy name. -- I will run the way of thy commandments, when thou shalt enlarge my heart.  
+You, that were sometime alienated and enemies in your mind by wicked works, yet now hath he reconciled in the body of his flesh through death, to present you holy and unblameable and unreproveable in his sight.  
 
-**Rom 6:18; Matt 6:24; Rom 6:20-22; Rom 10:4; John 12:26; Matt 11:29,30; Isa 26:13; Psa 119:32**
+**Isa 62:4; Isa 43:1; Isa 49:15,16; Psa 37:23; Prov 8:31; Psa 147:11; Mal 3:17; Col 1:21,22**
 
 # Evening
 
-**Whosoever shall call on the name of the Lord shall he saved.**
+**The sorrow of the world worketh death.**
  
-Manasseh did that which was evil in the sight of the LORD, after the abominations of the heathen, and he reared up altars for Baal. And he built altars for all the host of heaven in the two courts of the house of the LORD. -- And he made his son pass through the fire, and observed times, and used enchantments, and dealt with familiar spirits and wizards: he wrought much wickedness in the sight of the LORD, to provoke him to anger. -- And when he was in affliction, he besought the LORD his God, and humbled himself greatly before the God of his fathers, and prayed unto him: and he was intreated of him, and heard his supplication.
+When Ahithophel saw that his counsel was not followed, he saddled his ass, and arose, and gat him home to his house, to his city, and put his household in order, and hanged himself, and died. -- A wounded spirit who can bear?
  
-Come now, and let us reason together, saith the LORD: though your sins be as scarlet, they shall be as white as snow; though they be red like crimson, they shall be as wool. -- The Lord is longsuffering to us ward, not willing that any should perish.  
+Is there no balm in Gilead? is there no physician there? why then is not the health of the daughter of my people recovered? -- The LORD hath anointed me to preach good tidings unto the meek: he hath sent me to bind up the broken hearted, to comfort all that mourn; to appoint unto them that mourn in Zion, to give unto them beauty for ashes, the oil of joy for mourning, the garment of praise for the spirit of heaviness. -- Come unto me, all ye that labour and are heavy laden, and I will give you rest. Take my yoke upon you, and learn of me; for I am meek and lowly in heart: and ye shall find rest unto your souls. For my yoke is easy, and my burden is light.
+ 
+Philip preached unto him Jesus. -- He healeth the broken in heart, and bindeth up their wounds.  
 
-**Acts 2:21; 2 Kgs 21:1,2,3,5,6; 2 Chr 33:12,13; Isa 1:18; 2 Pet 3:9**
+**2 Cor 7:10; 2 Sam 17:23; Prov 18:14; Jer 8:22; Isa 61:1-3; Matt 11:28-30; Acts 8:35; Psa 147:3**
 
 ---
 
-[Tuesday 25-November, 2025](https://t.me/s/daily_light)
+[Wednesday 26-November, 2025](https://t.me/s/daily_light)
 
 > Jonathan Bagster, the son of Samuel Bagster, created the Daily Light for his own family's daily devotion in 1875
 
