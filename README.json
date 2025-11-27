@@ -1,41 +1,42 @@
 {
-  "date_key": "november-26",
-  "date_name": "Wednesday 26-November, 2025",
+  "date_key": "november-27",
+  "date_name": "Thursday 27-November, 2025",
   "evening": {
     "body": [
-      "When Ahithophel saw that his counsel was not followed, he saddled his ass, and arose, and gat him home to his house, to his city, and put his household in order, and hanged himself, and died. -- A wounded spirit who can bear?",
-      "Is there no balm in Gilead? is there no physician there? why then is not the health of the daughter of my people recovered? -- The LORD hath anointed me to preach good tidings unto the meek: he hath sent me to bind up the broken hearted, to comfort all that mourn; to appoint unto them that mourn in Zion, to give unto them beauty for ashes, the oil of joy for mourning, the garment of praise for the spirit of heaviness. -- Come unto me, all ye that labour and are heavy laden, and I will give you rest. Take my yoke upon you, and learn of me; for I am meek and lowly in heart: and ye shall find rest unto your souls. For my yoke is easy, and my burden is light.",
-      "Philip preached unto him Jesus. -- He healeth the broken in heart, and bindeth up their wounds."
+      "She took of the fruit thereof, and did eat, and gave also unto her husband with her; and he did eat. -- Did not Achan the son of Zerah commit a trespass in the accursed thing, and wrath fell on all the congregation of Israel? and that man perished not alone in his iniquity.",
+      "Thou shalt not follow a multitude to do evil.",
+      "Wide is the gate, and broad is the way, that leadeth to destruction, and many there be which go in thereat.",
+      "None of us liveth to himself. -- Brethren, ye have been called unto liberty; only use not liberty for an occasion to the flesh, but by love serve one another. -- Take heed lest by any means this liberty of yours become a stumblingblock to them that are weak. When ye sin so against the brethren, and wound their weak conscience, ye sin against Christ.",
+      "All we, like sheep, have gone astray; we have turned every one to his own way; and the Lord hath laid on him the iniquity of us all."
     ],
-    "header": "The sorrow of the world worketh death.",
+    "header": "My son, if sinners entice thee, consent thou not.",
     "name": "Evening",
     "references": [
-      "2 Sam 17:23",
-      "Prov 18:14",
-      "Jer 8:22",
-      "Isa 61:1-3",
-      "Matt 11:28-30",
-      "Acts 8:35",
-      "Psa 147:3"
+      "Gen 3:6",
+      "Josh 22:20",
+      "Exo 23:2",
+      "Matt 7:13",
+      "Rom 14:7",
+      "Gal 5:13",
+      "1 Cor 8:9,12",
+      "Isa 53:6"
     ]
   },
   "joomla": "https://git.vdm.dev/christian/mod_dailylight",
   "morning": {
     "body": [
-      "Thus saith the LORD that created thee, ... Fear not: for I have redeemed thee, I have called thee by thy name; thou art mine. -- Can a woman forget her sucking child, that she should not have compassion on the son of her womb? yea, they may forget, yet will I not forget thee. Behold, I have graven thee upon the palms of mine hands: thy walls are continually before me.",
-      "The steps of a good man are ordered by the LORD: and he delighteth in his way. -- My delights were with the sons of men. -- The LORD taketh pleasure in them that fear him, in those that hope in his mercy. -- They shall be mine, saith the LORD of hosts, in that day when I make up my jewels; and I will spare them, as a man spareth his own son that serveth him.",
-      "You, that were sometime alienated and enemies in your mind by wicked works, yet now hath he reconciled in the body of his flesh through death, to present you holy and unblameable and unreproveable in his sight."
+      "I saw ... the Lord sitting upon a throne, high and lifted up, and his train filled the temple. Above it stood the seraphims. And one cried unto another, and said, Holy, holy, holy, is the LORD of hosts; the whole earth is full of his glory. -- These things said Esaias, when he saw his glory, and spake of him. -- Upon the likeness of the throne was the likeness ... of a man above upon it. As the appearance of the bow that is in the cloud in the day of rain, so was the appearance of the brightness round about. This was the appearance of the likeness of the glory of the LORD.",
+      "I beseech thee, shew me thy glory. And he said, Thou canst not see my face: for there shall no man see me, and live. -- No man hath seen God at any time; the only begotten Son, which is in the bosom of the Father, he hath declared him. -- God, who commanded the light to shine out of darkness, hath shined in our hearts, to give the light of the knowledge of the glory of God in the face of Jesus Christ."
     ],
-    "header": "The Lord delighteth in thee.",
+    "header": "The glory which thou gavest me I have given them.",
     "name": "Morning",
     "references": [
-      "Isa 43:1",
-      "Isa 49:15,16",
-      "Psa 37:23",
-      "Prov 8:31",
-      "Psa 147:11",
-      "Mal 3:17",
-      "Col 1:21,22"
+      "Isa 6:1-3",
+      "John 12:41",
+      "Ezek 1:26,28",
+      "Exo 33:18,20",
+      "John 1:18",
+      "2 Cor 4:6"
     ]
   },
   "source": "https://github.com/trueChristian/daily-light",
