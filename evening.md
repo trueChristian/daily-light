@@ -1,17 +1,13 @@
 **Evening**
 
-**My son, if sinners entice thee, consent thou not.**
+**As the children are partakers of flesh and blood, he also himself likewise took part of the same; that he might deliver them who through fear of death were all their lifetime subject to bondage.**
  
-She took of the fruit thereof, and did eat, and gave also unto her husband with her; and he did eat. -- Did not Achan the son of Zerah commit a trespass in the accursed thing, and wrath fell on all the congregation of Israel? and that man perished not alone in his iniquity.
+O death, where is thy sting? O grave, where is thy victory? Thanks be to God, which giveth us the victory through our Lord Jesus Christ. -- For which cause we faint not; but though our outward man perish, yet the inward man is renewed day by day.
  
-Thou shalt not follow a multitude to do evil.
+We know that if our earthly house of this tabernacle were dissolved, we have a building of God, an house not made with hands, eternal in the heavens. Therefore we are always confident, knowing that, whilst we are at home in the body, we are absent from the Lord. We are willing rather to be absent from the body, and to be present with the Lord.
  
-Wide is the gate, and broad is the way, that leadeth to destruction, and many there be which go in thereat.
- 
-None of us liveth to himself. -- Brethren, ye have been called unto liberty; only use not liberty for an occasion to the flesh, but by love serve one another. -- Take heed lest by any means this liberty of yours become a stumblingblock to them that are weak. When ye sin so against the brethren, and wound their weak conscience, ye sin against Christ.
- 
-All we, like sheep, have gone astray; we have turned every one to his own way; and the Lord hath laid on him the iniquity of us all.  
+Let not your heart be troubled: ye believe in God, believe also in me. In my Father's house are many mansions: if it were not so, I would have told you. I go to prepare a place for you.  
 
-**Prov 1:10; Gen 3:6; Josh 22:20; Exo 23:2; Matt 7:13; Rom 14:7; Gal 5:13; 1 Cor 8:9,12; Isa 53:6**
+**Heb 2:14,15; 1 Cor 15:55,57; 2 Cor 4:16; 2 Cor 5:1,6-8; John 14:1-3**
 
-[Thursday 27-November, 2025](https://t.me/daily_light)
+[Friday 28-November, 2025](https://t.me/daily_light)
