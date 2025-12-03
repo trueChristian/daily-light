@@ -1,15 +1,15 @@
 **Morning**
 
-**Ye have an unction from the Holy One, and ye know all things.**
+**I would seek unto God, and unto God would I commit my cause.**
  
-God anointed Jesus of Nazareth with the Holy Ghost and with power. -- It pleased the Father that in him should all fulness dwell. -- Of his fulness have all we received, and grace for grace.
+Is anything too hard for the LORD? -- Commit thy way unto the LORD; trust also in him; and he shall bring it to pass. -- Be careful for nothing; but in every thing by prayer and supplication, with thanksgiving, let your requests be made known unto God. -- Casting all your care upon him, for he careth for you.
  
-Thou anointest my head with oil. -- The anointing which ye have received of him abideth in you, and ye need not that any man teach you: but as the same anointing teacheth you of all things, and is truth, and is no lie, and even as it hath taught you, ye shall abide in him.
+Hezekiah received the letter from the hand of the messengers, and read it: and Hezekiah went up unto the house of the LORD, and spread it before the LORD. And Hezekiah prayed unto the LORD.
  
-The Comforter, which is the Holy Ghost, whom the Father will send in my name, he shall teach you all things, and bring all things to your remembrance, whatsoever I have said unto you.
+It shall come to pass, that before they call, I will answer; and while they are yet speaking, I will hear. -- The effectual fervent prayer of a righteous man availeth much.
  
-The Spirit also helpeth our infirmities: for we know not what we should pray for as we ought: but the Spirit itself maketh intercession for us with groanings which cannot be uttered.  
+I love the Lord, because he hath heard my voice and my supplications. Because he hath inclined his ear unto me, therefore will I call upon him as long as I live.  
 
-**1 John 2:20; Acts 10:38; Col 1:19; John 1:16; Psa 23:5; 1 John 2:27; John 14:26; Rom 8:26**
+**Job 5:8; Gen 18:14; Psa 37:5; Phl 4:6; 1 Pet 5:7; Isa 37:14,15; Isa 65:24; Jas 5:16; Psa 116:1,2**
 
-[Tuesday 02-December, 2025](https://t.me/daily_light)
+[Wednesday 03-December, 2025](https://t.me/daily_light)
