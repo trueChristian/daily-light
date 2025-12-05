@@ -1,13 +1,13 @@
 **Morning**
 
-**Where shall wisdom be found?**
+**It is good for me that I have been afflicted; that I might learn thy statutes.**
  
-If any of you lack wisdom, let him ask of God, that giveth to all men liberally, and upbraideth not; and it shall be given him. But let him ask in faith, nothing wavering. -- Trust in the LORD with all thine heart; and lean not unto thine own understanding. In all thy ways acknowledge him, and he shall direct thy paths. -- The only wise God. -- Be not wise in thine own eyes.
+Though he were a Son, yet learned he obedience by the things which he suffered. -- We suffer with him, that we may be also glorified together. For I reckon that the sufferings of this present time are not worthy to be compared with the glory which shall be revealed in us.
  
-Ah, Lord God! behold, I cannot speak: for I am a child. But the Lord said unto me, Say not, I am a child: for thou shalt go to all that I shall send thee, and whatsoever I command thee thou shalt speak. Be not afraid of their faces: for I am with thee to deliver thee, saith the LORD.
+He knoweth the way that I take: when he hath tried me, I shall come forth as gold. My foot hath held his steps, his way have I kept, and not declined.
  
-Whatsoever ye shall ask the Father in my name, he will give it you. Hitherto have ye asked nothing in my name: ask, and ye shall receive, that your joy may be full. -- All things whatsoever ye shall ask in prayer, believing, ye shall receive.  
+Thou shalt remember all the way which the LORD thy God led thee these forty years in the wilderness, to humble thee, and to prove thee, to know what was in thine heart, whether thou wouldest keep his commandments, or no. Thou shalt also consider in thine heart, that, as a man chasteneth his son, so the LORD thy God chasteneth thee. Therefore thou shalt keep the commandments of the LORD thy God, to walk in his ways, and to fear him.  
 
-**Job 28:12; Jas 1:5,6; Prov 3:5,6; 1 Tim 1:17; Prov 3:7; Jer 1:6-8; John 16:23,24; Matt 21:22**
+**Psa 119:71; Heb 5:8; Rom 8:17,18; Job 23:10,11; Deut 8:2,5,6**
 
-[Thursday 04-December, 2025](https://t.me/daily_light)
+[Friday 05-December, 2025](https://t.me/daily_light)
