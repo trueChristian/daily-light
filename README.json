@@ -1,41 +1,43 @@
 {
-  "date_key": "december-13",
-  "date_name": "Saturday 13-December, 2025",
+  "date_key": "december-14",
+  "date_name": "Sunday 14-December, 2025",
   "evening": {
     "body": [
-      "Other foundation can no man lay than that is laid, which is Jesus Christ. If any man's work abide which he hath built thereupon, he shall receive a reward. If any man's work shall be burned, he shall suffer loss: but he himself shall be saved; yet so as by fire. -- We must all appear before the judgment seat of Christ; that every one may receive the things done in his body, according to that he hath done, whether it be good or bad.",
-      "When thou doest alms, let not thy left hand know what thy right hand doeth: that thine alms may be in secret: and thy Father which seeth in secret himself shall reward thee openly. -- After a long time the lord of those servants cometh, and reckoneth with them.",
-      "Not that we are sufficient of ourselves to think any thing as of ourselves; but our sufficiency is of God. -- LORD, thou wilt ordain peace for us: for thou also hast wrought all our works in us."
+      "We ourselves also were sometime foolish, disobedient, deceived, serving divers lusts and pleasures, living in malice and envy, hateful, and hating one another. -- Marvel not that I said unto thee, Ye must be born again.",
+      "Job answered the LORD, and said, Behold, I am vile: what shall I answer thee? I will lay mine hand upon my mouth. -- The LORD said unto Satan, Hast thou considered my servant Job, that there is none like him in the earth, a perfect and an upright man, one that feareth God, and escheweth evil?",
+      "Behold, I was shapen in iniquity; and in sin did my mother conceive me. -- David ... to whom also he gave testimony, and said, I have found David the son of Jesse, a man after mine own heart, which shall fulfil all my will.",
+      "I obtained mercy, ... who was before a blasphemer, and a persecutor, and injurious.",
+      "That which is born of the flesh is flesh; and that which is born of the Spirit is spirit."
     ],
-    "header": "Thou renderest to every man according to his work.",
+    "header": "By nature the children of wrath, even as others.",
     "name": "Evening",
     "references": [
-      "1 Cor 3:11,14,15",
-      "2 Cor 5:10",
-      "Matt 6:3,4",
-      "Matt 25:19",
-      "2 Cor 3:5",
-      "Isa 26:12"
+      "Tit 3:3",
+      "John 3:7",
+      "Job 40:3,4",
+      "Job 1:8",
+      "Psa 51:5",
+      "Acts 13:22",
+      "1 Tim 1:13",
+      "John 3:6"
     ]
   },
   "joomla": "https://git.vdm.dev/christian/mod_dailylight",
   "morning": {
     "body": [
-      "Strengthened with all might, according to his glorious power. -- As ye have therefore received Christ Jesus the Lord, so walk ye in him: rooted and built up in him, and stablished in the faith, as ye have been taught, abounding therein with thanksgiving. -- Trees of righteousness, the planting of the LORD, that he might be glorified. -- Built upon the foundation of the apostles and prophets, Jesus Christ himself being the chief corner stone; in whom all the building fitly framed together groweth unto a holy temple in the Lord: in whom ye also are builded together for a habitation of God through the Spirit.",
-      "I commend you to God, and to the word of his grace, which is able to build you up, and to give you an inheritance among all them which are sanctified. -- Being filled with the fruits of righteousness, which are by Jesus Christ, unto the glory and praise of God.",
-      "Fight the good fight of faith. -- In nothing terrified by your adversaries."
+      "This people have I formed for myself; they shall shew forth my praise. -- I will cleanse them from all their iniquity, whereby they have sinned against me; and I will pardon all their iniquities, whereby they have sinned, and whereby they have transgressed against me. And it shall be to me a name of joy, a praise and an honour before all the nations of the earth. -- By him therefore let us offer the sacrifice of praise to God continually, that is, the fruit of our lips giving thanks to his name.",
+      "I will praise thee, O Lord my God, with all my heart: and I will glorify thy name for evermore. For great is thy mercy toward me: and thou hast delivered my soul from the lowest hell. -- Who is like unto thee, O LORD, ... glorious in holiness, fearful in praises, doing wonders? -- I will praise the name of God with a song, and will magnify him with thanksgiving. -- They sing the song of Moses the servant of God and the song of the Lamb, saying, Great and marvellous are thy works, Lord God Almighty."
     ],
-    "header": "Be strong in the grace that is in Christ Jesus.",
+    "header": "Make his praise glorious.",
     "name": "Morning",
     "references": [
-      "Col 1:11",
-      "Col 2:6,7",
-      "Isa 61:3",
-      "Eph 2:20,22",
-      "Acts 20:32",
-      "Phl 1:11",
-      "1 Tim 6:12",
-      "Phl 1:28"
+      "Isa 43:21",
+      "Jer 33:8,9",
+      "Heb 13:15",
+      "Psa 86:12,13",
+      "Exo 15:11",
+      "Psa 69:30",
+      "Rev 15:3"
     ]
   },
   "source": "https://github.com/trueChristian/daily-light",
