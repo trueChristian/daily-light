@@ -1,32 +1,30 @@
 # Morning
 
-**Make his praise glorious.**
+**Bear ye one another's burdens, and so fulfil the law of Christ.**
  
-This people have I formed for myself; they shall shew forth my praise. -- I will cleanse them from all their iniquity, whereby they have sinned against me; and I will pardon all their iniquities, whereby they have sinned, and whereby they have transgressed against me. And it shall be to me a name of joy, a praise and an honour before all the nations of the earth. -- By him therefore let us offer the sacrifice of praise to God continually, that is, the fruit of our lips giving thanks to his name.
+Look not every man on his own things, but every man also on the things of others. Let this mind be in you, which was also in Christ Jesus: who ... took upon him the form of a servant. -- Even the Son of man came not to be ministered unto, but to minister, and to give his life a ransom for many. -- He died for all, that they which live should not henceforth live unto themselves, but unto him which died for them, and rose again.
  
-I will praise thee, O Lord my God, with all my heart: and I will glorify thy name for evermore. For great is thy mercy toward me: and thou hast delivered my soul from the lowest hell. -- Who is like unto thee, O LORD, ... glorious in holiness, fearful in praises, doing wonders? -- I will praise the name of God with a song, and will magnify him with thanksgiving. -- They sing the song of Moses the servant of God and the song of the Lamb, saying, Great and marvellous are thy works, Lord God Almighty.  
+When Jesus ... saw her weeping, and the Jews also weeping which came with her, he groaned in the spirit, and was troubled. -- Jesus wept. -- Rejoice with them that do rejoice, and weep with them that weep.
+ 
+Be ye all of one mind, having compassion one of another, love as brethren, be pitiful, be courteous: not rendering evil for evil or railing for railing: but contrariwise blessing; knowing that ye are thereunto called, that ye should inherit a blessing.  
 
-**Psa 66:2; Isa 43:21; Jer 33:8,9; Heb 13:15; Psa 86:12,13; Exo 15:11; Psa 69:30; Rev 15:3**
+**Gal 6:2; Phl 2:4,5,7; Mark 10:45; 2 Cor 5:15; John 11:33; John 11:35; Rom 12:15; 1 Pet 3:8,9**
 
 # Evening
 
-**By nature the children of wrath, even as others.**
+**Son, go work to day in my vineyard.**
  
-We ourselves also were sometime foolish, disobedient, deceived, serving divers lusts and pleasures, living in malice and envy, hateful, and hating one another. -- Marvel not that I said unto thee, Ye must be born again.
+Thou are no more a servant, but a son; and if a son, then an heir of God through Christ.
  
-Job answered the LORD, and said, Behold, I am vile: what shall I answer thee? I will lay mine hand upon my mouth. -- The LORD said unto Satan, Hast thou considered my servant Job, that there is none like him in the earth, a perfect and an upright man, one that feareth God, and escheweth evil?
+Reckon ye ... yourselves to be dead indeed unto sin, but alive unto God through Jesus Christ our Lord. Let not sin therefore reign in your mortal body, that ye should obey it in the lusts thereof. Neither yield ye your members as instruments of unrighteousness unto sin; but yield yourselves unto God, as those that are alive from the dead, and your members as instruments of righteousness unto God. -- As obedient children, not fashioning yourselves according to the former lusts in your ignorance: but as he which hath called you is holy, so be ye holy in all manner of conversation; because it is written, Be ye holy; for I am holy. -- Sanctified, and meet for the master's use, and prepared unto every good work.
  
-Behold, I was shapen in iniquity; and in sin did my mother conceive me. -- David ... to whom also he gave testimony, and said, I have found David the son of Jesse, a man after mine own heart, which shall fulfil all my will.
- 
-I obtained mercy, ... who was before a blasphemer, and a persecutor, and injurious.
- 
-That which is born of the flesh is flesh; and that which is born of the Spirit is spirit.  
+Therefore, my beloved brethren, be ye stedfast, unmoveable, always abounding in the work of the Lord, forasmuch as ye know that your labour is not in vain in the Lord.  
 
-**Eph 2:3; Tit 3:3; John 3:7; Job 40:3,4; Job 1:8; Psa 51:5; Acts 13:22; 1 Tim 1:13; John 3:6**
+**Matt 21:28; Gal 4:7; Rom 6:11-13; 1 Pet 1:14,15; 2 Tim 2:21; 1 Cor 15:58**
 
 ---
 
-[Sunday 14-December, 2025](https://t.me/s/daily_light)
+[Monday 15-December, 2025](https://t.me/s/daily_light)
 
 > Jonathan Bagster, the son of Samuel Bagster, created the Daily Light for his own family's daily devotion in 1875
 
