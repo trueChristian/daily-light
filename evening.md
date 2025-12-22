@@ -1,15 +1,13 @@
 **Evening**
 
-**Master, carest thou not that we perish?**
+**Where is the promise of his coming?**
  
-The LORD is good to all: and his tender mercies are over all his works.
+Enoch ... the seventh from Adam, prophesied of these, saying, Behold, the Lord cometh with ten thousands of his saints, to execute judgment upon all. -- Behold, he cometh with clouds; and every eye shall see him, and they also which pierced him; and all kindreds of the earth shall wail because of him.
  
-Every moving thing that liveth shall be meat for you; even as the green herb have I given you all things. -- While the earth remaineth, seed time and harvest, and cold and heat, and summer and winter, and day and night, shall not cease.
+The Lord himself shall descend from heaven with a shout, with the voice of the archangel, and with the trump of God: and the dead in Christ shall rise first: then we which are alive and remain shall be caught up together with them in the clouds, to meet the Lord in the air: and so shall we ever be with the Lord.
  
-The LORD is good, a strong hold in the day of trouble; and he knoweth them that trust in him. -- God heard the voice of the lad: and the angel of God called to Hagar out of heaven, and said unto her, What aileth thee, Hagar? fear not; for God hath heard the voice of the lad where he is. And God opened her eyes, and she saw a well of water; and she went, and filled the bottle with water, and gave the lad drink.
- 
-Take no thought, saying, What shall we eat? or, what shall we drink? for your heavenly Father knoweth that ye have need of all these things. -- Trust ... in the living God, who giveth us richly all things to enjoy.  
+The grace of God that bringeth salvation hath appeared to all men, teaching us that, denying ungodliness and worldly lusts, we should live soberly, righteously, and godly, in this present world; looking for that blessed hope, and the glorious appearing of the great God and our Saviour Jesus Christ.  
 
-**Mark 4:38; Psa 145:9; Gen 9:3; Gen 8:22; Nah 1:7; Gen 21:17,19; Matt 6:31,32; 1 Tim 6:17**
+**2 Pet 3:4; Jude 14,15; Rev 1:7; 1 Thes 4:16,17; Tit 2:11-13**
 
-[Sunday 21-December, 2025](https://t.me/daily_light)
+[Monday 22-December, 2025](https://t.me/daily_light)
