@@ -1,17 +1,15 @@
 **Morning**
 
-**We look not at the things which are seen, but at the things which are not seen: for the things which are seen are temporal; but the things which are not seen are eternal.**
+**Thy sins be forgiven thee.**
  
-Here have we no continuing city. -- Ye have in heaven a better and an enduring substance.
+I will forgive their iniquity, and I will remember their sin no more. -- Who can forgive sins but God only?
  
-Fear not, little flock; for it is your Father's good pleasure to give you the kingdom.
+I, even I, am he that blotteth out thy transgressions for mine own sake, and will not remember thy sins. -- Blessed is he whose transgression is forgiven, whose sin is covered. Blessed is the man unto whom the LORD imputeth not iniquity. -- Who is a God like unto thee, that pardoneth iniquity?
  
-Now for a season, if need be, ye are in heaviness through manifold temptations. -- There the wicked cease from troubling; and there the weary be at rest.
+God for Christ's sake hath forgiven you. -- The blood of Jesus Christ his Son cleanseth us from all sin. If we say that we have no sin, we deceive ourselves, and the truth is not in us. If we confess our sins, he is faithful and just to forgive us our sins, and to cleanse us from all unrighteousness.
  
-We that are in this tabernacle do groan, being burdened. -- God shall wipe away all tears from their eyes; and there shall be no more death, neither sorrow, nor crying, neither shall there be any more pain: for the former things are passed away.
- 
-The sufferings of this present time are not worthy to be compared with the glory which shall be revealed in us. -- Our light affliction, which is but for a moment, worketh for us a far more exceeding and eternal weight of glory.  
+As far as the east is from the west, so far hath he removed our transgressions from us. -- Sin shall not have dominion over you: for ye are not under the law, but under grace. Being then made free from sin, ye became the servants of righteousness.  
 
-**2 Cor 4:18; Heb 13:14; Heb 10:34; Luke 12:32; 1 Pet 1:6; Job 3:17; 2 Cor 5:4; Rev 21:4; Rom 8:18; 2 Cor 4:17**
+**Mark 2:5; Jer 31:34; Mark 27; Isa 43:25; Psa 32:1,2; Mic 7:18; Eph 4:32; 1 John 1:7-9; Psa 103:12; Rom 6:14,18**
 
-[Saturday 27-December, 2025](https://t.me/daily_light)
+[Sunday 28-December, 2025](https://t.me/daily_light)

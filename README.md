@@ -1,32 +1,38 @@
 # Morning
 
-**We look not at the things which are seen, but at the things which are not seen: for the things which are seen are temporal; but the things which are not seen are eternal.**
+**Thy sins be forgiven thee.**
  
-Here have we no continuing city. -- Ye have in heaven a better and an enduring substance.
+I will forgive their iniquity, and I will remember their sin no more. -- Who can forgive sins but God only?
  
-Fear not, little flock; for it is your Father's good pleasure to give you the kingdom.
+I, even I, am he that blotteth out thy transgressions for mine own sake, and will not remember thy sins. -- Blessed is he whose transgression is forgiven, whose sin is covered. Blessed is the man unto whom the LORD imputeth not iniquity. -- Who is a God like unto thee, that pardoneth iniquity?
  
-Now for a season, if need be, ye are in heaviness through manifold temptations. -- There the wicked cease from troubling; and there the weary be at rest.
+God for Christ's sake hath forgiven you. -- The blood of Jesus Christ his Son cleanseth us from all sin. If we say that we have no sin, we deceive ourselves, and the truth is not in us. If we confess our sins, he is faithful and just to forgive us our sins, and to cleanse us from all unrighteousness.
  
-We that are in this tabernacle do groan, being burdened. -- God shall wipe away all tears from their eyes; and there shall be no more death, neither sorrow, nor crying, neither shall there be any more pain: for the former things are passed away.
- 
-The sufferings of this present time are not worthy to be compared with the glory which shall be revealed in us. -- Our light affliction, which is but for a moment, worketh for us a far more exceeding and eternal weight of glory.  
+As far as the east is from the west, so far hath he removed our transgressions from us. -- Sin shall not have dominion over you: for ye are not under the law, but under grace. Being then made free from sin, ye became the servants of righteousness.  
 
-**2 Cor 4:18; Heb 13:14; Heb 10:34; Luke 12:32; 1 Pet 1:6; Job 3:17; 2 Cor 5:4; Rev 21:4; Rom 8:18; 2 Cor 4:17**
+**Mark 2:5; Jer 31:34; Mark 27; Isa 43:25; Psa 32:1,2; Mic 7:18; Eph 4:32; 1 John 1:7-9; Psa 103:12; Rom 6:14,18**
 
 # Evening
 
-**He is our peace.**
+**We would see Jesus.**
  
-God was in Christ, reconciling the world unto himself, not imputing their trespasses unto them; for he hath made him to be sin for us, who knew no sin; that we might be made the righteousness of God in him. -- Having made peace through the blood of his cross, by him to reconcile all things unto himself. And you that were sometime alienated and enemies in your mind by wicked works, yet now hath he reconciled in the body of his flesh through death, to present you holy and unblameable and unreproveable in his sight. -- Blotting out the handwriting of ordinances that was against us, which was contrary to us, and took it out of the way, nailing it to his cross. -- Having abolished in his flesh the enmity, even the law of commandments contained in ordinances; for to make in himself of twain one new man, so making peace.
+O LORD, we have waited for thee; the desire of our soul is to thy name, and to the remembrance of thee.
  
-Peace I leave with you, my peace I give unto you: not as the world giveth, give I unto you. Let not your heart be troubled, neither let it be afraid.  
+The LORD is nigh unto all them that call upon him, to all that call upon him in truth.
+ 
+Where two or three are gathered together in my name, there am I in the midst of them. -- I will not leave you comfortless: I will come to you. -- Lo, I am with you alway, even unto the end of the world.
+ 
+Let us run with patience the race that is set before us, looking unto Jesus the author and finisher of our faith.
+ 
+Now we see through a glass, darkly; but then face to face. -- Having a desire to depart, and to be with Christ; which is far better.
+ 
+Beloved, now are we the sons of God; and it doth not yet appear what we shall be: but we know that, when he shall appear, we shall be like him; for we shall see him as he is. And every man that hath this hope in him purifieth himself, even as he is pure.  
 
-**Eph 2:14; 2 Cor 5:19,21; Col 1:20-22; Col 2:14; Eph 2:15; John 14:27**
+**John 12:21; Isa 26:8; Psa 145:18; Matt 18:20; John 14:18; Matt 28:20; Heb 12:1,2; 1 Cor 13:12; Phl 1:23; 1 John 3:2,3**
 
 ---
 
-[Saturday 27-December, 2025](https://t.me/s/daily_light)
+[Sunday 28-December, 2025](https://t.me/s/daily_light)
 
 > Jonathan Bagster, the son of Samuel Bagster, created the Daily Light for his own family's daily devotion in 1875
 
