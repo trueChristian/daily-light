@@ -1,45 +1,36 @@
 {
-  "date_key": "december-31",
-  "date_name": "Wednesday 31-December, 2025",
+  "date_key": "january-01",
+  "date_name": "Thursday 01-January, 2026",
   "evening": {
     "body": [
-      "Not as though I had already attained, either were already perfect: but I follow after, if that I may apprehend that for which also I am apprehended of Christ Jesus.",
-      "Be ye therefore perfect. -- Giving all diligence, add to your faith virtue; and to virtue knowledge; and to knowledge temperance; and to temperance patience; and to patience godliness; and to godliness brotherly kindness; and to brotherly kindness charity.",
-      "I pray, that your love may abound yet more and more in knowledge and in all judgment.",
-      "Eye hath not seen, nor ear heard, neither have entered into the heart of man, the things which God hath prepared for them that love him. But God hath revealed them unto us by his Spirit.",
-      "There remaineth ... a rest for the people of God. -- Thine eyes shall see the King in his beauty: they shall behold the land that is very far off."
+      "If thy presence go not with me, carry us not up hence. -- O Lord, I know that the way of man is not in himself: it is not in man that walketh to direct his steps.",
+      "The steps of a good man are ordered by the Lord: and he delighteth in his way. Though he fall, he shall not be utterly cast down: for the Lord upholdeth him with his hand.",
+      "I am continually with thee: thou hast holden me by my right hand. Thou shalt guide me with thy counsel, and afterward receive me to glory. -- I am persuaded, that neither death, nor life, nor angels, nor principalities, nor powers, nor things present, nor things to come, nor height, nor depth, nor any other creature, shall be able to separate us from the love of God, which is in Christ Jesus our Lord."
     ],
-    "header": "There remaineth yet very much land to be possessed.",
+    "header": "The Lord, he it is that doth go before thee; he will be with thee, he will not fail thee.",
     "name": "Evening",
     "references": [
-      "Phl 3:12",
-      "Matt 5:48",
-      "2 Pet 1:5-7",
-      "Phl 1:9",
-      "1 Cor 2:9,10",
-      "Heb 4:9",
-      "Isa 33:17"
+      "Exo 33:15",
+      "Jer 10:23",
+      "Psa 37:23,24",
+      "Psa 73:23,24",
+      "Rom 8:38,39"
     ]
   },
   "joomla": "https://git.vdm.dev/christian/mod_dailylight",
   "morning": {
     "body": [
-      "I bare you on eagles' wings, and brought you unto myself. -- In his love and in his pity he redeemed them; and he bare them, and carried them all the days of old. -- As an eagle stirreth up her nest, fluttereth over her young, spreadeth abroad her wings, taketh them, beareth them on her wings: so the LORD alone did lead him.",
-      "Even to your old age I am he; and even to hoar hairs will I carry you: I have made, and I will bear; even I will carry, and will deliver you. -- This God is our God for ever and ever: he will be our guide even unto death.",
-      "Cast thy burden upon the LORD, and he shall sustain thee. -- Take no thought for your life, what ye shall eat, or what ye shall drink; nor yet for your body, what ye shall put on. For your heavenly Father knoweth that ye have need of all these things.",
-      "Hitherto hath the LORD helped us."
+      "Father, I will that they ... whom thou hast given me, be with me where I am; that they may behold my glory, which thou hast given me. -- I know whom I have believed, and am persuaded that he is able to keep that which I have committed unto him against that day. -- He which hath begun a good work in you will perform it until the day of Jesus Christ.",
+      "Know ye not that they which run in a race run all, but one receiveth the prize? So run, that ye may obtain. And every man that striveth for the mastery is temperate in all things. Now they do it to obtain a corruptible crown; but we an incorruptible. -- Let us lay aside every weight, and the sin which doth so easily beset us, and let us run with patience the race that is set before us, looking unto Jesus."
     ],
-    "header": "The Lord thy God bare thee, as a man doth bear his son, in all the way that ye went, until ye came into this place.",
+    "header": "This one thing I do, forgetting those things which are behind,... I press toward the mark for the prize of the high calling of God in Christ Jesus.",
     "name": "Morning",
     "references": [
-      "Exo 19:4",
-      "Isa 63:9",
-      "Deut 32:11,12",
-      "Isa 46:4",
-      "Psa 48:14",
-      "Psa 55:22",
-      "Matt 6:25,32",
-      "1 Sam 7:12"
+      "John 17:24",
+      "2 Tim 1:12",
+      "Phl 1:6",
+      "1 Cor 9:24,25",
+      "Heb 12:1,2"
     ]
   },
   "source": "https://github.com/trueChristian/daily-light",

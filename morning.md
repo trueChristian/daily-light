@@ -1,15 +1,11 @@
 **Morning**
 
-**The Lord thy God bare thee, as a man doth bear his son, in all the way that ye went, until ye came into this place.**
+**This one thing I do, forgetting those things which are behind,... I press toward the mark for the prize of the high calling of God in Christ Jesus.**
  
-I bare you on eagles' wings, and brought you unto myself. -- In his love and in his pity he redeemed them; and he bare them, and carried them all the days of old. -- As an eagle stirreth up her nest, fluttereth over her young, spreadeth abroad her wings, taketh them, beareth them on her wings: so the LORD alone did lead him.
+Father, I will that they ... whom thou hast given me, be with me where I am; that they may behold my glory, which thou hast given me. -- I know whom I have believed, and am persuaded that he is able to keep that which I have committed unto him against that day. -- He which hath begun a good work in you will perform it until the day of Jesus Christ.
  
-Even to your old age I am he; and even to hoar hairs will I carry you: I have made, and I will bear; even I will carry, and will deliver you. -- This God is our God for ever and ever: he will be our guide even unto death.
- 
-Cast thy burden upon the LORD, and he shall sustain thee. -- Take no thought for your life, what ye shall eat, or what ye shall drink; nor yet for your body, what ye shall put on. For your heavenly Father knoweth that ye have need of all these things.
- 
-Hitherto hath the LORD helped us.  
+Know ye not that they which run in a race run all, but one receiveth the prize? So run, that ye may obtain. And every man that striveth for the mastery is temperate in all things. Now they do it to obtain a corruptible crown; but we an incorruptible. -- Let us lay aside every weight, and the sin which doth so easily beset us, and let us run with patience the race that is set before us, looking unto Jesus.  
 
-**Deut 1:31; Exo 19:4; Isa 63:9; Deut 32:11,12; Isa 46:4; Psa 48:14; Psa 55:22; Matt 6:25,32; 1 Sam 7:12**
+**Phl 3:13,14; John 17:24; 2 Tim 1:12; Phl 1:6; 1 Cor 9:24,25; Heb 12:1,2**
 
-[Wednesday 31-December, 2025](https://t.me/daily_light)
+[Thursday 01-January, 2026](https://t.me/daily_light)
