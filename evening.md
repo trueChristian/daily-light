@@ -1,15 +1,15 @@
 **Evening**
 
-**Will God in very deed dwell with men on the earth?**
+**Who redeemeth thy life from destruction.**
  
-Let them make me a sanctuary; that I may dwell among them. -- I will meet with the children of Israel, and the tabernacle shall be sanctified by my glory. And I will dwell among the children of Israel, and will be their God.
+Their Redeemer is strong; the Lord of hosts is his name. -- I will ransom them from the power of the grave; I will redeem them from death: O death, I will be thy plagues; O grave, I will be thy destruction.
  
-Thou hast ascended on high, thou hast led captivity captive: thou hast received gifts for men; yea, for the rebellious also, that the Lord God might dwell among them.
+As the children are partakers of flesh and blood, he also himself likewise took part of the same; that through death he might destroy him that had the power of death, that is, the devil; and deliver them who through fear of death were all their lifetime subject to bondage.
  
-Ye are the temple of the living God; as God hath said, I will dwell in them, and walk in them; and I will be their God, and they shall be my people. -- Your body is the temple of the Holy Ghost which is in you. -- Ye ... are builded together for an habitation of God through the Spirit.
+He that believeth on the Son hath everlasting life: and he that believeth not the Son shall not see life; but the wrath of God abideth on him.
  
-The heathen shall know that I the Lord do sanctify Israel, when my sanctuary shall be in the midst of them for evermore.  
+Ye are dead, and your life is hid with Christ in God. When Christ, who is our life, shall appear, then shall ye also appear with him in glory. -- When he shall come to be glorified in his saints, and to be admired in all them that believe.  
 
-**2 Chr 6:18; Exo 25:8; Exo 29:43,45; Psa 68:18; 2 Cor 6:16; 1 Cor 6:19; Eph 2:22; Ezek 37:28**
+**Psa 103:4; Jer 50:34; Hos 13:14; Heb 2:14,15; John 3:36; Col 3:3,4; 2 Thes 1:10**
 
-[Saturday 10-January, 2026](https://t.me/daily_light)
+[Sunday 11-January, 2026](https://t.me/daily_light)
