@@ -1,15 +1,17 @@
 **Evening**
 
-**Who redeemeth thy life from destruction.**
+**When shall I arise, and the night be gone?**
  
-Their Redeemer is strong; the Lord of hosts is his name. -- I will ransom them from the power of the grave; I will redeem them from death: O death, I will be thy plagues; O grave, I will be thy destruction.
+Watchman, what of the night? The watchman said, The morning cometh.
  
-As the children are partakers of flesh and blood, he also himself likewise took part of the same; that through death he might destroy him that had the power of death, that is, the devil; and deliver them who through fear of death were all their lifetime subject to bondage.
+Yet a little while, and he that shall come will come, and will not tarry. -- He shall be as the light of the morning, when the sun riseth, even a morning without clouds.
  
-He that believeth on the Son hath everlasting life: and he that believeth not the Son shall not see life; but the wrath of God abideth on him.
+I go to prepare a place for you. And if I go and prepare a place for you, I will come again, and receive you unto myself; that where I am, there ye may be also. Let not your heart be troubled, neither let it be afraid. Ye have heard how I said unto you, I go away, and come again unto you.
  
-Ye are dead, and your life is hid with Christ in God. When Christ, who is our life, shall appear, then shall ye also appear with him in glory. -- When he shall come to be glorified in his saints, and to be admired in all them that believe.  
+Let all thine enemies perish, O Lord; but let them that love him be as the sun when he goeth forth in his might. -- Ye are all the children of light, and the children of the day: we are not of the night, nor of darkness.
+ 
+There shall be no night there.  
 
-**Psa 103:4; Jer 50:34; Hos 13:14; Heb 2:14,15; John 3:36; Col 3:3,4; 2 Thes 1:10**
+**Job 7:4; Isa 21:11,12; Heb 10:37; 2 Sam 23:4; John 14:2,3,27,28; Judg 5:31; 1 Thes 5:5; Rev 21:25**
 
-[Sunday 11-January, 2026](https://t.me/daily_light)
+[Monday 12-January, 2026](https://t.me/daily_light)

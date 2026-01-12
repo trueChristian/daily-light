@@ -1,30 +1,34 @@
 # Morning
 
-**Praise waiteth for thee, O God, in Zion.**
+**The only wise God our Saviour.**
  
-To us there is but one God, the Father, of whom are all things, and we in him; and one Lord Jesus Christ, by whom are all things, and we by him. -- All men should honour the Son, even as they honour the Father. He that honoureth not the Son honoureth not the Father which hath sent him. -- By him therefore let us offer the sacrifice of praise to God continually, that is, the fruit of our lips giving thanks to his name. -- Whoso offereth praise glorifieth me: and to him that ordereth his conversation aright will I shew the salvation of God.
+Christ Jesus, who of God is made unto us wisdom, and righteousness, and sanctification, and redemption. -- Canst thou by searching find out God? canst thou find out the Almighty unto perfection? It is as high as heaven; what canst thou do? deeper than hell; what canst thou know?
  
-I beheld, and, lo, a great multitude, which no man could number, of all nations, and kindreds, and peoples, and tongues, stood before the throne, and before the Lamb, clothed with white robes, and palms in their hands; and cried with a loud voice, saying, Salvation to our God which sitteth upon the throne, and unto the Lamb. Amen: Blessing, and glory, and wisdom, and thanksgiving, and honour, and power, and might, be unto our God for ever and ever. Amen.  
+We speak the wisdom of God in a mystery, even the hidden wisdom, which God ordained before the world unto our glory. -- The mystery, which from the beginning of the world hath been hid in God, who created all things by Jesus Christ: to the intent that now unto the principalities and powers in heavenly places might be known, by the church, the manifold wisdom of God.
+ 
+If any of you lack wisdom, let him ask of God, that giveth to all men liberally, and upbraideth not; and it shall be given him. -- The wisdom that is from above is first pure, then peaceable, gentle, and easy to be intreated, full of mercy and good fruits, without partiality, and without hypocrisy.  
 
-**Psa 65:1; 1 Cor 8:6; John 5:23; Heb 13:15; Psa 50:23; Rev 7:9,10,12**
+**Jude 25; 1 Cor 1:30; Job 11:7,8; 1 Cor 2:7; Eph 3:9,10; Jas 1:5; Jas 3:17**
 
 # Evening
 
-**Who redeemeth thy life from destruction.**
+**When shall I arise, and the night be gone?**
  
-Their Redeemer is strong; the Lord of hosts is his name. -- I will ransom them from the power of the grave; I will redeem them from death: O death, I will be thy plagues; O grave, I will be thy destruction.
+Watchman, what of the night? The watchman said, The morning cometh.
  
-As the children are partakers of flesh and blood, he also himself likewise took part of the same; that through death he might destroy him that had the power of death, that is, the devil; and deliver them who through fear of death were all their lifetime subject to bondage.
+Yet a little while, and he that shall come will come, and will not tarry. -- He shall be as the light of the morning, when the sun riseth, even a morning without clouds.
  
-He that believeth on the Son hath everlasting life: and he that believeth not the Son shall not see life; but the wrath of God abideth on him.
+I go to prepare a place for you. And if I go and prepare a place for you, I will come again, and receive you unto myself; that where I am, there ye may be also. Let not your heart be troubled, neither let it be afraid. Ye have heard how I said unto you, I go away, and come again unto you.
  
-Ye are dead, and your life is hid with Christ in God. When Christ, who is our life, shall appear, then shall ye also appear with him in glory. -- When he shall come to be glorified in his saints, and to be admired in all them that believe.  
+Let all thine enemies perish, O Lord; but let them that love him be as the sun when he goeth forth in his might. -- Ye are all the children of light, and the children of the day: we are not of the night, nor of darkness.
+ 
+There shall be no night there.  
 
-**Psa 103:4; Jer 50:34; Hos 13:14; Heb 2:14,15; John 3:36; Col 3:3,4; 2 Thes 1:10**
+**Job 7:4; Isa 21:11,12; Heb 10:37; 2 Sam 23:4; John 14:2,3,27,28; Judg 5:31; 1 Thes 5:5; Rev 21:25**
 
 ---
 
-[Sunday 11-January, 2026](https://t.me/s/daily_light)
+[Monday 12-January, 2026](https://t.me/s/daily_light)
 
 > Jonathan Bagster, the son of Samuel Bagster, created the Daily Light for his own family's daily devotion in 1875
 
