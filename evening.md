@@ -1,15 +1,13 @@
 **Evening**
 
-**In the multitude of my thoughts within me thy comforts delight my soul. When my heart is overwhelmed: lead me to the rock that is higher than I.**
+**The offence of the cross.**
  
-O Lord, I am oppressed; undertake for me. -- Cast thy burden upon the Lord, and he shall sustain thee. it:
+If any man will come after me, let him deny himself, and take up his cross, and follow me.
  
-I am but a litile child: I know not how to go out or come in. -- If any of you lack wisdom, let him ask of God, ... and it shall be given him.
+Know ye not that the friendship of the world is enmity with God? whosoever therefore will be a friend of the world is the enemy of God. -- We must through much tribulation enter into the kingdom of God. Whosoever believeth on him shall not be ashamed. -- Unto you therefore which believe he is precious: but unto them which be disobedient, the stone which the builders disallowed, the same is made the head of the corner, and a stone of stumbling, and a rock of offence.
  
-Who is sufficient for these things? -- I know that in me (that is, in my flesh,) dwelleth no good thing. -- My grace is sufficient for thee: for my strength is made perfect in weakness. Son, be of good cheer; thy sins be forgiven thee ... Daughter, be of good comfort; thy faith hath made thee whole.
- 
-My soul shall be satisfied as with marrow and fatness; ... when I remember thee upon my bed, and meditate on thee in the night watches.  
+God forbid that I should glory, save in the cross of our Lord Jesus Christ, by whom the world is crucified unto me, and I unto the world. -- I am crucified with Christ. -- They that are Christ's have crucified the flesh with the affections and lusts. If we suffer, we shall also reign with him: if we deny him, he also will deny us.  
 
-**Psa 94:19; Psa 61:2; Isa 38:14; Psa 55:22; 1 Kgs 3:7; Jas 1:5; 2 Cor 2:16; Rom 7:18; 2 Cor 12:9; Matt 9:2,22; Psa 63:5,6**
+**Gal 5:11; Matt 16:24; Jas 4:4; Acts 14:22; Rom 9:33; 1 Pet 2:7,8; Gal 6:1; Gal 2:20; Gal 5:24; 2 Tim 2:12**
 
-[Thursday 22-January, 2026](https://t.me/daily_light)
+[Friday 23-January, 2026](https://t.me/daily_light)
