@@ -1,28 +1,30 @@
 # Morning
 
-**The righteousness of God which is by faith of Jesus Christ unto all and upon all them that believe.**
+**Let us go forth unto him without the camp, bearing his reproach. For here have we no continuing city, but we seek one to come.**
  
-He hath made him to be sin for us, who knew no sin; that we might be made the righteousness of God in him. -- Christ hath redeemed us from the curse of the law, being made a curse for us. -- Who of God is made unto us wisdom, and righteousness, and sanctification, and redemption. -- Not by works of righteousness which we have done, but according to his mercy he saved us, by the washing of regeneration, and renewing of the Holy Ghost; which he shed on us abundantly through Jesus Christ our Saviour.
+Beloved, think it not strange concerning the fiery trial which is to try you, as though some strange thing happened unto you: but rejoice, inasmuch as ye are partakers of Christ's sufferings; that, when his glory shall be revealed, ye may be glad also with exceeding joy. -- As ye are partakers of the sufferings, so shall ye be also of the consolation.
  
-I count all things but loss for the excellency of the knowledge of Christ Jesus my Lord: for whom I have suffered the loss of all things, and do count them but dung, that I may win Christ, and be found in him, not having mine own righteousness, which is of the law, but that which is through the faith of Christ, the righteousness which is of God by faith.  
+If ye be reproached for the name of Christ, happy are ye; for the Spirit of glory and of God resteth upon you: on their part he is evil spoken of, but on your part he is glorified.
+ 
+They departed from the presence of the council, rejoicing that they were counted worthy to suffer shame for his name. -- Choosing rather to suffer affliction with the people of God, than to enjoy the pleasures of sin for a season; esteeming the reproach of Christ greater riches than the treasures in Egypt: for he had respect unto the recompence of the reward.  
 
-**Rom 3:22; 2 Cor 5:21; Gal 3:13; 1 Cor 1:30; Tit 3:5,6; Phl 3:8,9**
+**Heb 13:13,14; 1 Pet 4:12,13; 2 Cor 1:7; 1 Pet 4:14; Acts 5:41; Heb 11:25,26**
 
 # Evening
 
-**The spirit of adoption, whereby we cry, Abba, Father.**
+**The Lord Jesus Christ ... shall change our vile body, that it may be fashioned like unto his glorious body.**
  
-Jesus ... lifted up his eyes to heaven, and said, Father, ... Holy Father, ... O righteous Father. -- He said, Abba, Father. -- Because ye are sons, God hath sent forth the Spirit of his Son into your hearts, crying, Abba, Father. -- For through him we both have access by one Spirit unto the Father. Now therefore ye are no more strangers and foreigners, but fellowcitizens with the saints and of the household of God.
+Upon the likeness of the throne was the likeness as the appearance of a man above upon it. And I saw as the colour of amber, as the appearance of fire round about within it, from the appearance of his loins even upward, and from the appearance of his loins even downward, I saw as it were the appearance of fire, and it had brightness round about. This was the appearance of the likeness of the glory of the Lord.
  
-Doubtless thou art our father, ... thou, O Lord, art our father, our redeemer; thy name is from everlasting.
+We all, with open face, beholding as in a glass the glory of the Lord, are changed into the same image from glory to glory, even as by the Spirit of the Lord. -- It doth not yet appear what we shall be: but we know that, when he shall appear, we shall be like him; for we shall see him as he is.
  
-I will arise and go to my father, and will say unto him, Father, I have sinned against heaven, and before thee, and am no more worthy to be called thy son: make me as one of thy hired servants. And he arose, and came to his father. Be ye therefore followers of God, as dear children.  
+They shall hunger no more, neither thirst any more. -- They sing the song of Moses the servant of God, and the song of the Lamb.  
 
-**Rom 8:15; John 17:1,11,25; Mark 14:36; Gal 4:6; Eph 2:18,19; Isa 63:16; Luke 15:18; Eph 5:1**
+**Phl 3:20,21; Ezek 1:26-27; 2 Cor 3:18; 1 John 3:2; Rev 7:16; Rev 15:3**
 
 ---
 
-[Sunday 25-January, 2026](https://t.me/s/daily_light)
+[Monday 26-January, 2026](https://t.me/s/daily_light)
 
 > Jonathan Bagster, the son of Samuel Bagster, created the Daily Light for his own family's daily devotion in 1875
 
