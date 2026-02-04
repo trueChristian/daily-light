@@ -1,11 +1,15 @@
 **Evening**
 
-**The darkness hideth not from thee.**
+**They talk to the grief of those whom thou hast wounded.**
  
-His eyes are upon the ways of man, and he seeth all his goings. There is no darkness, nor shadow of death, where the workers of iniquity may hide themselves. -- Can any hide himself in secret places that I shall not see him? ... Do not I fill heaven and earth? saith the Lord.
+I was but a little displeased, and they helped forward the affliction. Brethren, if a man be overtaken in a fault, ye which are spiritual, restore such an one in the spirit of meekness; considering thyself, lest thou also be tempted.
  
-Thou shalt not be afraid for the terror by night; ... nor for the pestilence that walketh in darkness ... Because thou hast made the Lord, which is my refuge, even the Most High, thy habitation; there shall no evil befall thee, neither shall any plague come nigh thy dwelling. -- He that keepeth thee will not slumber. The Lord is thy keeper: the Lord is thy shade upon thy right hand. The sun shall not smite thee by day, nor the moon by night. The Lord shall preserve thee from all evil. Yea, though I walk through the valley of the shadow of death, I will fear no evil, for thou art with me.  
+He which converteth the sinner from the error of his way shall save a soul from death, and shall hide a multitude of sins. -- Comfort the feebleminded, support the weak, be patient toward all men.
+ 
+Let us not ... judge one another any more: but judge this rather, that no man put a stumblingblock or an occasion to fall in his brother's way. -- We ... that are strong ought to bear the infirmities of the weak and not to please ourselves.
+ 
+Charity ... rejoiceth not in iniquity. -- Let him that thinketh he standeth take heed lest he fall.  
 
-**Psa 139:12; Job 34:21,2; Jer 23:24; Psa 91:5,6,9,10; Psa 121:3,5; Psa 23:4**
+**Psa 69:26; Zech 1:15; Gal 6:1; Jas 5:20; 1 Thes 5:14; Rom 14:30; Rom 15:1; 1 Cor 13:4,6; 1 Cor 10:12**
 
-[Tuesday 03-February, 2026](https://t.me/daily_light)
+[Wednesday 04-February, 2026](https://t.me/daily_light)
