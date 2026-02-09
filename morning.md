@@ -1,11 +1,9 @@
 **Morning**
 
-**Henceforth I call you not servants; for the servant knoweth not what his lord doeth: but I have called you friends.**
+**Now he is comforted.**
  
-The Lord said, shall I hide from Abraham that thing which I do? -- It is given unto you to know the mysteries of the kingdom of heaven. -- God hath revealed them unto us by his Spirit: for the Spirit searcheth all things, yea, the deep things of God. -- Even the hidden wisdom, which God ordained before the world unto our glory.
- 
-Blessed is the man whom thou choosest, and causest to approach unto thee, that he may dwell in thy courts: we shall be satisfied with the goodness of thy house, even of thy holy temple. -- The secret of the Lord is with them that fear him: and he will shew them his covenant. -- I have given unto them the words which thou gavest me; and they have received them, and have known surely that I came out from thee, and they have believed that thou didst send me. Ye are my friends, if ye do whatsoever I command you.  
+Thy sun shall no more go down; neither shall thy moon withdraw itself: for the Lord shall be thine everlasting light, and the days of thy mourning shall be ended. -- He will swallow up death in victory; and the Lord God will wipe away tears from off all faces; and the rebuke of his people shall he take away from off all the earth. -- These are they which came out of great tribulation, and have washed their robes, and made them white in the blood of the Lamb. Therefore are they before the throne of God, and serve him day and night in his temple: and he that sitteth on the throne shall dwell among them. They shall hunger no more, neither thirst any more; neither shall the sun light on them, nor any heat. For the Lamb which is in the midst of the throne shall feed them, and shall lead them unto living fountains of waters. -- God shall wipe away all tears from their eyes; and there shall be no more death, neither sorrow, nor crying, neither shall there be any more pain: for the former things are passed away.  
 
-**John 15:15; Gen 18:17; Matt 13:11,1 Cor 2:10,1 Cor 2:7; Psa 65:4; Psa 25:14; John 17:8; John 15:14**
+**Luke 16:25; Isa 60:20; Isa 25:8; Rev 7:14-17; Rev 21:4**
 
-[Sunday 08-February, 2026](https://t.me/daily_light)
+[Monday 09-February, 2026](https://t.me/daily_light)
