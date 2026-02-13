@@ -1,11 +1,13 @@
 **Morning**
 
-**They shall be mine, saith the Lord of hosts, in that day when I make up my jewels.**
+**Upon the likeness of the throne was the likeness as the appearance of a man above upon it.**
  
-I have manifested thy name unto the men which thou gavest me out of the world: thine they were, and thou gavest them me; and they have kept thy word. I pray for them: I pray not for the world, but for them which thou hast given me; for they are thine. And all mine are thine, and thine are mine; and I am glorified in them. Father, I will that they also, whom thou hast given me, be with me where I am: that they may behold my glory, which thou hast given me: for thou lovedst me before the foundation of the world.
+The man Christ Jesus. -- Made in the likeness of men ... found in fashion as a man. -- Forasmuch ... as the children are partakers of flesh and blood, he also himself likewise took part of the same; that through death he might destroy him that had the power of death.
  
-I will come again, and receive you unto myself. -- He shall come to be glorified in his saints, and to be admired in all them that believe ... in that day. -- We which are alive and remain shall be caught up together with them in the clouds, to meet the Lord in the air: and so shall we ever be with the Lord. -- Thou shalt also be a crown of glory in the hand of the Lord, and a royal diadem in the hand of thy God.  
+I am he that liveth, and was dead; and, behold, I am alive for evermore. -- Christ being raised from the dead dieth no more; death hath no more dominion over him. For in that he died, he died unto sin once: but in that he liveth, he liveth unto God. -- What and if ye shall see the Son of Man ascend up where he was before? -- He raised him from the dead, and set him at his own right hand in the heavenly places. -- In him dwelleth all the fulness of the Godhead bodily.
+ 
+Though he was crucified through weakness, yet he liveth by the power of God. For we also are weak in him, but we shall live with him by the power of God.  
 
-**Mal 3:17; John 17:6,9,10,24; John 14:3; 2 Thes 1:10; 1 Thes 4:17; Isa 62:3**
+**Ezek 1:26; 1 Tim 2:5; Phl 2:7,8; Heb 2:14; Rev 1:18; Rom 6:9; John 6:62; Eph 1:20; Col 2:9; 2 Cor 13:4**
 
-[Thursday 12-February, 2026](https://t.me/daily_light)
+[Friday 13-February, 2026](https://t.me/daily_light)
