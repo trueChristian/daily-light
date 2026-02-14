@@ -1,15 +1,15 @@
 **Evening**
 
-**Thy word hath quickened me.**
+**I am thy part and thine inheritance.**
  
-The first man Adam was made a living soul; the last Adam was made a quickening spirit.
+Whom have I in heaven but thee! and there is none upon earth that I desire beside thee. My flesh and my heart faileth: but God is the strength of my heart, and my portion for ever. -- The LORD is the portion of mine inheritance and of my cup: thou maintainest my lot. The lines are fallen unto me in pleasant places ; yea, I have a goodly heritage.
  
-As the Father hath life in himself; so hath he given to the Son to have life in himself. -- I am the resurrection, and the life: he that believeth in me though he were dead, yet shall he live: and whosoever liveth and believeth in me shall never die.
+The Lord is my portion, saith my soul; therefore will I hope in him. Thy testimonies have I taken as an heritage for ever: for they are the rejoicing of my heart.
  
-In him was life; and the life was the light of men ... As many as received him, to them gave he power to become the sons of God, even to them that believe on his name: which were born, not of blood, nor of the will of the flesh, nor of the will of man, but of God.
+O God, thou art my God; early will I seek thee: my soul thirsteth for thee, my flesh longeth for thee in a dry and thirsty land, where no water is ... Because thou hast been my help, therefore in the shadow of thy wings will I rejoice.
  
-It is the spirit that quickeneth; the flesh profiteth nothing: the words that I speak unto you, they are spirit, and they are life. -- The word of God is quick and powerful, and sharper than any twoedged sword, piercing even to the dividing asunder of soul and spirit and of the joints and marrow, and is a discerner of the thoughts and intents of the heart.  
+My beloved is mine, and I am his.  
 
-**Psa 119:50; 1 Cor 15:45; John 5:26; John 11:25,26; John 1:4,12,13; John 6:63; Heb 4:12**
+**Num 18:20; Psa 73:25,26; Psa 16:5,6; Lam 3:24; Psa 119:111; Psa 63:1,7; Song 2:16**
 
-[Friday 13-February, 2026](https://t.me/daily_light)
+[Saturday 14-February, 2026](https://t.me/daily_light)

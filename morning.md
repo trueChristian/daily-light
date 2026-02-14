@@ -1,13 +1,11 @@
 **Morning**
 
-**Upon the likeness of the throne was the likeness as the appearance of a man above upon it.**
+**Suffer it to be so now: for thus it becometh us to fulfill all righteousness. I delight to do thy will, O my God: yea, thy law is within my heart.**
  
-The man Christ Jesus. -- Made in the likeness of men ... found in fashion as a man. -- Forasmuch ... as the children are partakers of flesh and blood, he also himself likewise took part of the same; that through death he might destroy him that had the power of death.
+Think not that I am come to destroy the law, or the prophets: I am not come to destroy, but to fulfil. For verily I say unto you, Till heaven and earth pass, one jot or one tittle shall in no wise pass from the law, till all be fulfilled. -- The Lord is well pleased for his righteousness' sake; he will magnify the law, and make it honourable. -- Except your righteousness shall exceed the righteousness of the scribes and Pharisees ye shall in no case enter into the kingdom of heaven.
  
-I am he that liveth, and was dead; and, behold, I am alive for evermore. -- Christ being raised from the dead dieth no more; death hath no more dominion over him. For in that he died, he died unto sin once: but in that he liveth, he liveth unto God. -- What and if ye shall see the Son of Man ascend up where he was before? -- He raised him from the dead, and set him at his own right hand in the heavenly places. -- In him dwelleth all the fulness of the Godhead bodily.
- 
-Though he was crucified through weakness, yet he liveth by the power of God. For we also are weak in him, but we shall live with him by the power of God.  
+What the law could not do, in that it was weak through the flesh, God sending his own Son in the likeness of sinful flesh, and for sin, condemned sin in the flesh: that the righteousness of the law might be fulfilled in us, who walk not after the flesh, but after the Spirit. -- Christ is the end of the law for righteousness to every one that believeth.  
 
-**Ezek 1:26; 1 Tim 2:5; Phl 2:7,8; Heb 2:14; Rev 1:18; Rom 6:9; John 6:62; Eph 1:20; Col 2:9; 2 Cor 13:4**
+**Matt 3:15; Psa 40:8; Matt 5:17,18; Isa 42:21; Matt 5:20; Rom 8:3,4; Rom 10:4**
 
-[Friday 13-February, 2026](https://t.me/daily_light)
+[Saturday 14-February, 2026](https://t.me/daily_light)
