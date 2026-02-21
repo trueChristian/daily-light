@@ -1,13 +1,13 @@
 **Evening**
 
-**The day of temptation in the wilderness.**
+**Light is sown for the righteous, and gladness for the upright in heart.**
  
-Let no man say, when he is tempted, I am tempted of God: for God cannot be tempted with evil, neither tempteth he any man: but every man is tempted when he is drawn away of his own lust, and enticed. Then when lust hath conceived, it bringeth forth sin. They lusted exceedingly in the wilderness, and tempted God in the desert.
+They that sow in tears shall reap in joy. He that goeth forth and weepeth, bearing precious seed, shall doubtless come again with rejoicing, bringing his sheaves with him.
  
-Jesus being full of the Holy Ghost was led by the Spirit into the wilderness, being forty days tempted of the devil. And in those days he did eat nothing: and when they were ended, he afterward hungered. And the devil said unto him, If thou be the Son of God, command this stone that it be made bread.
+That which thou sowest, thou sowest not that body that shall be.
  
-He himself hath suffered being tempted, he is able to succour them that are tempted. -- Simon, Simon, ... Satan hath desired to have you, that he might sift you as wheat: but I have prayed for thee that thy faith fail not.  
+Blessed be the God and Father of our Lord Jesus Christ, which according to his abundant mercy hath begotten us again unto a lively hope by the resurrection of Jesus Christ from the dead. Wherein ye greatly rejoice, though now for a season, if need be, ye are in heaviness through manifold temptations: that the trial of your faith, being much more precious than of gold that perisheth, though it be tried with fire, might be found unto praise and honour and glory at the appearing of Jesus Christ.  
 
-**Heb 3:8; Jas 1:13‑15; Psa 106:14; Luke 4:1‑3; Heb 2:18; Luke 22:31,32**
+**Psa 97:11; Psa 126:5,6; 1 Cor 15:27; 1 Pet 1:3,6,7**
 
-[Friday 20-February, 2026](https://t.me/daily_light)
+[Saturday 21-February, 2026](https://t.me/daily_light)
