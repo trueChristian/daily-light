@@ -1,41 +1,45 @@
 {
-  "date_key": "february-23",
-  "date_name": "Monday 23-February, 2026",
+  "date_key": "february-24",
+  "date_name": "Tuesday 24-February, 2026",
   "evening": {
     "body": [
-      "From the sixth hour there was darkness over all the land unto the ninth hour. And about the ninth hour Jesus cried with a loud voice, saying, <em>Eli, Eli, lama sabachthani?</em> that is to say, My God, my God, why hast thou forsaken me? -- The Lord hath laid on him the iniquity of us all.",
-      "There is therefore now no condemnation to them which are in Christ Jesus. -- Being justified by faith, we have peace with God through our Lord Jesus Christ. -- Christ hath redeemed us from the curse of the law, being made a curse for us.",
-      "God sent his only begotten Son into the world, that we might live through him. Herein is love, not that we loved God, but that he loved us, and sent his Son to be the propitiation for our sins. -- That he might be just, and the justifier of him which believeth in Jesus."
+      "I know, O Lord, that thy judgments are right, and that thou in faithfulness hast afflicted me. -- O Lord, thou art our father, we are the clay, and thou our potter; and we all are the work of thy hand. -- It is the Lord: let him do what seemeth him good. Righteous art thou, O Lord, when I plead with thee: yet let me talk with thee of thy judgments.",
+      "He shall sit as a refiner and purifier of silver. -- Whom the Lord loveth he chasteneth, and scourgeth every son whom he receiveth. -- It is enough for the disciple that he be as his master, and the servant as his lord. -- Though he were a Son, yet learned he obedience by the things which he suffered.",
+      "Rejoice, inasmuch as ye are partakers of Christ's sufferings; that, when his glory shall be revealed, ye may be glad also with exceeding joy. -- These are they which came out of great tribulation, and have washed their robes, and made them white in the blood of the Lamb."
     ],
-    "header": "Who knoweth the power of thine anger?",
+    "header": "Shall we receive good at the hand of God, and shall we not receive evil?",
     "name": "Evening",
     "references": [
-      "Matt 27:45,46",
-      "Isa 53:6",
-      "Rom 8:1",
-      "Rom 5:1",
-      "Gal 3:13",
-      "1 John 4:9,10",
-      "Rom 3:26"
+      "Psa 119:75",
+      "Isa 64:8",
+      "1 Sam 3:18",
+      "Jer 12:1",
+      "Mal 3:3",
+      "Heb 12:6",
+      "Matt 10:25",
+      "Heb 5:8",
+      "1 Pet 4:13",
+      "Rev 7:14"
     ]
   },
   "joomla": "https://git.vdm.dev/christian/mod_dailylight",
   "morning": {
     "body": [
-      "Behold the Lamb of God, which taketh away the sin of the world. -- The Lamb slain from the foundation of the world. -- It is not possible that the blood of bulls and of goats should take away sins. Wherefore when he cometh into the world, he saith, Sacrifice and offering thou wouldest not, but a body hast thou prepared me. By the which will we are sanctified through the offering of the body of Jesus Christ once for all.",
-      "Abel, ... brought of the firstlings of his flock and of the fat thereof ... The Lord had respect unto Abel and to his offering. -- Christ ... hath loved us, and hath given himself for us, an offering and a sacrifice to God for a sweetsmelling savour.",
-      "Let us draw near with a true heart in full assurance of faith, having our hearts sprinkled from an evil conscience, and our bodies washed with pure water. -- Having ... boldness to enter into the holiest by the blood of Jesus."
+      "Ye have not, because ye ask not.",
+      "Ask, and it shall be given you; seek, and ye shall find; knock, and it shall be opened unto you: for every one that asketh receiveth; and he that seeketh findeth; and to him that knocketh it shall be opened. -- This is the confidence that we have in him, that, if we ask anything according to his will, he heareth us: and if we know that he hear us, whatsoever we ask, we know that we have the petitions that we desired of him. -- If any of you lack wisdom, let him ask of God, that giveth to all men liberally, and upbraideth not; and it shall be given him. -- Open thy mouth wide, and I will fill it. -- Men ought always to pray, and not to faint.",
+      "The eyes of the Lord are upon the righteous, and his ears are open unto their cry. The Lord heareth, and delivereth them out of all their troubles. -- Ye shall ask in my name; and I say not unto you, that I will pray the Father for you: for the Father himself loveth you, because ye have loved me. Ask, and ye shall receive, that your joy may be full."
     ],
-    "header": "The blood of sprinkling, that speaketh better things than that of Abel.",
+    "header": "Thus saith the Lord God, I will yet for this be enquired of.",
     "name": "Morning",
     "references": [
-      "John 1:29",
-      "Rev 13:8",
-      "Heb 10:4,5,10",
-      "Gen 4:4",
-      "Eph 5:2",
-      "Heb 10:22",
-      "Heb 10:19"
+      "Jas 4:2",
+      "Matt 7:7,8",
+      "1 John 5:14,15",
+      "Jas 1:5",
+      "Psa 81:10",
+      "Luke 18:1",
+      "Psa 34:15,17",
+      "John 16:26,27,24"
     ]
   },
   "source": "https://github.com/trueChristian/daily-light",
