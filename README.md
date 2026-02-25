@@ -1,30 +1,34 @@
 # Morning
 
-**Thus saith the Lord God, I will yet for this be enquired of.**
+**Resist the devil, and he will flee from you.**
  
-Ye have not, because ye ask not.
+When the enemy shall come in like a flood, the Spirit of the Lord shall lift up a standard against him. -- Get thee hence, Satan: for it is written, Thou shalt worship the Lord thy God, and him only shalt thou serve. Then the devil leaveth him, and, behold, angels came and ministered unto him.
  
-Ask, and it shall be given you; seek, and ye shall find; knock, and it shall be opened unto you: for every one that asketh receiveth; and he that seeketh findeth; and to him that knocketh it shall be opened. -- This is the confidence that we have in him, that, if we ask anything according to his will, he heareth us: and if we know that he hear us, whatsoever we ask, we know that we have the petitions that we desired of him. -- If any of you lack wisdom, let him ask of God, that giveth to all men liberally, and upbraideth not; and it shall be given him. -- Open thy mouth wide, and I will fill it. -- Men ought always to pray, and not to faint.
+Be strong in the Lord, and in the power of his might. Put on the whole armour of God, that ye may he able to stand against the wiles of the devil. -- And have no fellowship with the unfruitful works of darkness, but rather reprove them. -- Lest Satan should get an advantage of us: for we are not ignorant of his devices. -- Be sober, be vigilant; because your adversary the devil, as a roaring lion, walketh about, seeking whom he may devour; whom resist stedfast in the faith, knowing that the same afflictions are accomplished in your brethren that are in the world. -- This is the victory that overcometh the world, even our faith.
  
-The eyes of the Lord are upon the righteous, and his ears are open unto their cry. The Lord heareth, and delivereth them out of all their troubles. -- Ye shall ask in my name; and I say not unto you, that I will pray the Father for you: for the Father himself loveth you, because ye have loved me. Ask, and ye shall receive, that your joy may be full.  
+Who shall lay anything to the charge of God's elect? It is God that justifieth.  
 
-**Ezek 36:37; Jas 4:2; Matt 7:7,8; 1 John 5:14,15; Jas 1:5; Psa 81:10; Luke 18:1; Psa 34:15,17; John 16:26,27,24**
+**Jas 4:7; Isa 59:19; Matt 4:10,11; Eph 6:10,11; Eph 5:11; 2 Cor 2:11; 1 Pet 5:8,9; 1 John 5:4; Rom 8:33**
 
 # Evening
 
-**Shall we receive good at the hand of God, and shall we not receive evil?**
+**Oh that I knew where I might find him!**
  
-I know, O Lord, that thy judgments are right, and that thou in faithfulness hast afflicted me. -- O Lord, thou art our father, we are the clay, and thou our potter; and we all are the work of thy hand. -- It is the Lord: let him do what seemeth him good. Righteous art thou, O Lord, when I plead with thee: yet let me talk with thee of thy judgments.
+Who is among you that feareth the Lord, that obeyeth the voice of his servant, that walketh in darkness, and hath no light? let him trust in the name of the Lord, and stay upon his God.
  
-He shall sit as a refiner and purifier of silver. -- Whom the Lord loveth he chasteneth, and scourgeth every son whom he receiveth. -- It is enough for the disciple that he be as his master, and the servant as his lord. -- Though he were a Son, yet learned he obedience by the things which he suffered.
+Ye shall seek me, and find me, when ye shall search for me with all your heart. -- Seek, and ye shall find; knock, and it shall be opened unto you. For every one that asketh receiveth; and he that seeketh findeth; and to him that knocketh it shall be opened.
  
-Rejoice, inasmuch as ye are partakers of Christ's sufferings; that, when his glory shall be revealed, ye may be glad also with exceeding joy. -- These are they which came out of great tribulation, and have washed their robes, and made them white in the blood of the Lamb.  
+Truly our fellowship is with the Father, and with his Son Jesus Christ. -- Now in Christ Jesus ye who sometime were far off are made nigh by the blood of Christ. For through him we both have access by one Spirit unto the Father.
+ 
+If we say that we have fellowship with him, and walk in darkness, we lie, and do not the truth.
+ 
+Look, I am with you alway. -- I will never leave thee, nor forsake thee. -- The Comforter ... dwelleth with you, and shall be in you.  
 
-**Job 2:10; Psa 119:75; Isa 64:8; 1 Sam 3:18; Jer 12:1; Mal 3:3; Heb 12:6; Matt 10:25; Heb 5:8; 1 Pet 4:13; Rev 7:14**
+**Job 23:3; Isa 50:10; Jer 29:13; Luke 11:9,10; 1 John 1:3; Eph 2:13,18; 1 John 1:6; Matt 28:20; Heb 13:5; John 14:16,17**
 
 ---
 
-[Tuesday 24-February, 2026](https://t.me/s/daily_light)
+[Wednesday 25-February, 2026](https://t.me/s/daily_light)
 
 > Jonathan Bagster, the son of Samuel Bagster, created the Daily Light for his own family's daily devotion in 1875
 
