@@ -1,11 +1,13 @@
 **Morning**
 
-**Let us search and try our ways, and turn again to the Lord.**
+**Reckon ye yourselves to be dead indeed unto sin, but alive unto God through Jesus Christ our Lord.**
  
-Examine me, O Lord, and prove me; try my reins and my heart. -- Behold, thou desirest truth in the inward parts: and in the hidden part thou shalt make me to know wisdom. -- I thought on my ways, and turned my feet unto thy testimonies. I made haste and delayed not to keep thy commandments. -- Let a man examine himself, and so let him eat of that bread, and drink of that cup.
+He that heareth my word, and believeth on him that sent me, hath everlasting life, and shall not come into condemnation; but is passed from death unto life. -- I through the law am dead to the law, that I might live unto God. I am crucified with Christ; nevertheless I live; yet not I, but Christ liveth in me: and the life which I now live in the flesh I live by the faith of the Son of God, who loved me, and gave himself for me.
  
-If we confess our sins, he is faithful and just to forgive us our sins, and to cleanse us from all unrighteousness. -- We have an advocate with the Father, Jesus Christ the righteous: and he is the propitiation for our sins. -- Having therefore, brethren, boldness to enter into the holiest by the blood of Jesus, by a new and living way which he hath consecrated for us, through the veil, that is say, his flesh: and having a high priest over the house of God; let us draw near with a true heart, in full assurance of faith, having our hearts sprinkled from an evil conscience, and our bodies washed with pure water.  
+Because I live, ye shall live also. -- I give unto them eternal life: and they shall never perish, neither shall any man pluck them out of my hand. My Father, which gave them me, is greater than all; and no man is able to pluck them out of my Father's hand. I and my Father are one.
+ 
+If ye then be risen with Christ, seek those things which are above, where Christ sitteth on the right hand of God ... For ye are dead, and your life is hid with Christ in God.  
 
-**Lam 3:40; Psa 26:2; Psa 51:6; Psa 119:59,60; 1 Cor 11:28; 1 John 1:9; 1 John 2:1; Heb 10:19‑22**
+**Rom 6:11; John 5:24; Gal 2:19,20; John 14:19; John 10:28‑30; Gal 3:1,3**
 
-[Thursday 26-February, 2026](https://t.me/daily_light)
+[Friday 27-February, 2026](https://t.me/daily_light)
