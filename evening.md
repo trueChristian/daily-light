@@ -1,15 +1,15 @@
 **Evening**
 
-**God ... giveth ... liberally, and upbraideth not.**
+**The spirit of man is the candle of the Lord.**
  
-Woman, where are those thine accusers? hath no man condemned thee? She said, No man, Lord. And Jesus said unto her, Neither do I condemn thee: go, and sin no more.
+He that is without sin among you, let him first cast a stone at her ... And they which heard it, being convicted by their own conscience, went out one by one, beginning at the eldest, even unto the last. Who told thee that thou wast naked? Hast thou eaten of the tree, whereof I commanded thee that thou shouldest not eat?
  
-The grace of God, and the gift by grace, which is by one man, Jesus Christ, hath abounded unto many ... The free gift is of many offences unto justification.
+To him that knoweth to do good, and doeth it not, to him it is sin. -- If our heart condemn us, God is greater than our heart, and knoweth all things. Beloved, if our heart condemn us not, then have we confidence toward God.
  
-God, who is rich in mercy, for his great love wherewith he loved us, even when we were dead in sins, hath quickened us together with Christ, (by grace ye are saved) and hath raised us up together, and made us sit together in heavenly places in Christ Jesus: that in the ages to come he might shew the exceeding riches of his grace in his kindness toward us through Christ Jesus.
+All things indeed are pure; but it is evil for that man who eateth with offence. Happy is he that condemneth not himself in that thing which he alloweth.
  
-He that spared not his own Son, but delivered him up for us all, how shall he not with him also freely give us all things?  
+Search me, O God, and know my heart: try me, and know my thoughts: and see if there be any wicked way in me, and lead me in the way everlasting.  
 
-**Jas 1:5; John 8:10,11; Rom 5:15,16; Eph 2:4‑7; Rom 8:32**
+**Prov 20:27; John 8:7,9; Gen 3:11; Jas 4:17; 1 John 3:20,21; Rom 14:20,22; Psa 139:23,24**
 
-[Friday 27-February, 2026](https://t.me/daily_light)
+[Saturday 28-February, 2026](https://t.me/daily_light)

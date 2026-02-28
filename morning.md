@@ -1,13 +1,9 @@
 **Morning**
 
-**Reckon ye yourselves to be dead indeed unto sin, but alive unto God through Jesus Christ our Lord.**
+**God so loved the world, that he gave his only begotten Son, that whosoever believeth in him should not perish, but have everlasting life.**
  
-He that heareth my word, and believeth on him that sent me, hath everlasting life, and shall not come into condemnation; but is passed from death unto life. -- I through the law am dead to the law, that I might live unto God. I am crucified with Christ; nevertheless I live; yet not I, but Christ liveth in me: and the life which I now live in the flesh I live by the faith of the Son of God, who loved me, and gave himself for me.
- 
-Because I live, ye shall live also. -- I give unto them eternal life: and they shall never perish, neither shall any man pluck them out of my hand. My Father, which gave them me, is greater than all; and no man is able to pluck them out of my Father's hand. I and my Father are one.
- 
-If ye then be risen with Christ, seek those things which are above, where Christ sitteth on the right hand of God ... For ye are dead, and your life is hid with Christ in God.  
+God ... hath reconciled us to himself by Jesus Christ, and hath given to us the ministry of reconciliation; to wit, that God was in Christ, reconciling the world unto himself, not imputing their trespasses unto them; and hath committed unto us the word of reconciliation. Now then we are ambassadors for Christ, as though God did beseech you by us: we pray you in Christ's stead, be ye reconciled to God. For he hath made him to be sin for us, who knew no sin; that we might be made the righteousness of God in him. -- God is love. In this was manifested the love of God toward us, because that God sent his only begotten Son into the world that we might live through him. Herein is love, not that we loved God, but that he loved us, and sent his Son to be the propitiation for our sins. Beloved, if God so loved us, we ought also to love one another.  
 
-**Rom 6:11; John 5:24; Gal 2:19,20; John 14:19; John 10:28‑30; Gal 3:1,3**
+**John 3:16; 2 Cor 5:18‑21; 1 John 4:8‑11**
 
-[Friday 27-February, 2026](https://t.me/daily_light)
+[Saturday 28-February, 2026](https://t.me/daily_light)
