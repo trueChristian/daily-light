@@ -1,9 +1,11 @@
 **Morning**
 
-**God so loved the world, that he gave his only begotten Son, that whosoever believeth in him should not perish, but have everlasting life.**
+**The fruit of the Spirit is love.**
  
-God ... hath reconciled us to himself by Jesus Christ, and hath given to us the ministry of reconciliation; to wit, that God was in Christ, reconciling the world unto himself, not imputing their trespasses unto them; and hath committed unto us the word of reconciliation. Now then we are ambassadors for Christ, as though God did beseech you by us: we pray you in Christ's stead, be ye reconciled to God. For he hath made him to be sin for us, who knew no sin; that we might be made the righteousness of God in him. -- God is love. In this was manifested the love of God toward us, because that God sent his only begotten Son into the world that we might live through him. Herein is love, not that we loved God, but that he loved us, and sent his Son to be the propitiation for our sins. Beloved, if God so loved us, we ought also to love one another.  
+God is love: and he that dwelleth in love dwelleth in God, and God in him. -- The love of God is shed abroad in our hearts by the Holy Ghost which is given unto us. -- Unto you ... which believe he is precious. -- We love him, because he first loved us. -- The love of Christ constraineth us; because we thus judge, that if one died for all, then were all dead: and that he died for all, that they which live should not henceforth live unto themselves, but unto him which died for them, and rose again.
+ 
+Ye yourselves are taught of God to love one another. -- This is my commandment, That ye love one another, as I have loved you. -- Above all things have fervent charity among yourselves: for charity shall cover the multitude of sins. -- Walk in love, as Christ also hath loved us, and hath given himself for us, an offering and a sacrifice to God for a sweetsmelling savour.  
 
-**John 3:16; 2 Cor 5:18‑21; 1 John 4:8‑11**
+**Gal 5:22; 1 John 4:16; Rom 5:5; 1 Pet 2:7; 1 John 4:19; 2 Cor 5:14,15; 1 Thes 4:9; John 15:12; 1 Pet 4:8; Eph 5:2**
 
-[Saturday 28-February, 2026](https://t.me/daily_light)
+[Sunday 01-March, 2026](https://t.me/daily_light)
