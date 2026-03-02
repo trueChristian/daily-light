@@ -1,28 +1,28 @@
 # Morning
 
-**The fruit of the Spirit is love.**
+**God hath caused me to be fruitful in the land of my affliction.**
  
-God is love: and he that dwelleth in love dwelleth in God, and God in him. -- The love of God is shed abroad in our hearts by the Holy Ghost which is given unto us. -- Unto you ... which believe he is precious. -- We love him, because he first loved us. -- The love of Christ constraineth us; because we thus judge, that if one died for all, then were all dead: and that he died for all, that they which live should not henceforth live unto themselves, but unto him which died for them, and rose again.
+Blessed be God, even the Father of our Lord Jesus Christ, the Father of mercies, and the God of all comfort; who comforteth us in all our tribulation, that we may be able to comfort them which are in any trouble, by the comfort wherewith we ourselves are comforted of God. For as the sufferings of Christ abound in us, so our consolation also aboundeth by Christ.
  
-Ye yourselves are taught of God to love one another. -- This is my commandment, That ye love one another, as I have loved you. -- Above all things have fervent charity among yourselves: for charity shall cover the multitude of sins. -- Walk in love, as Christ also hath loved us, and hath given himself for us, an offering and a sacrifice to God for a sweetsmelling savour.  
+Now for a season, if need be, ye are in heaviness through manifold temptations: that the trial of your faith, being much more precious than of gold that perisheth, though it be tried with fire, might be found unto praise and honour and glory at the appearing of Jesus Christ. -- The Lord stood with me, and strengthened me.
+ 
+Let them that suffer according to the will of God commit the keeping of their souls to him in well doing, as unto a faithful Creator.  
 
-**Gal 5:22; 1 John 4:16; Rom 5:5; 1 Pet 2:7; 1 John 4:19; 2 Cor 5:14,15; 1 Thes 4:9; John 15:12; 1 Pet 4:8; Eph 5:2**
+**Gen 41:52; 2 Cor 1:3‑5; 1 Pet 1:6,7; 2 Tim 4:17; 1 Pet 4:19**
 
 # Evening
 
-**Jehovah‑nissi: The Lord my banner.**
+**There remaineth therefore a rest to the people of God.**
  
-If God be for us, who can be against us? -- The Lord is on my side; I will not fear: what can man do unto me? Thou hast given a banner to them that fear thee. The Lord is my light and my salvation; whom shall I fear? The Lord is the strength of my life; of whom shall I be afraid? Though an host should encamp against me, my heart shall not fear: though war should rise against me, in this will I be confident.
+There the wicked cease from troubling; and there the weary be at rest. There the prisoners rest together; they hear not the voice of the oppressor. Blessed are the dead which die in the Lord from henceforth; they ... rest from their labours; and their works do follow them.
  
-Behold, God himself is with us for our captain. -- The Lord of hosts is with us; the God of Jacob is our refuge.
- 
-These shall make war with the Lamb, and the Lamb shall overcome them. Why do the heathen rage, and the people imagine a vain thing? He that sitteth in the heavens shall laugh: the Lord shall have them in derision. -- Take counsel together, and it shall come to nought; speak the word, and it shall not stand: for God is with us.  
+Our friend Lazarus sleepeth ... Jesus spake of his death: but they thought that he had spoken of taking of rest in sleep. We that are in this tabernacle do groan, being burdened. -- Ourselves also, which have the firstfruits of the Spirit, even we ourselves groan within ourselves, waiting for the adoption, to wit, the redemption of our body. For we are saved by hope: but hope that is seen is not hope ... But if we hope for that we see not, then do we with patience wait for it.  
 
-**Exo 17:15; Rom 8:31; Psa 118:6; Psa 60:4; Psa 27:1,3; 2 Chr 13:12; Psa 46:7; Rev 17:14; Psa 2:1,4; Isa 8:10**
+**Heb 4:9; Job 3:17,18; Rev 14:13; John 11:11,13; 2 Cor 5:4; Rom 8:23‑25**
 
 ---
 
-[Sunday 01-March, 2026](https://t.me/s/daily_light)
+[Monday 02-March, 2026](https://t.me/s/daily_light)
 
 > Jonathan Bagster, the son of Samuel Bagster, created the Daily Light for his own family's daily devotion in 1875
 
