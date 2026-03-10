@@ -1,26 +1,32 @@
 # Morning
 
-**The living God giveth us richly all things to enjoy.**
+**The Lord will provide.**
  
-Beware that thou forget not the Lord thy God, in not keeping his commandments, and his judgments, and his statutes, which I command thee this day: lest when thou hast eaten and art full, and hast built goodly houses, and dwelt therein; ... then thine heart be lifted up, and thou forget the Lord thy God: ... for it is he that giveth thee power to get wealth.
+God will provide himself a lamb for a burnt offering. Behold, the Lord's hand is not shortened, that it cannot save; neither his ear heavy, that it cannot hear. -- There shall come out of Sion the Deliverer, and shall turn away ungodliness from Jacob.
  
-Except the Lord build the house, they labour in vain that build it: except the Lord keep the city, the watchman waketh but in vain. It is vain for you to rise up early, to sit up late, to eat the bread of sorrows: for so he giveth his beloved sleep. -- They got not the land in possession by their own sword, neither did their own arm save them: but thy right hand, and thine arm, and the light of thy countenance, because thou hadst a favour unto them -- There be many that say, Who will shew us any good? Lord, lift thou up the light of thy countenance upon us.  
+Happy is he that hath the God of Jacob for his help, whose hope is in the Lord his God. -- Behold, the eye of the Lord is upon them that fear him, upon them that hope in his mercy; to deliver their soul from death.
+ 
+My God shall supply all your need, according to his riches in glory by Christ Jesus. -- He hath said, I will never leave thee, nor forsake thee. So that we may boldly say, The Lord is my helper, and I will not fear what man shall do unto me. -- The Lord is my strength and my shield; my heart trusteth in him, and I am helped: therefore my heart greatly rejoiceth: and with my song will I praise him.  
 
-**1 Tim 6:17; Deut 8:11,12,14,18; Psa 127:1,2; Psa 44:3; Psa 4:6**
+**Gen 22:14; Gen 22:8; Isa 59:1; Rom 11:26; Psa 146:5; Psa 33:18,19; Phl 4:19; Heb 13:5,6; Psa 28:7**
 
 # Evening
 
-**They sang as it were a new song.**
+**He feedeth among the lilies.**
  
-A new and living way, which he hath consecrated for us. -- Not by works of righteousness which we have done, but according to his mercy he saved us, by the washing of regeneration, and renewing of the Holy Ghost; which he shed on us abundantly through Jesus Christ our Saviour. -- By grace are ye saved through faith; and that not of yourselves: it is the gift of God; not of works, lest any man should boast.
+Where two or three are gathered together in my name, there am I in the midst of them. -- If a man love me, he will keep my words: and my Father will love him, and we will come unto him, and make our abode with him.
  
-Not unto us, O Lord, not unto us, but unto thy name give glory. -- Unto him that loved us, and washed us from our sins in his own blood, and hath made us kings and priests unto God and Father; to him be glory and dominion for ever and ever. Amen. -- Thou wast slain, and hast redeemed us to God by thy blood out of every kindred, and tongue, and people, and nation. -- I beheld, and, lo, a great multitude, which no man could number, ... cried ... saying, Salvation to our God which sitteth upon the throne, and unto the Lamb.  
+If ye keep my commandments, ye shall abide in my love; even as I have kept my Father's commandments, and abide in his love.
+ 
+Let my beloved come into his garden, and eat his pleasant fruits. -- I am come into my garden, my sister, my spouse: I have gathered my myrrh with my spice; I have eaten my honeycomb with my honey. -- The fruit of the Spirit is love, joy, peace, longsuffering, gentleness, goodness, faith, meekness, temperance.
+ 
+Herein is my Father glorified, that ye bear much fruit; so shall ye be my disciples. -- Every branch that beareth fruit, he purgeth it, that it may bring forth more fruit. -- Being filled with the fruits of righteousness, which are by Jesus Christ, unto the glory and praise of God.  
 
-**Rev 14:3; Heb 10:20; Tit 3:5,6; Eph 2:8,9; Psa 115:1; Rev 1:5; Rev 5:9; Rev 7:9,10**
+**Matt 18:20; John 14:23; John 15:23; Song 5:1; Gal 5:22, 23; John 15:8, John 15:2, Phl 1:11**
 
 ---
 
-[Monday 09-March, 2026](https://t.me/s/daily_light)
+[Tuesday 10-March, 2026](https://t.me/s/daily_light)
 
 > Jonathan Bagster, the son of Samuel Bagster, created the Daily Light for his own family's daily devotion in 1875
 
