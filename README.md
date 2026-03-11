@@ -1,32 +1,32 @@
 # Morning
 
-**The Lord will provide.**
+**The Lord bless thee, and keep thee.**
  
-God will provide himself a lamb for a burnt offering. Behold, the Lord's hand is not shortened, that it cannot save; neither his ear heavy, that it cannot hear. -- There shall come out of Sion the Deliverer, and shall turn away ungodliness from Jacob.
+The blessing of the Lord, it maketh rich, and he addeth no sorrow with it. -- Thou, Lord, wilt bless the righteous; with favour wilt thou compass him as with a shield.
  
-Happy is he that hath the God of Jacob for his help, whose hope is in the Lord his God. -- Behold, the eye of the Lord is upon them that fear him, upon them that hope in his mercy; to deliver their soul from death.
+He will not suffer thy foot to be moved: he that keepeth thee will not slumber. Behold, he that keepeth Israel shall neither slumber nor sleep. The Lord is thy keeper: the Lord is thy shade upon thy right hand. The Lord shall preserve thee from all evil: he shall preserve thy soul. The Lord shall preserve thy going out and thy coming in from this time forth, and even for evermore. -- I the Lord do keep it; I will water it every moment: lest any hurt it, I will keep it night and day.
  
-My God shall supply all your need, according to his riches in glory by Christ Jesus. -- He hath said, I will never leave thee, nor forsake thee. So that we may boldly say, The Lord is my helper, and I will not fear what man shall do unto me. -- The Lord is my strength and my shield; my heart trusteth in him, and I am helped: therefore my heart greatly rejoiceth: and with my song will I praise him.  
+Holy Father, keep through thine own name those whom thou hast given me. While I was with them in the world, I kept them in thy name: those that thou gavest me I have kept.
+ 
+The Lord shall deliver me from every evil work, and will preserve me unto his heavenly kingdom: to whom be glory for ever and ever. Amen.  
 
-**Gen 22:14; Gen 22:8; Isa 59:1; Rom 11:26; Psa 146:5; Psa 33:18,19; Phl 4:19; Heb 13:5,6; Psa 28:7**
+**Num 6:24; Prov 10:22; Psa 5:12; Psa 121:3,5,7,8; Isa 27:3; John 17:11,12; 2 Tim 4:18**
 
 # Evening
 
-**He feedeth among the lilies.**
+**Jesus wept.**
  
-Where two or three are gathered together in my name, there am I in the midst of them. -- If a man love me, he will keep my words: and my Father will love him, and we will come unto him, and make our abode with him.
+A man of sorrows, and acquainted with grief. -- We have not an high priest which cannot be touched with the feeling of our infirmities. -- It became him, for whom are all things, and by whom are all things, in bringing many sons unto glory, to make the captain of their salvation perfect through sufferings. -- Though he were a Son, yet learned he obedience by the things which he suffered.
  
-If ye keep my commandments, ye shall abide in my love; even as I have kept my Father's commandments, and abide in his love.
+I was not rebellious, neither turned away back. I gave my back to the smiters, and my cheeks to them that plucked off the hair: I hid not my face from shame and spitting.
  
-Let my beloved come into his garden, and eat his pleasant fruits. -- I am come into my garden, my sister, my spouse: I have gathered my myrrh with my spice; I have eaten my honeycomb with my honey. -- The fruit of the Spirit is love, joy, peace, longsuffering, gentleness, goodness, faith, meekness, temperance.
- 
-Herein is my Father glorified, that ye bear much fruit; so shall ye be my disciples. -- Every branch that beareth fruit, he purgeth it, that it may bring forth more fruit. -- Being filled with the fruits of righteousness, which are by Jesus Christ, unto the glory and praise of God.  
+Behold how he loved. -- He took not on him the nature of angels; but he took on him the seed of Abraham. In all things it behooved him to be made like unto his brethren, that he might be a merciful and faithful high priest in things pertaining to God, to make reconciliation for the sins of the people.  
 
-**Matt 18:20; John 14:23; John 15:23; Song 5:1; Gal 5:22, 23; John 15:8, John 15:2, Phl 1:11**
+**John 11:35; Isa 53:3; Heb 4:15; Heb 2:10; Heb 5:8; Isa 50:5,6; John 11:36; Heb 2:16,17**
 
 ---
 
-[Tuesday 10-March, 2026](https://t.me/s/daily_light)
+[Wednesday 11-March, 2026](https://t.me/s/daily_light)
 
 > Jonathan Bagster, the son of Samuel Bagster, created the Daily Light for his own family's daily devotion in 1875
 
